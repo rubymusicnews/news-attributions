@@ -1,0 +1,178 @@
+# Sources for 2025-10-26 News Episode 
+- [Radiohead’s Thom Yorke says he would ‘absolutely not’ perform in Israel](https://www.cnn.com/2025/10/26/uk/radiohead-thom-yorke-israel-latam-intl) - CNN
+- [Radiohead’s Thom Yorke says he would ‘absolutely not’ perform in Israel - Yahoo](https://www.yahoo.com/entertainment/music/articles/radiohead-thom-yorke-says-absolutely-185453557.html) - Yahoo
+- [Radiohead’s Thom Yorke says he won’t return to Israel: 'I won’t go near Netanyahu’s government' - Ynetnews](https://www.ynetnews.com/culture/article/rjtw7eiree) - Ynetnews
+- [Radiohead's Thom Yorke won't play in Israel: 'Don't want to be 5,000 miles near Netanyahu' - Haaretz](https://www.haaretz.com/life/2025-10-26/ty-article/.premium/radioheads-thom-yorke-wont-play-in-israel-dont-want-to-be-5-000-miles-near-netanyahu/0000019a-1fd6-d582-a39e-5ff6c42f0000) - Haaretz
+- [Yorke and Greenwood from radiohead clash on Israel boycott - The Jerusalem Post](https://www.jpost.com/israel-news/article-871680) - Jpost
+- [Thom Yorke says "witch-hunt" over Israel stance "wakes me up at night" as Radiohead members share views - NME](https://www.nme.com/news/music/thom-yorke-says-witch-hunt-over-israel-stance-wakes-me-up-at-night-as-radiohead-members-share-views-3902249) - Nme
+- [For Returning to Myself, Brandi Carlile Had to Get Lost](https://www.jezebel.com/brandi-carlile-returning-to-myself) - Jezebel
+- [For Brandi Carlile, solitude is overrated : World Cafe Words and Music Podcast - NPR](https://www.npr.org/2025/10/23/nx-s1-5584021/brandi-carlile-album-returning-to-myself) - Npr
+- [The best new albums out Oct. 24 : All Songs Considered - NPR](https://www.npr.org/2025/10/24/nx-s1-5584027/new-music-friday-october-24-2025) - Npr
+- [Brandi Carlile Climbed Music’s Peak. Then She Had to Start Over. - The New York Times](https://www.nytimes.com/2025/10/17/arts/music/brandi-carlile-returning-to-myself.html) - Nytimes
+- [Gracie Abrams Reveals Apple Music Live Oct 29, 2025 Premiere – Why Fans Should Care - Red94](https://www.red94.net/news/52677-gracie-abrams-reveals-apple-music-live-oct-29-2025-premiere-why-fans-should-care/) - Red94
+- [Lily Allen on new album 'West End Girl' dealing with "deep-rooted issues with rejection and abandonment" after David Harbour divorce - NME](https://www.nme.com/news/music/lily-allen-on-new-album-west-end-girl-dealing-with-deep-rooted-issues-with-rejection-and-abandonment-after-david-harbour-divorce-3901923) - Nme
+- [The Droptines Grind Their Way Out of Texas and into the Mainstream](http://www.rollingstone.com/music/music-features/the-droptines-calling-all-cars-texas-country-1235453982/) - Rolling Stone
+- [Canadian Music Sales Report: Week Ending October 9, 2025 - Billboard Canada](https://ca.billboard.com/fyi/canadian-music-sales-report-week-ending-october-9-2025) - Billboard
+- [The Infamous Stringdusters see "The Light at the End of the Day" - Country Standard Time](https://www.countrystandardtime.com/news/newsitem.asp?xid=15402) - Countrystandardtime
+- [Kevin Parker's "Deadbeat" is tame - The Duke Chronicle](https://www.dukechronicle.com/article/kevin-parkers-deadbeat-is-tame-20251024) - Dukechronicle
+- [13 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/news/13-new-albums-you-should-listen-to-now-tame-impala-sudan-archives/) - Pitchfork
+- [The Top 10 Songs Played in Atlanta Strip Clubs in September 2025 - Billboard](https://www.billboard.com/lists/top-10-songs-atlanta-strip-club-metro-boomin/) - Billboard
+- [Tyla Dons ‘Chanel’ On New Single](https://www.forbes.com/sites/cmalone/2025/10/24/tyla-dons-chanel-in-new-single/) - Forbes
+- [Put Her in Chanel! How Tyla’s Stylist Found the Iconic Archival Chanel Pieces in Her New Music Video - vogue.com](https://www.vogue.com/article/put-her-in-chanel-how-tylas-stylist-found-the-iconic-archival-chanel-pieces-in-her-new-music-video) - Vogue
+- [Ty Dolla $ign returns with ‘Tycoon,’ his first solo album in five years - Greenwich Time](https://www.greenwichtime.com/entertainment/article/ty-dolla-ign-returns-with-tycoon-his-21105312.php) - Greenwichtime
+- [Ty Dolla $ign returns with ‘Tycoon,’ his first solo album in five years - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/ty-dolla-ign-returns-with-tycoon-his-21105312.php) - Sfchronicle
+- [Watch Camden MAE MANN - vogue.com](https://www.vogue.com/video/watch/camden-mae-mann) - Vogue
+- [Bruno Mars Joins Eminem, Metallica And Bob Marley In A Historic Feat](https://www.forbes.com/sites/hughmcintyre/2025/10/26/bruno-mars-joins-eminem-metallica-and-bob-marley-in-a-historic-feat/) - Forbes
+- [2025 Billboard Latin Music Awards Winners: Complete List (Updating) - Billboard](https://www.billboard.com/music/awards/2025-billboard-latin-music-awards-winners-list-1236096432/) - Billboard
+- [Lady Gaga \| Biography, Music & News - billboard.com](https://www.billboard.com/artist/lady-gaga/) - Billboard
+- [Taylor Swift’s ‘The Life of a Showgirl’ makes history by selling 4 million copies in first week - AP News](https://apnews.com/article/taylor-swift-showgirl-eras-tour-disney-3a64afd94014fd6aa22436f5132acccc) - Apnews
+- [‘KPop Demon Hunters’ Is Catching Up To Rosé’s Historic Radio Success - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/10/18/kpop-demon-hunters-is-catching-up-to-ross-historic-radio-success/) - Forbes
+- [The Albums With the Most Top 10 Billboard Hot 100 Hits - MTGamer](https://mtgamer.com/%E5%A8%9B%E6%A8%82/the-albums-with-the-most-top-10-billboard-hot-100-hits-mtgamer-com/46455/) - Mtgamer
+- [Simon Kirke Talks Bad Company Tribute Album And Rock And Roll Hall Of Fame Induction](https://www.forbes.com/sites/davidchiu/2025/10/26/simon-kirke-talks-bad-company-tribute-album-and-rock-and-roll-hall-of-fame-induction/) - Forbes
+- [Bon Jovi's 'Forever (Legendary Edition)': Album Review - Ultimate Classic Rock](https://ultimateclassicrock.com/bon-jovi-forever-legendary-edition/) - Ultimateclassicrock
+- [Iron Maiden Announce 2026 North American Tour with Support from Megadeth and Anthrax - Consequence of Sound](https://consequence.net/2025/10/iron-maiden-2026-north-american-tour/) - Consequence
+- [Bruce Springsteen Takes Us Back to ‘Nebraska 82’ With Expanded Edition: Stream It Now - Billboard Canada](https://ca.billboard.com/music/rock/bruce-springsteen-nebraska-82-expanded-edition-stream-1236097101/) - Billboard
+- [Bon Jovi Announce 2026 Tour Dates Marking Return to the Road - Consequence of Sound](https://consequence.net/2025/10/bon-jovi-2026-tour-dates/) - Consequence
+- [Fred Durst Pays Tribute to Late Limp Bizkit Bassist Sam Rivers: ‘What He’s Left Us Behind Is Priceless’ - Billboard Canada](https://ca.billboard.com/music/rock/fred-durst-tribute-bizkit-bassist-sam-rivers-1236092748/?bil=554&debugld=stickybtest) - Billboard
+- [Demi Lovato Says ‘It’s Not That Deep’ On New Album](https://www.forbes.com/sites/cmalone/2025/10/24/demi-lovato-says-its-not-that-deep-on-new-album/) - Forbes
+- [What to Stream: Brandi Carlile, 'A House of Dynamite,' Demi Lovato and 'Nobody Wants This' - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/what-to-stream-brandi-carlile-a-house-of-21106195.php) - Sfchronicle
+- [‘DWTS’ Fan Favorite Reveals Why Famous Sibling Has Been MIA - Yahoo](https://www.yahoo.com/entertainment/celebrity/articles/dwts-fan-favorite-reveals-why-203538844.html) - Yahoo
+- [Leigh-Anne Is ‘Dead And Gone’ On New Single - Forbes](https://www.forbes.com/sites/cmalone/2025/10/17/leigh-anne-is-dead-and-gone-on-new-single/) - Forbes
+- [Nelly Furtado Announces Break from Performing Music - TODAY.com](https://www.today.com/today/amp/rcna239747) - Today
+- [National Folk Festival Coming To Jackson, MS November 7-9, 2025](https://www.forbes.com/sites/chaddscott/2025/10/25/national-folk-festival-coming-to-jackson-ms-november-7-9-2025/) - Forbes
+- [How much are last-minute When We Were Young tickets? See Panic At The Disco - New York Post](https://nypost.com/2025/10/14/ticket-sales/when-we-were-young-2025-where-to-buy-last-minute-tickets-best-prices/) - Nypost
+- [Holiday cheer fills Carolina Theatre's stage and screen - Axios](https://www.axios.com/local/charlotte/2025/10/23/carolina-theatre-christmas-films-live-performances-uptown-charlotte) - Axios
+- [ROC Holiday Village to return with cozy igloos, food, music and more - Democrat and Chronicle](https://www.democratandchronicle.com/story/lifestyle/entertainment/2025/10/22/roc-holiday-village-2025-schedule-igloos-hours-food-music/86820420007/) - Democratandchronicle
+- [Sanding Ovations returns to Treasure Island next month - Axios](https://www.axios.com/local/tampa-bay/2025/10/20/sanding-ovations-treasure-island-2025) - Axios
+- [D’Angelo Hits No. 1 For The First Time Days After His Death](https://www.forbes.com/sites/hughmcintyre/2025/10/26/dangelo-hits-no-1-for-the-first-time-days-after-his-death/) - Forbes
+- [Tyler, The Creator, Doja Cat, DJ Premier & More Pay Tribute to D’Angelo: ‘A True Voice of Soul & Inspiration’ - Billboard](https://www.billboard.com/music/rb-hip-hop/dangelo-death-stars-react-1236088993/) - Billboard
+- [Tyler, The Creator, Doja Cat, DJ Premier & More Pay Tribute to D’Angelo: ‘A True Voice of Soul & Inspiration’ - Billboard Canada](https://ca.billboard.com/music/rb-hip-hop/dangelo-death-stars-react-1236088993/?bil=554&debugld=stickybtest) - Billboard
+- [D’Angelo, Soul’s Modern Visionary, Dead at 51 - Rolling Stone](https://www.rollingstone.com/music/music-news/dangelo-dead-obit-obituary-1235446878/) - Rollingstone
+- [D’Angelo, Grammy-winning R&B Icon, Dies at 51 - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/dangelo-dead-cancer-1236400337/) - Hollywoodreporter
+- [D’Angelo Reportedly Dead At 51 - HotNewHipHop](https://www.hotnewhiphop.com/952661-dangelo-dead-at-51-hip-hop-news) - Hotnewhiphop
+- [Radiohead Discuss Upcoming Tour, Possibility of New Music, State of Band](https://consequence.net/2025/10/radiohead-discuss-upcoming-tour-possibility-of-new-music-state-of-band/) - Consequence.net
+- [Radiohead reveal whether fans can expect new material after upcoming tour dates - NME](https://www.nme.com/news/music/radiohead-reveal-whether-fans-can-expect-new-material-after-upcoming-tour-dates-3902292) - Nme
+- [Radiohead reveal they'll be playing in the round on UK and European tour and talk setlists: "We have too many songs" - NME](https://www.nme.com/news/music/radiohead-reveal-theyll-be-playing-in-the-round-on-uk-and-european-tour-and-talk-setlists-we-have-too-many-songs-3902277) - Nme
+- [Radiohead’s Thom Yorke says he won’t return to Israel: 'I won’t go near Netanyahu’s government' - Ynetnews](https://www.ynetnews.com/culture/article/rjtw7eiree) - Ynetnews
+- [Rod Wave announces 2025-26 tour, Barclays concert. Get tickets - New York Post](https://nypost.com/2025/10/14/ticket-sales/rod-wave-the-redemption-experience-tour-2025-26-where-to-buy-tickets/) - Nypost
+- [TWICE Expands World Tour With Added Shows In North America And Europe - Forbes](https://www.forbes.com/sites/laurasirikul/2025/10/13/twice-expands-world-tour-with-added-shows-in-north-america-and-europe/) - Forbes
+- [Lewis Capaldi Announces 2026 North American Tour: How to Get Tickets](https://consequence.net/2025/10/lewis-capaldi-2026-tour-how-to-buy-tickets/) - Consequence.net
+- [TWICE Expands World Tour With Added Shows In North America And Europe - Forbes](https://www.forbes.com/sites/laurasirikul/2025/10/13/twice-expands-world-tour-with-added-shows-in-north-america-and-europe/) - Forbes
+- [Iron Maiden announce Run For Your Lives North American tour for 2026 including Louder Than Life festival - and they'd like you to keep your phones away - Louder](https://www.loudersound.com/bands-artists/iron-maiden-announce-run-for-your-lives-north-american-tour-for-2026-including-louder-than-life-festival-and-theyd-like-you-to-keep-your-phones-away) - Loudersound
+- [Rush extends reunion tour again–Here are all the 2026 dates, best tickets - New York Post](https://nypost.com/2025/10/24/ticket-sales/rush-extends-reunion-tour-again-get-tickets-for-all-2026-dates/) - Nypost
+- [How to Get Louis Tomlinson Tickets: US, Canada, and Europe Dates and Prices - businessinsider.com](https://www.businessinsider.com/guides/tickets/how-to-get-louis-tomlinson-tickets-concert-tour) - Businessinsider
+- [Bon Jovi announces 2026 tour, four MSG shows. Get tickets today - New York Post](https://nypost.com/2025/10/23/ticket-sales/bon-jovi-forever-tour-2026-where-to-buy-tickets-msg/) - Nypost
+- [SEVENTEEN Shines Bright Despite Absent Members on Night 2 of 'NEW_ World Tour' in Austin (Review)](https://www.justjared.com/2025/10/25/seventeen-shines-bright-despite-absent-members-on-night-2-of-new_-world-tour-in-austin-review/) - Just Jared
+- [All The Details Of SEVENTEEN’s New Documentary - Forbes](https://www.forbes.com/sites/hannahabraham/2025/10/16/all-the-details-of-seventeens--new-documentary/) - Forbes
+- [TWICE Expands World Tour With Added Shows In North America And Europe - Forbes](https://www.forbes.com/sites/laurasirikul/2025/10/13/twice-expands-world-tour-with-added-shows-in-north-america-and-europe/) - Forbes
+- [How to Get Louis Tomlinson Tickets: US, Canada, and Europe Dates and Prices - businessinsider.com](https://www.businessinsider.com/guides/tickets/how-to-get-louis-tomlinson-tickets-concert-tour) - Businessinsider
+- [How much are last-minute When We Were Young tickets? See Panic At The Disco - New York Post](https://nypost.com/2025/10/14/ticket-sales/when-we-were-young-2025-where-to-buy-last-minute-tickets-best-prices/) - Nypost
+- [How much are tickets for Jason Bonham’s fall 2025 Led Zeppelin Evening Tour? - New York Post](https://nypost.com/2025/10/17/ticket-sales/jason-bonham-led-zeppelin-evening-tickets-2025-where-to-buy-best-prices/) - Nypost
+- [Peter Sellars plots return to Adelaide Festival 24 years after controversy](https://www.abc.net.au/news/2025-10-27/peter-sellars-returns-to-adelaide-festival-as-program-launched/105916826) - ABC News (AU)
+- [Denis Carnahan Is Touring Australia with 'Cricket The Musical' - Variety](https://au.variety.com/2025/music/news/denis-carnahan-cricket-the-musical-across-australia-tour-28982/) - Variety
+- [Review: Back and bigger than ever, 2025’s Ear Taxi is a smooth ride - Chicago Tribune](https://www.chicagotribune.com/2025/10/20/review-ear-taxi-fest/) - Chicagotribune
+- [Mel Gibson's Resurrection of the Christ Casts New Jesus, Mary Magdalene - Variety](https://variety.com/2025/film/global/mel-gibson-resurrection-of-the-christ-new-jesus-mary-magdalene-1236552209/) - Variety
+- [Lucrecia Martel to Head Asian Feature Jury as Singapore Festival Opens Competition to All Career Stages - Variety](https://variety.com/2025/film/festivals/lucrecia-martel-asian-feature-jury-singapore-festival-1236551240/) - Variety
+- [Albo’s wall-to-wall press coverage wants us to ‘Back Australia’ - The Spectator Australia](https://www.spectator.com.au/2025/10/albos-wall-to-wall-press-coverage-wants-us-to-back-australia/) - Spectator
+- [Storms disrupt Adelaide's Harvest Rock and OzAsia festivals](https://www.abc.net.au/news/2025-10-25/harvest-rock-and-oz-asia-festivals-disrupted-by-thunderstorms/105933816) - ABC News (AU)
+- [Storm Benjamin causes flooding and debris on Guernsey roads - BBC](https://www.bbc.com/news/articles/cnve5jpp98do.amp) - Bbc
+- [Woman dies after struck by board near REDWEST music festival in Salt Lake - KUTV](https://kutv.com/news/local/woman-dies-after-struck-by-board-at-redwest-music-festival-in-salt-lake) - Kutv
+- [Storm decimates 2 Alaskan villages and drives more than 1,500 people from their homes - Greenwich Time](https://www.greenwichtime.com/news/article/storm-decimates-2-alaskan-villages-and-drives-21101549.php) - Greenwichtime
+- [Powerful storm leaves over 130 displaced in Tempe, Arizona - ABC News - Breaking News, Latest News and Videos](https://abcnews.go.com/US/powerful-storm-leaves-130-displaced-tempe-arizona/story?id=126497837) - Go
+- [Hundreds of Alaskans are being airlifted from coastal villages ravaged by Typhoon Halong - New York Post](https://nypost.com/2025/10/16/us-news/alaska-airlifting-hundreds-from-typhoon-halong-devastated-areas/) - Nypost
+- [Avril Lavigne, Blink-182, Weezer Among Rockers at Politically Charged Las Vegas Concert: 'Destroy American Fascism'](https://www.breitbart.com/entertainment/2025/10/26/avril-lavigne-blink-182-weezer-among-rockers-at-politically-charged-las-vegas-concert-destroy-american-fascism/) - Breitbart News
+- [How much are last-minute When We Were Young tickets? See Panic At The Disco - New York Post](https://nypost.com/2025/10/14/ticket-sales/when-we-were-young-2025-where-to-buy-last-minute-tickets-best-prices/) - Nypost
+- [TWICE Expands World Tour With Added Shows In North America And Europe - Forbes](https://www.forbes.com/sites/laurasirikul/2025/10/13/twice-expands-world-tour-with-added-shows-in-north-america-and-europe/) - Forbes
+- [Green Day, Twenty One Pilots, Cage the Elephant to Play iHeartRadio 2026 ALTer EGO Festival - billboard.com](https://www.billboard.com/music/concerts/2026-iheartradio-alter-ego-festival-lineup-green-day-1236088735/) - Billboard
+- [Taylor Swift announces new ‘Eras Tour’ docuseries and concert film for Disney+: How to watch - Chicago Tribune](https://www.chicagotribune.com/2025/10/13/taylor-swift-tour-docuseries/) - Chicagotribune
+- [‘Jay Kelly’ Arrives in Hollywood, Emma Stone Premieres ‘Bugonia’ and This Week’s Best Events - The Hollywood Reporter](https://www.hollywoodreporter.com/gallery/jay-kelly-bugonia-red-carpet-events-1236405142/) - Hollywoodreporter
+- [Carol Ades transforms PMS chaos into cathartic alt-pop on "Worst Person In The World" [Video]](https://earmilk.com/2025/10/26/carol-ades-transforms-pms-chaos-into-cathartic-alt-pop-on-worst-person-in-the-world-video/) - Earmilk.com
+- ['It Was Just an Accident' is a blast of pure anti-authoritarian rage - NPR](https://www.npr.org/2025/10/23/nx-s1-5582378/it-was-just-an-accident-jafar-panahi-review) - Npr
+- [Review: It's Emma Stone's planet now as the alien comedy 'Bugonia' proves - Los Angeles Times](https://www.latimes.com/entertainment-arts/movies/story/2025-10-23/bugonia-review-emma-stone-jesse-plemons-alicia-silverstone-yorgos-lanthimos) - Latimes
+- [Everybody Wants This! How a Netflix Rom-Com Went From Near Implosion to Cultural Obsession - Yahoo](https://www.yahoo.com/entertainment/tv/articles/everybody-wants-netflix-rom-com-130000826.html) - Yahoo
+- [What Even Is ‘After The Hunt’? - Defector](https://defector.com/what-even-is-after-the-hunt) - Defector
+- [‘Ballad of a Small Player’ review: Colin Farrell’s gambling ghost story is no sure bet - New York Post](https://nypost.com/2025/10/15/entertainment/ballad-of-a-small-player-review-colin-farrells-gambling-ghost-story-is-no-sure-bet/) - Nypost
+- [MISERY SIGNALS Is Now Streaming Their Farewell Tour Documentary "Love Is Forever, Blood Is Forever" For Free](https://metalinjection.net/at-the-movies/misery-signals-is-now-streaming-their-farewell-tour-documentary-love-is-forever-blood-is-forever-for-free) - Metal Injection.net
+- [Taylor Swift’s showgirl era continues with a new tour documentary and final show concert film - Vogue Australia](https://www.vogue.com.au/culture/taylor-swifts-showgirl-era-continues-with-a-new-tour-documentary-and-final-show-concert-film/news-story/9738bbdbc0416c681e9ea56f405be296) - Vogue
+- [7 Eras Tour Reveals Drop Dec. 12, 2025 – Here’s What Changes For Fans - Red94](https://www.red94.net/news/66301-7-eras-tour-reveals-drop-dec-12-2025-here-s-what-changes-for-fans/) - Red94
+- [Taylor Swift Announces ‘The End Of An Era’ Documentary Release Date On Disney+ - Forbes](https://www.forbes.com/sites/paultassi/2025/10/13/taylor-swift-announces-the-end-of-an-era-documentary-release-date-on-disney/) - Forbes
+- [The Hidden World Of The Disney Park Underground: Documentary To Screen At Orpheum - Cape Cod Chronicle](https://www.capecodchronicle.com/articles/3530/view/the-hidden-world-of-the-disney-park-underground-documentary-to-screen-at-orpheum) - Capecodchronicle
+- [All The Details Of SEVENTEEN’s New Documentary - Forbes](https://www.forbes.com/sites/hannahabraham/2025/10/16/all-the-details-of-seventeens--new-documentary/) - Forbes
+- [BLEED FROM WITHIN To Tour The UK And Ireland In Early 2026](https://metalinjection.net/tour-dates/bleed-from-within-to-tour-the-uk-and-ireland-in-early-2026) - Metal Injection.net
+- [Bon Jovi announces 2026 tour, four MSG shows. Get tickets today - New York Post](https://nypost.com/2025/10/23/ticket-sales/bon-jovi-forever-tour-2026-where-to-buy-tickets-msg/) - Nypost
+- [Bon Jovi Announces Return to the Stage for 2026 Tour Dates - Loudwire](https://loudwire.com/bon-jovi-2026-tour-dates/) - Loudwire
+- [Louder Than Life taps one of the world's most popular heavy metal bands for 2026 - WLKY](https://www.wlky.com/article/louder-than-life-iron-maiden-2026/69134423) - Wlky
+- [Westlife tour 2026: Belfast and Dublin gigs announced - BBC](https://www.bbc.com/news/articles/c986eq8nl7zo) - Bbc
+- [Bon Jovi Announce 2026 Tour Dates Marking Return to the Road - Consequence of Sound](https://consequence.net/2025/10/bon-jovi-2026-tour-dates/) - Consequence
+- [The magic is back as Veronica Robles brings Dia de Muertos to Pops](https://www.bostonherald.com/2025/10/25/the-magic-is-back-as-veronica-robles-brings-dia-de-muertos-to-pops/) - Boston Herald
+- [IVC’s Día De Los Muertos Display Open Through Nov. 3 - Calexico Chronicle](https://calexicochronicle.com/2025/10/20/ivcs-dia-de-los-muertos-display-open-through-nov-3/) - Calexicochronicle
+- [Día De Los Muertos at Duke - The Duke Chronicle](https://www.dukechronicle.com/article/da-de-los-muertos-at-duke-20251024) - Dukechronicle
+- [Kevin Celebrates Dia de los Muertos - CBS News](https://www.cbsnews.com/gooddaysacramento/video/kevin-celebrates-dia-de-los-muertos/) - Cbsnews
+- [Alt.Latino: A Tiny Desk chat with Silvana Estrada : All Songs Considered - NPR](https://www.npr.org/2025/10/15/nx-s1-5574403/alt-latino-a-tiny-desk-chat-with-silvana-estrada) - Npr
+- [A Tiny Desk chat with Silvana Estrada : Alt.Latino - NPR](https://www.npr.org/2025/10/15/nx-s1-5574364/a-tiny-desk-chat-with-silvana-estrada) - Npr
+- [Of Monsters and Men kicks off US tour in Boston](https://www.bostonherald.com/2025/10/26/of-monsters-and-men-kicks-off-us-tour-in-boston/) - Boston Herald
+- [Bon Jovi Announces Return to the Stage for 2026 Tour Dates - Loudwire](https://loudwire.com/bon-jovi-2026-tour-dates/) - Loudwire
+- [IRON MAIDEN Announces 2026 North American Dates With MEGADETH & ANTHRAX - Metal Injection](https://metalinjection.net/tour-dates/iron-maiden-announces-2026-north-american-dates-with-megadeth-anthrax) - Metalinjection
+- [TWICE Expands World Tour With Added Shows In North America And Europe - Forbes](https://www.forbes.com/sites/laurasirikul/2025/10/13/twice-expands-world-tour-with-added-shows-in-north-america-and-europe/) - Forbes
+- [Bon Jovi Announce 2026 Tour Dates Marking Return to the Road - Consequence of Sound](https://consequence.net/2025/10/bon-jovi-2026-tour-dates/) - Consequence
+- [Iron Maiden Announce 2026 North American Tour Dates - Ultimate Classic Rock](https://ultimateclassicrock.com/iron-maiden-2026-tour/) - Ultimateclassicrock
+- [Emotional moment: Freed hostage Elkana Bohbot honored at Eyal Golan concert](https://www.israelnationalnews.com/news/416807) - Israelnationalnews.com
+- [Eyal Golan pays touching tribute to freed hostage Elkana Bohbot at Tel Aviv concert - Ynetnews](https://www.ynetnews.com/culture/article/hyvweeirll) - Ynetnews
+- [What to know about the 20 living hostages released by Hamas - Axios](https://www.axios.com/2025/10/13/israeli-hostages-released-hamas-war) - Axios
+- [Elkana Bohbot’s mother shares his story of survival in Gaza - The Jerusalem Post](https://www.jpost.com/israel-news/article-871221) - Jpost
+- ['Today is a new day': Rapper Ravid Plotnik sings with freed hostages - Ynetnews](https://www.ynetnews.com/culture/article/rjlqdigaxl) - Ynetnews
+- [‘A Burning Man’ wins Best Israeli Feature Prize at the Haifa International Film Festival - The Jerusalem Post](https://www.jpost.com/israel-news/culture/article-870329) - Jpost
+- [Downswing New Music Video "Emptiness Remains''](http://www.metalunderground.com/news/details.cfm?newsid=160338) - Metalunderground.com
+- [Grove Street release new music video for ‘Self Sabotage’ - Distorted Sound Magazine -](https://distortedsoundmag.com/grove-street-release-new-music-video-for-self-sabotage/) - Distortedsoundmag
+- [13 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/news/13-new-albums-you-should-listen-to-now-tame-impala-sudan-archives/) - Pitchfork
+- [Album Premiere: Dear Forbidden – ‘Self-Titled’ - New Noise Magazine](https://newnoisemagazine.com/premieres/album-premiere-dear-forbidden-self-titled/) - Newnoisemagazine
+- [SET IT OFF unleash ferocious new track “Pathological” ahead of self-titled album drop - musomuso.com](https://musomuso.com/news/set-it-off-unleash-ferocious-new-track-pathological-ahead-of-self-titled-album-drop) - Musomuso
+- [Bleak Haven: Official Launch Trailer - IGN India](https://in.ign.com/bleak-haven/245084/video/bleak-haven-official-launch-trailer) - Ign
+- [Soulfly Unveils New Video "No Pain = No Power"; New Album "Chama" Out Today](http://www.metalunderground.com/news/details.cfm?newsid=160337) - Metalunderground.com
+- [CKY Surprise Releases New Single 'Can't Stop Running' - BLABBERMOUTH.NET](https://blabbermouth.net/news/cky-surprise-releases-new-single-cant-stop-running) - Blabbermouth
+- [13 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/news/13-new-albums-you-should-listen-to-now-tame-impala-sudan-archives/) - Pitchfork
+- [Hi, My Name Is Alex Reveals Nov. 27 EP And Jan. 9 LP In 2026 – Why It Matters - Red94](https://www.red94.net/news/57337-hi-my-name-is-alex-reveals-nov-27-ep-and-jan-9-lp-in-2026-why-it-matters/) - Red94
+- [Alter Bridge Unleash New Single "What Lies Within" From Upcoming Self-titled Album - myglobalmind.com](https://myglobalmind.com/2025/10/10/alter-bridge-unleash-new-single-what-lies-within-from-upcoming-self-titled-album/) - Myglobalmind
+- [PUSCIFER to release new album next year, deliver first new single "Self Evident" - Lambgoat](https://lambgoat.com/news/50098/puscifer-to-release-new-album-next-year-deliver-first-new-single-self-evident/) - Lambgoat
+- [Pulp – Different Class (30th Anniversary Edition) (2025)](https://exystence.net/blog/2025/10/25/pulp-different-class-30th-anniversary-edition-2025/) - Exystence.net
+- [The Pulp Fiction Steelbook 4K Blu-ray Is Returning Soon - GameSpot](https://www.gamespot.com/articles/the-pulp-fiction-steelbook-4k-blu-ray-reprint-preorders/1100-6534848/) - Gamespot
+- [Kevin Parker's "Deadbeat" is tame - The Duke Chronicle](https://www.dukechronicle.com/article/kevin-parkers-deadbeat-is-tame-20251024) - Dukechronicle
+- [Bruce Springsteen Takes Us Back to ‘Nebraska 82’ With Expanded Edition: Stream It Now - Billboard Canada](https://ca.billboard.com/music/rock/bruce-springsteen-nebraska-82-expanded-edition-stream-1236097101/) - Billboard
+- [How D’Angelo Made His Masterpiece, ‘Voodoo’ - The New York Times](https://www.nytimes.com/2025/10/15/arts/music/dangelo-voodoo.html) - Nytimes
+- [PUSCIFER announce new album and 2026 tour with biting single "Self Evident" - Revolver Magazine](https://www.revolvermag.com/news/puscifer-announce-new-album-and-2026-tour-with-dark-song-self-evident/) - Revolvermag
+- [‘Even if someone hates us, we love them’: Diljit Dosanjh’s Sydney concert strikes a chord, becomes talk of the town](https://indianexpress.com/article/india/diljit-dosanjh-sydney-concert-talk-of-the-town-10328364/) - The Indian Express
+- [Diljit Dosanjh Continues to Redefine Punjabi Pop on the Global Stage with New Album 'AURA' - Billboard Canada](https://ca.billboard.com/music/music-news/diljit-dosanjh-new-album-aura) - Billboard
+- [Meeting with Xi Jinping, Kim Jong Un: Trump’s Asia tour puts trade tariffs in focus - what's on the cards - Times of India](https://timesofindia.indiatimes.com/world/us/donald-trump-asia-tour-asean-summit-meeting-with-xi-jinping-kim-jong-un-trade-tariffs-in-focus-whats-on-the-cards/articleshow/124807324.cms) - Indiatimes
+- [Denis Carnahan Is Touring Australia with 'Cricket The Musical' - Variety](https://au.variety.com/2025/music/news/denis-carnahan-cricket-the-musical-across-australia-tour-28982/) - Variety
+- [TWICE Expands World Tour With Added Shows In North America And Europe - Forbes](https://www.forbes.com/sites/laurasirikul/2025/10/13/twice-expands-world-tour-with-added-shows-in-north-america-and-europe/) - Forbes
+- [How to Get Cardi B Concert Tickets: Los Angeles, New York, Atlanta, and More - Business Insider](https://www.businessinsider.com/guides/tickets/how-to-get-cardi-b-concert-tickets-tour) - Businessinsider
+- [Olivia Rodrigo Performs Secret NYC Concert to End 'Guts' Era, Teases Her Upcoming Music](https://www.justjared.com/2025/10/24/olivia-rodrigo-performs-secret-nyc-concert-to-end-guts-era-teases-her-upcoming-music/) - Just Jared
+- [Check out some of NYC's most-hidden places with Open House New York - NBC New York](https://www.nbcnewyork.com/new-york-city/nyc-most-hidden-places-open-house-new-york/6406467/) - Nbcnewyork
+- [Sabrina Carpenter's Latest 'Arrest' Is Gigi Hadid During Pittsburgh Show: 'I'm Getting So Hot and Flustered' - People.com](https://people.com/sabrina-carpenter-arrests-gigi-hadid-at-pittsburgh-show-11836277) - People
+- [Hayley Williams, Jack Antonoff, María Zardoya, Role Model Headline Rolling Stone's 'Musicians on Musicians' Live - Variety](https://au.variety.com/2025/music/news/hayley-williams-role-model-rolling-stone-musicians-on-musicians-29284/) - Variety
+- [Immerse yourself in the exhibits of Storefront for Art & Architecture - NBC New York](https://www.nbcnewyork.com/video/entertainment/the-scene/new-york-live/immerse-yourself-in-the-exhibits-of-storefront-for-art-architecture/6407599/?amp=1) - Nbcnewyork
+- [‘Jay Kelly’ Arrives in Hollywood, Emma Stone Premieres ‘Bugonia’ and This Week’s Best Events - The Hollywood Reporter](https://www.hollywoodreporter.com/gallery/jay-kelly-bugonia-red-carpet-events-1236405142/) - Hollywoodreporter
+- [Gaming firm JetSynthesys enters concert business with Lucky Ali’s India tour](https://www.livemint.com/industry/gaming-firm-jetsynthesys-ups-live-events-play-to-produce-lucky-alis-india-concert-11761476151182.html) - Livemint
+- [Match Preview Australia vs India, 3rd ODI 2025 \| tv5.ESPN.com - ESPN Philippines](https://www.espn.com/cricket/series/23265/preview/1478906/australia-vs-india-3rd-odi-india-australia-2025-26) - Espn
+- [Tarot Horoscope Today for October 21, 2025: The cards call for thoughtful action and clarity \| Astrology - Hindustan Times](https://www.hindustantimes.com/astrology/horoscope/tarot-horoscope-today-for-october-21-2025-the-cards-call-for-thoughtful-action-and-clarity-101760962863634.html) - Hindustantimes
+- [Gracie Abrams Reveals Apple Music Live Oct 29, 2025 Premiere – Why Fans Should Care - Red94](https://www.red94.net/news/52677-gracie-abrams-reveals-apple-music-live-oct-29-2025-premiere-why-fans-should-care/) - Red94
+- [How to Get Cardi B Concert Tickets: Los Angeles, New York, Atlanta, and More - Business Insider](https://www.businessinsider.com/guides/tickets/how-to-get-cardi-b-concert-tickets-tour) - Businessinsider
+- [Nexperia Halts Salaries and System Access for Chinese Workforce - El-Balad.com](https://www.el-balad.com/6737317) - El-balad
+- [Over 100,000 visitors descend on Cork for 'The Jazz'](https://www.rte.ie/news/regional/2025/1026/1540709-cork-jazz/) - RTE
+- [Review: Back and bigger than ever, 2025’s Ear Taxi is a smooth ride - Chicago Tribune](https://www.chicagotribune.com/2025/10/20/review-ear-taxi-fest/) - Chicagotribune
+- [How to watch World Gymnastics Championships 2025: Schedule, times, channels, live streams for men, women - sportingnews.com](https://www.sportingnews.com/us/tsn/news/watch-world-gymnastics-championships-2025-schedule-times-channels-streams/6c1d449f9304be738bf86d78) - Sportingnews
+- [Change comes to Aspen - Slippedisc](https://slippedisc.com/2025/10/change-comes-to-aspen/) - Slippedisc
+- [Sanding Ovations returns to Treasure Island next month - Axios](https://www.axios.com/local/tampa-bay/2025/10/20/sanding-ovations-treasure-island-2025) - Axios
+- [Gatorhead 2025 returns to Newnan’s Lake on October 25 - Alachua Chronicle](https://alachuachronicle.com/gatorhead-2025-returns-to-newnans-lake-on-october-25/) - Alachuachronicle
+- [Nelly Furtado announces hiatus from performing to pursue other creative endeavors](https://economictimes.indiatimes.com/news/international/us/nelly-furtado-announces-hiatus-from-performing-to-pursue-other-creative-endeavors/articleshow/124823638.cms) - The Times of India
+- [Nelly Furtado stepping away from performing for 'the foreseeable future' - WFAA](https://www.wfaa.com/article/news/nation-world/nelly-furtado-stepping-away-performing/507-18a4f3ea-a131-42ff-84a0-e0718a9cad0d) - Wfaa
+- [Nelly Furtado quits performing 'for the foreseeable future,' 25 years after debut album - USA Today](https://www.usatoday.com/story/entertainment/music/2025/10/26/nelly-furtado-hiatus-quits-performing/86914825007/) - Usatoday
+- [Legendary 2000s singer announces end to performing in emotional note to fans - MassLive](https://www.masslive.com/entertainment/2025/10/legendary-2000s-singer-announces-end-to-performing-in-emotional-note-to-fans.html) - Masslive
+- [Nelly Furtado ‘to Step Away’ From Performing ‘for the Foreseeable Future’ - TheWrap](https://www.thewrap.com/nelly-furtado-to-step-away-from-performing/) - Thewrap
+- [Nelly Furtado ‘to Step Away’ From Performing ‘for the Foreseeable Future’ - Yahoo News Canada](https://ca.news.yahoo.com/nelly-furtado-step-away-performing-054607515.html) - Yahoo
+- [Chrissy Chlapecka Reconnects With Her Inner ‘Fierce Diva’ in Cyberpop ‘Apollo’ Video](http://www.rollingstone.com/music/music-news/chrissy-chlapecka-apollo-video-christine-ep-1235454202/) - Rolling Stone
+- [Gracie Abrams’ Red Rocks Show Reveals Spatial Audio Release On Oct 29, 2025 - Why It Matters Now - Red94](https://www.red94.net/news/61890-gracie-abrams-red-rocks-show-reveals-spatial-audio-release-on-oct-29-2025-why-it/) - Red94
+- [Gracie Abrams Reveals Apple Music Live Oct 29, 2025 Premiere – Why Fans Should Care - Red94](https://www.red94.net/news/52677-gracie-abrams-reveals-apple-music-live-oct-29-2025-premiere-why-fans-should-care/) - Red94
+- [Someone made a 'camera' that can shoot at two billion frames per second - Engadget](https://www.engadget.com/science/someone-made-a-camera-that-can-shoot-at-two-billion-frames-per-second-202259391.html) - Engadget
+- [Inclusive By Design Reveals 3-Part Format in 2025: Why It Matters Now - Red94](https://www.red94.net/news/34572-inclusive-by-design-reveals-3-part-format-in-2025-why-it-matters-now/) - Red94
+- [Come See Me in the Good Light - IGN](https://www.ign.com/movies/come-see-me-in-the-good-light) - Ign
