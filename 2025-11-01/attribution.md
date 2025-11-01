@@ -126,3 +126,29 @@ Full media attributions for all assets used.
 | Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6966873587) | by-sa |
 | Image | Easel On Table | Rene Terp | [Pexels](https://www.pexels.com/photo/easel-on-table-2504964/) | [pexels](https://www.pexels.com/license) |
 | Audio | Feel the Glow | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/feel-the-glow-3/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Man And Woman At A Recording Studio | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/man-and-woman-at-a-recording-studio-8412409/) | [pexels](https://www.pexels.com/license) |
+| Image | Modern Building Exteriors And Stairs In City Park | Olga Lioncat | [Pexels](https://www.pexels.com/photo/modern-building-exteriors-and-stairs-in-city-park-7245224/) | [pexels](https://www.pexels.com/license) |
+| Image | Modern Music Complex Facades And Staircase In City | Olga Lioncat | [Pexels](https://www.pexels.com/photo/modern-music-complex-facades-and-staircase-in-city-7245247/) | [pexels](https://www.pexels.com/license) |
+| Image | Man And Woman At A Recording Studio | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/man-and-woman-at-a-recording-studio-8412409/) | [pexels](https://www.pexels.com/license) |
+| Image | Men In Studio | Anna Pou | [Pexels](https://www.pexels.com/photo/men-in-studio-8133382/) | [pexels](https://www.pexels.com/license) |
+| Image | Bandmates Sitting On The Sofa Together | RDNE Stock project | [Pexels](https://www.pexels.com/photo/bandmates-sitting-on-the-sofa-together-8198166/) | [pexels](https://www.pexels.com/license) |
+| Image | Stylish Urban Music Artist Portrait With Accessories | Yahn Cv | [Pexels](https://www.pexels.com/photo/stylish-urban-music-artist-portrait-with-accessories-30090046/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman In Gray Blazer Standing Near Green Plant With A Serious Look | Tima Miroshnichenko | [Pexels](https://www.pexels.com/photo/woman-in-gray-blazer-standing-near-green-plant-with-a-serious-look-5717632/) | [pexels](https://www.pexels.com/license) |
+| Image | Black Haired Man Wearing Blue Printed Shirt Holding Speakers | Hallux Makenzo | [Pexels](https://www.pexels.com/photo/black-haired-man-wearing-blue-printed-shirt-holding-speakers-743715/) | [pexels](https://www.pexels.com/license) |
+| Audio | green valley | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/green-valley/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Dave 1 | hydropeek | [Flickr](https://www.flickr.com/photos/39265075@N00/2716102298) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | A Spinning Vinyl Record | Eva Bronzini | [Pexels](https://www.pexels.com/photo/a-spinning-vinyl-record-7605653/) | [pexels](https://www.pexels.com/license) |
+| Image | A Vinyl Record On A Turntable | Alessandro Nofi | [Pexels](https://www.pexels.com/photo/a-vinyl-record-on-a-turntable-5657556/) | [pexels](https://www.pexels.com/license) |
+| Image | Classic Vinyl Record Spinning On Turntable | Chris R. | [Pexels](https://www.pexels.com/photo/classic-vinyl-record-spinning-on-turntable-31805824/) | [pexels](https://www.pexels.com/license) |
+| Image | Cheerful Black Woman Recording Audio Podcast | George Milton | [Pexels](https://www.pexels.com/photo/cheerful-black-woman-recording-audio-podcast-6954181/) | [pexels](https://www.pexels.com/license) |
+| Video | A Female Entrepreneur Talking At An Interview | Mikhail Nilov | [Pexels](https://www.pexels.com/video/a-female-entrepreneur-talking-at-an-interview-8873215/) | [pexels](https://www.pexels.com/license) |
+| Image | Dave 1 | hydropeek | [Flickr](https://www.flickr.com/photos/39265075@N00/2716102298) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Audio | cocoon | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/cocoon/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Michael, Rest in Peace | Tony Fischer Photography | [Flickr](https://www.flickr.com/photos/22714323@N06/3677162488) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Video | Music Video Rapper | The  MoonRunners | [Pexels](https://www.pexels.com/video/music-video-rapper-19858231/) | [pexels](https://www.pexels.com/license) |
+| Image | Unknown Person Playing Guitar | Kyle Loftus | [Pexels](https://www.pexels.com/photo/unknown-person-playing-guitar-2510428/) | [pexels](https://www.pexels.com/license) |
+| Image | Special Effects Makeup Application Close Up | Miguel Rodríguez | [Pexels](https://www.pexels.com/photo/special-effects-makeup-application-close-up-32412363/) | [pexels](https://www.pexels.com/license) |
+| Image | Makin Magic Album Sleeve | Lopsan | [Pexels](https://www.pexels.com/photo/makin-magic-album-sleeve-2191013/) | [pexels](https://www.pexels.com/license) |
+| Image | Black Vinyl Records On Brown Wooden Table | Yulia Ilina | [Pexels](https://www.pexels.com/photo/black-vinyl-records-on-brown-wooden-table-9107878/) | [pexels](https://www.pexels.com/license) |
+| Image | Closeup Photo Of Lp Records | Miguel Á. Padriñán | [Pexels](https://www.pexels.com/photo/closeup-photo-of-lp-records-3391926/) | [pexels](https://www.pexels.com/license) |
+| Audio | matcha | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/matcha/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
