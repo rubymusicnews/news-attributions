@@ -152,3 +152,48 @@ Full media attributions for all assets used.
 | Image | Black Vinyl Records On Brown Wooden Table | Yulia Ilina | [Pexels](https://www.pexels.com/photo/black-vinyl-records-on-brown-wooden-table-9107878/) | [pexels](https://www.pexels.com/license) |
 | Image | Closeup Photo Of Lp Records | Miguel Á. Padriñán | [Pexels](https://www.pexels.com/photo/closeup-photo-of-lp-records-3391926/) | [pexels](https://www.pexels.com/license) |
 | Audio | matcha | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/matcha/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Video | Monument Of The Beatles In Liverpool | Paul Daley | [Pexels](https://www.pexels.com/video/monument-of-the-beatles-in-liverpool-4782849/) | [pexels](https://www.pexels.com/license) |
+| Image | Mia McKenna-Bruce 2023 | Simon Dwain Kalavazides | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=175970797) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | People Walking On Street During Night Time | Gela  delrose | [Pexels](https://www.pexels.com/photo/people-walking-on-street-during-night-time-3644043/) | [pexels](https://www.pexels.com/license) |
+| Audio | Sunny Vibes | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/sunny-vibes-7/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Band Playing Punk Music | vitalina | [Pexels](https://www.pexels.com/photo/band-playing-punk-music-3807093/) | [pexels](https://www.pexels.com/license) |
+| Image | The Rolling Stones at Glastonbury 2013 | Gwyrosydd | [Flickr](https://www.flickr.com/photos/57201140@N08/9208348347) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | The Rolling Stones Summerfest in Milwaukee - 2015 | Jim Pietryga | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=44341280) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Rolling Stones - Keith-Mick-Ron (1981) | Michael Conen | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=21561110) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Ron Wood - Rolling Stones | catharine_anderson | [Flickr](https://www.flickr.com/photos/79423199@N00/346922514) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Rolling Stones in Statesboro | thinhippo | [Flickr](https://www.flickr.com/photos/16972178@N00/377872266) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | some girls - the rolling stones 1978 | oddsock | [Flickr](https://www.flickr.com/photos/28648431@N00/62164680) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Gimme Shelter Lady Gaga Featuring Rolling Stones | @martiinlurent | [Flickr](https://www.flickr.com/photos/40362991@N04/8917756063) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Figure Skating Queen YUNA KIM | { QUEEN YUNA } | [Flickr](https://www.flickr.com/photos/52789087@N05/5710802994) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Figure Skating Queen YUNA KIM | { QUEEN YUNA } | [Flickr](https://www.flickr.com/photos/52789087@N05/6784989012) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Freddie Mercury | kentarotakizawa | [Flickr](https://www.flickr.com/photos/37814055@N08/3479284116) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Freddie Mercury performing in New Haven, CT, November 1977 | Carl Lender | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=7798754) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Switzerland-02978 - Freddie Mercury | archer10 (Dennis) | [Flickr](https://www.flickr.com/photos/22490717@N02/22943414813) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Statue of Freddie Mercury in Montreux 2005-07-15 | Bernd Brägelmann | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=247487) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Freddie Mercury (1946-1991) - Montreux - Switzerland | Lomyx | [Flickr](https://www.flickr.com/photos/26387956@N07/2578515072) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Rockfield Studios, Monmouthshire | Jaggery | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=44846209) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Rockfield Studios near Monmouth | Jaggery | [Geograph](https://www.geograph.org.uk/photo/2776376) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Entrance to Rockfield Studios near Monmouth | Jaggery | [Geograph](https://www.geograph.org.uk/photo/2776244) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Rockfield Entrance | John Grayson | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=18338126) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Me in the Coach House Studio control room | kitmasterbloke | [Flickr](https://www.flickr.com/photos/58415659@N00/53719506612) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Audio | lofi girl 2 | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/lofi-girl-2/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Ed Sheeran | Man Alive! | [Flickr](https://www.flickr.com/photos/24365773@N03/5780111887) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/8508787122) | by-sa |
+| Image | Members Of The Band Discussing | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/members-of-the-band-discussing-7802603/) | [pexels](https://www.pexels.com/license) |
+| Image | A Band In A Rehearsal | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/a-band-in-a-rehearsal-7802586/) | [pexels](https://www.pexels.com/license) |
+| Audio | lemonade | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/lemonade/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Colourful Lights On The Stage And Large Audience | Matheus Bertelli | [Pexels](https://www.pexels.com/photo/colourful-lights-on-the-stage-and-large-audience-13872119/) | [pexels](https://www.pexels.com/license) |
+| Image | YUIMETAL from BABYMETAL | kurimetal | [Flickr](https://www.flickr.com/photos/125217783@N02/14382024013) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | An Aerial Shot Of The Griffith Observatory In Los Angeles California Usa | Geminiiphotographs gemini | [Pexels](https://www.pexels.com/photo/an-aerial-shot-of-the-griffith-observatory-in-los-angeles-california-usa-8508710/) | [pexels](https://www.pexels.com/license) |
+| Image | Building Of Astronomical Obser | David Vives | [Pexels](https://www.pexels.com/photo/building-of-astronomical-obser-5402929/) | [pexels](https://www.pexels.com/license) |
+| Image | Griffith Observatory In Los Angeles | RITESH SINGH | [Pexels](https://www.pexels.com/photo/griffith-observatory-in-los-angeles-14948597/) | [pexels](https://www.pexels.com/license) |
+| Image | Mike Shinoda, Linkin Park @ Sonisphere 2009 | kallerna | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=7391675) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Mike Shinoda, Mr. Hahn & Chester Bennington, Linkin Park @ Sonisphere | kallerna | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=7391599) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Linkin Park @ Sonisphere | Javatyk | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=7493765) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Audio | late night streets (chill lofi).mp3 | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/late-night-streets-chill-lofimp3/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Silhouette Crowded People And Stage Lights | Lukas | [Pexels](https://www.pexels.com/photo/silhouette-crowded-people-and-stage-lights-1309599/) | [pexels](https://www.pexels.com/license) |
+| Image | Iphone Smartphone Music App | Brett Jordan | [Pexels](https://www.pexels.com/photo/iphone-smartphone-music-app-5417836/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Holding An Iphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/person-holding-an-iphone-5053985/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Holding An Iphone And Using Shazam | cottonbro studio | [Pexels](https://www.pexels.com/photo/person-holding-an-iphone-and-using-shazam-5053984/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Hearing Music On A Smartphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/person-hearing-music-on-a-smartphone-5077420/) | [pexels](https://www.pexels.com/license) |
+| Audio | lofi piano beat | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/lofi-piano-beat/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
