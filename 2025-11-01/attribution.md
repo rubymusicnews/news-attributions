@@ -112,3 +112,17 @@ Full media attributions for all assets used.
 | Audio | chimes | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/chimes/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
 | Audio | time to wander (travel vlog music) | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/time-to-wander-travel-vlog-music/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
 | Audio | thursday coffee | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/thursday-coffee/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Bruno Mars wears Benjamin Eyewear 'Nicole' to the 2012 Grammy Awards | The Guise Archives | [Flickr](https://www.flickr.com/photos/24281144@N02/6867715201) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | BRUNO MARS LIVE | skyremix | [Flickr](https://www.flickr.com/photos/39440901@N04/5003880640) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Bruno Mars Concert Houston | Brothers Le | [Flickr](https://www.flickr.com/photos/45773247@N02/5206858671) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Bruno Mars | anamakingon | [Flickr](https://www.flickr.com/photos/128992077@N07/15306883904) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Bruno Mars, Las Vegas 2010 | Chrizta T. | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=11770935) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6820749028) | by-sa |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6966884037) | by-sa |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6820758490) | by-sa |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6966914605) | by-sa |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6966915023) | by-sa |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6966882263) | by-sa |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6966873587) | by-sa |
+| Image | Easel On Table | Rene Terp | [Pexels](https://www.pexels.com/photo/easel-on-table-2504964/) | [pexels](https://www.pexels.com/license) |
+| Audio | Feel the Glow | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/feel-the-glow-3/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
