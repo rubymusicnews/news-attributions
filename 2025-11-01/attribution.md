@@ -197,3 +197,4 @@ Full media attributions for all assets used.
 | Image | Person Holding An Iphone And Using Shazam | cottonbro studio | [Pexels](https://www.pexels.com/photo/person-holding-an-iphone-and-using-shazam-5053984/) | [pexels](https://www.pexels.com/license) |
 | Image | Person Hearing Music On A Smartphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/person-hearing-music-on-a-smartphone-5077420/) | [pexels](https://www.pexels.com/license) |
 | Audio | lofi piano beat | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/lofi-piano-beat/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | Sunny Vibes | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/sunny-vibes-5/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
