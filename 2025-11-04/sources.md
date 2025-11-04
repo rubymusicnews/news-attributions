@@ -1,0 +1,49 @@
+# Sources for 2025-11-04 News Episode 
+- [Spotify Sued Over “Billions” of Fraudulent Drake Streams](https://consequence.net/2025/11/spotify-lawsuit-drake-streams/) - Consequence.net
+- [Spotify Accused Of Ignoring ‘Billions’ Of Fraudulent Drake Streams—What We Know About Bot Streams](https://www.forbes.com/sites/conormurray/2025/11/03/spotify-accused-of-ignoring-billions-of-fraudulent-drake-streams-what-we-know-about-bot-streams/) - Forbes
+- [Lawsuit Against Spotify Claims ‘Billions’ of Drake Streams Were ‘Fraudulent’](http://www.rollingstone.com/music/music-features/lawsuit-spotify-drake-streams-1235457737/) - Rolling Stone
+- [Spotify responds to RBX lawsuit over ‘fake’ Drake streams](http://musically.com/2025/11/03/spotify-responds-to-rbx-lawsuit-over-fake-drake-streams/) - Music Ally
+- [Spotify Failed to Act on Bot-Farmed Drake Streams, Class-Action Lawsuit Alleges](https://pitchfork.com/news/spotify-accused-of-permitting-fake-drake-streams-in-new-class-action-lawsuit/) - Pitchfork
+- [Rapper RBX hits Spotify with a lawsuit about… Drake streams?](http://musically.com/2025/11/03/rapper-rbx-hits-spotify-with-a-lawsuit-about-drake-streams/) - Music Ally
+- [Spotify Sued After Allegedly Turning A “Blind Eye” To Billions Of Fake Drake Streams — What To Know](https://www.rap-up.com/article/spotify-drake-fake-streams-lawsuit-rbx) - Rap-Up.com
+- [Spotify accused of ignoring ‘billions’ of fraudulent Drake streams—what we know about bot streams - Forbes Australia](https://www.forbes.com.au/news/billionaires/spotify-accused-of-ignoring-billions-of-fraudulent-drake-streams-what-we-know-about-bot-streams/) - Forbes
+- [Rapper RBX sues Spotify over alleged streaming fraud - NBC News](https://www.nbcnews.com/business/media/rbx-sues-spotify-alleged-streaming-fraud-rcna240844) - Nbcnews
+- [Rapper RBX sues Spotify over alleged streaming fraud - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/rbx-sue-spotify-alleged-streaming-fraud/6413035/) - Nbcnewyork
+- [Real humans don’t stream Drake songs 23 hours a day, rapper suing Spotify says - Ars Technica](https://arstechnica.com/tech-policy/2025/11/real-humans-dont-stream-drake-songs-23-hours-a-day-rapper-suing-spotify-says/) - Arstechnica
+- [Macy Gray and RBX sue Spotify over alleged streaming fraud - NBC News](https://www.nbcnews.com/news/amp/rcna240844) - Nbcnews
+- [Universal Music Makes Big Licensing Deal With Spotify](https://www.musicbusinessworldwide.com/umg-has-a-new-youtube-deal-that-includes-guardrails-around-ai-and-3-other-things-sir-lucian-grainge-said-on-umgs-q3-earnings-call/) - Music Business Worldwide
+- [Universal Music settles Udio lawsuit, strikes deal for licensed AI music platform - Music Business Worldwide](https://www.musicbusinessworldwide.com/universal-music-settles-udio-lawsuit-strikes-deal-for-licensed-ai-music-platform/) - Musicbusinessworldwide
+- [Universal Music Group settles with AI music startup Udio - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-10-30/umg-settles-with-udio) - Latimes
+- [UMG Reveals Udio Settlement And Stability AI Pact In 2025 – Why It Matters Now - Red94](https://www.red94.net/news/78617-umg-reveals-udio-settlement-and-stability-ai-pact-in-2025-why-it-matters-now/) - Red94
+- [Universal Music and AI song generator Udio settle lawsuit and partner on new AI music platform - Greenwich Time](https://www.greenwichtime.com/business/article/universal-music-and-ai-song-generator-udio-settle-21128428.php) - Greenwichtime
+- [Universal Music and AI song generator Udio settle lawsuit and partner on new AI music platform - AP News](https://apnews.com/article/udio-suno-ai-music-universal-b90f9f5f968101ef617e41c5369da02a) - Apnews
+- [Universal partners with Stability to develop AI music creation tools - Robotics & Automation News](https://roboticsandautomationnews.com/2025/10/31/universal-partners-with-stability-to-develop-ai-music-creation-tools/96131/) - Roboticsandautomationnews
+- [Universal Music Group and Stability AI Announce Strategic Alliance to Co-Develop Professional AI Music Creation Tools - Stability AI](https://stability.ai/news/universal-music-group-and-stability-ai-announce-strategic-alliance) - Stability
+- [UMG's Settlement With AI Music Firm May Set Precedent for Copyright Litigation and Licensing Deals, Experts Say - Law.com](https://www.law.com/2025/10/31/umgs-settlement-with-ai-music-firm-may-set-precedent-for-copyright-litigation-and-licensing-deals-experts-say-/) - Law
+- [Swifties swarm German museum to see Ophelia painting](https://www.rte.ie/news/newslens/2025/1103/1541834-taylor-swift-germany/) - RTE
+- [Ready for it? Swifties swarm German museum to see Ophelia painting](https://www.digitaljournal.com/world/ready-for-it-swifties-swarm-german-museum-to-see-ophelia-painting/article) - Digital Journal
+- [K-pop prospects brighten on China market hopes as Seoul and Beijing sign content exchange deal](https://www.cnbc.com/2025/11/03/k-pop-china-content-deal-cmg.html) - CNBC
+- [China, South Korea sign FX swap and other economic agreements, Seoul says - TradingView](https://www.tradingview.com/news/reuters.com,2025:newsml_L1N3WD03C:0-china-south-korea-sign-fx-swap-and-other-economic-agreements-seoul-says/) - Tradingview
+- [Rita Ora Signs With UTA](http://deadline.com/2025/11/rita-ora-signs-uta-1236603996/) - Deadline
+- [What exactly happened to Todd Snider? Singer assaulted in Salt Lake City cancels 2025 tour; are new dates announced?](https://economictimes.indiatimes.com/news/international/us/todd-snider-assault-singer-cancels-2025-tour-following-violent-incident-in-salt-lake-city/articleshow/125071940.cms) - The Times of India
+- [Billboard India to launch in early 2026: ‘Look, this is the India story…’](http://musically.com/2025/11/03/billboard-india-to-launch-in-early-2026-look-this-is-the-india-story/) - Music Ally
+- [Billboard India to Launch in 2026 - Billboard Canada](https://ca.billboard.com/music/music-news/billboard-india-launching-in-2026) - Billboard
+- [Gretchen Wilson on Why ‘The Road’ Has Taylor Sheridan’s ‘Magic Touch’](http://www.rollingstone.com/music/music-features/the-road-cbs-taylor-sheridan-gretchen-wilson-1235458834/) - Rolling Stone
+- [Taylor Sheridan Eyeing Move From Paramount for NBCUniversal: Report - Bleeding Cool News](https://bleedingcool.com/tv/taylor-sheridan-eyeing-move-from-paramount-for-nbcuniversal-report/) - Bleedingcool
+- [‘Yellowstone’ creator Taylor Sheridan jumps from Paramount to NBCUniversal: Report - NewsNation](https://www.newsnationnow.com/entertainment-news/yellowstone-taylor-sheridan-leaves-paramount-nbcuniversal/) - Newsnationnow
+- [Oklou Announces 2026 North American Tour](https://pitchfork.com/news/oklou-announces-2026-north-american-tour/) - Pitchfork
+- [NLE The Great Says His YoungBoy Diss Came to Him in a Vision](http://www.rollingstone.com/music/music-features/nle-the-great-interview-diss-track-1235458168/) - Rolling Stone
+- [Blondie’s Debbie Harry And Chris Stein Look Back At The Band’s Comeback LP ‘No Exit’](https://www.forbes.com/sites/davidchiu/2025/11/03/blondies-debbie-harry-and-chris-stein-look-back-at-the-bands-comeback-lp-no-exit/) - Forbes
+- [AC/DC Announces 2026 Tour Dates](https://dailycaller.com/2025/11/03/rock-band-ac-dc-power-up-concert-tour-american-dates-hall-of-fame/) - The Daily Caller
+- [AC/DC Announces 2026 Leg Of 'Power Up' Tour; 21 New Dates To Kick Off In February - BLABBERMOUTH.NET](https://blabbermouth.net/news/ac-dc-announces-2026-leg-of-power-up-tour-21-new-dates-to-kick-off-in-february) - Blabbermouth
+- [AC/DC Add 2026 Dates to Power Up Tour - Pitchfork](https://pitchfork.com/news/ac-dc-add-2026-dates-to-power-up-tour/) - Pitchfork
+- [AC/DC announces 2026 ‘Power Up Tour,’ MetLife concert. Get tickets - New York Post](https://nypost.com/2025/11/03/ticket-sales/acdc-power-up-tour-2026-where-to-buy-tickets-schedule-dates/) - Nypost
+- [AC/DC coming to Camp Randall, Tickets on sale Nov. 7 - Wisconsin Badgers](https://uwbadgers.com/news/2025/11/3/general-news-ac-dc-coming-to-camp-randall-tickets-on-sale-nov-7) - Uwbadgers
+- [AC/DC Adds More Than 20 Dates to ‘Power Up’ Tour - Men's Journal](https://www.mensjournal.com/entertainment/ac-dc-adds-more-than-20-dates-to-power-up-tour) - Mensjournal
+- [Savatage announce European headline shows and festival dates for 2026](https://www.loudersound.com/bands-artists/live-performances/savatage-announce-european-headline-shows-and-festival-dates-for-2026) - Louder
+- [Kehlani Earns Their First Top 10 On The Billboard Hot 100 Chart With "Folded" — See The Numbers](https://www.rap-up.com/article/kehlani-folded-top-10-billboard-100-chart) - Rap-Up.com
+- [Emily King: Tiny Desk Concert](https://www.npr.org/2025/11/03/g-s1-81569/emily-king-tiny-desk-concert) - NPR
+- [Emily King: Tiny Desk Concert - Iowa Public Radio](https://www.iowapublicradio.org/2025-11-03/emily-king-tiny-desk-concert) - Iowapublicradio
+- ["My time in the studio was especially meaningful": i-dle's Miyeon speaks on 'MY, Lover' [Interview]](https://earmilk.com/2025/11/03/my-time-in-the-studio-was-especially-meaningful-i-dles-miyeon-speaks-on-my-lover-interview/) - Earmilk.com
+- [WJSN’s Dayoung showcases honest charm in latest Allure Korea pictorial and interview - allkpop](https://www.allkpop.com/article/2025/10/wjsns-dayoung-showcases-honest-charm-in-latest-allure-korea-pictorial-and-interview) - Allkpop
+- [Yves On Her Solo Career, Leaving LOONA And New Music - Forbes](https://www.forbes.com/sites/joanmacdonald/2025/10/29/yves-on-her-solo-career-leaving-loona-and-new-music/) - Forbes
