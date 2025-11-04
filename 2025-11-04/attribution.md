@@ -126,3 +126,14 @@ Full media attributions for all assets used.
 | Audio | coffee and cigarettes | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/coffee-and-cigarettes/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
 | Audio | feelin good | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/feelin-good/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
 | Audio | wave of you | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/wave-of-you/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Spotify logo 3 | Gerçois | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=127458326) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/90122870@N03/27346795523) | by-nd |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/43125242@N08/3966744828) | by |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/90122870@N03/27858496342) | by-nd |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/90122870@N03/27347807614) | by-nd |
+| Image | Spotify logo 3 | Gerçois | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=127458326) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Spotify logo 2 | Pigeon43 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=115425473) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | A Two Men In The Recording Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-two-men-in-the-recording-studio-7086730/) | [pexels](https://www.pexels.com/license) |
+| Image | File:Universalmusicpublishinggroup.jpg | Coolcaesar | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=19928283) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | File:Umgheadquarters.jpg | Coolcaesar | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=19928284) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Audio | lounge pony | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/lounge-pony/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
