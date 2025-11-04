@@ -246,3 +246,12 @@ Full media attributions for all assets used.
 | Image | (G)-idle's Miyeon 조미연 at the The 3rd Blue Dragon Series Awards 03 | 티비텐 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=150558278) | [by](https://creativecommons.org/licenses/by/3.0/) |
 | Image | Man In A Shirt Wearing Black Headphones | Brett Sayles | [Pexels](https://www.pexels.com/photo/man-in-a-shirt-wearing-black-headphones-4001264/) | [pexels](https://www.pexels.com/license) |
 | Audio | Under the Neon Sky | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/under-the-neon-sky-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | EmilyKingAtDougFir2016 | Rantankamus | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=52167214) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Ruby Ibarra 2025 July 19 Tiny Desk Concert | CarCai | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=170420210) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | June Millington 2025 July 19 Tiny Desk Concert | CarCai | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=170420703) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Parker Eidle recording for the NPR Tiny Desk Concerts Contest, on Bird Island, NC, 2020 | Pako0490 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=121333747) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | People Sitting On The Stage | cottonbro studio | [Pexels](https://www.pexels.com/photo/people-sitting-on-the-stage-7095710/) | [pexels](https://www.pexels.com/license) |
+| Image | People Playing Musical Instruments | cottonbro studio | [Pexels](https://www.pexels.com/photo/people-playing-musical-instruments-7095822/) | [pexels](https://www.pexels.com/license) |
+| Image | Man With Arm Raised On Concert | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/man-with-arm-raised-on-concert-16844747/) | [pexels](https://www.pexels.com/license) |
+| Image | Man Raising His Hands While In A Concert | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/man-raising-his-hands-while-in-a-concert-11140383/) | [pexels](https://www.pexels.com/license) |
+| Image | Man On A Concert | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/man-on-a-concert-17120480/) | [pexels](https://www.pexels.com/license) |
