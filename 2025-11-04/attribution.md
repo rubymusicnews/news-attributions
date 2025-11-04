@@ -137,3 +137,112 @@ Full media attributions for all assets used.
 | Image | File:Universalmusicpublishinggroup.jpg | Coolcaesar | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=19928283) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
 | Image | File:Umgheadquarters.jpg | Coolcaesar | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=19928284) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
 | Audio | lounge pony | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/lounge-pony/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Multiethnic Women Talking In Broadcasting Studio | George Milton | [Pexels](https://www.pexels.com/photo/multiethnic-women-talking-in-broadcasting-studio-6953672/) | [pexels](https://www.pexels.com/license) |
+| Image | Smartphone On Tripod Recording Vlog With Young Multiethnic Ladies | George Milton | [Pexels](https://www.pexels.com/photo/smartphone-on-tripod-recording-vlog-with-young-multiethnic-ladies-6953860/) | [pexels](https://www.pexels.com/license) |
+| Image | Geisha Azul | Yuriko Salazar Luna | [Pexels](https://www.pexels.com/photo/geisha-azul-27759548/) | [pexels](https://www.pexels.com/license) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6820749028) | by-sa |
+| Image | Selective Focus Photo Of Group Of People Taking Picture Of Mona Lisa Painting | Jill Evans | [Pexels](https://www.pexels.com/photo/selective-focus-photo-of-group-of-people-taking-picture-of-mona-lisa-painting-2043385/) | [pexels](https://www.pexels.com/license) |
+| Image | Martha The Mayoress Destruction Of Novgorod By Ivan Iii Painting In Museum | ArtHouse Studio | [Pexels](https://www.pexels.com/photo/martha-the-mayoress-destruction-of-novgorod-by-ivan-iii-painting-in-museum-4588840/) | [pexels](https://www.pexels.com/license) |
+| Image | Art Exhibit Setup In Shinjuku Tokyo | Gu Ko | [Pexels](https://www.pexels.com/photo/art-exhibit-setup-in-shinjuku-tokyo-32151370/) | [pexels](https://www.pexels.com/license) |
+| Audio | Sunny Days | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/sunny-days-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Yves LOONA 220625 | SBS Radio 에라오 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=121732798) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Yves signature | Loona (Yves) | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=122952681) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Woman Standing On Stage | Tima Miroshnichenko | [Pexels](https://www.pexels.com/photo/woman-standing-on-stage-5135103/) | [pexels](https://www.pexels.com/license) |
+| Image | Lit Building Lights | Pixabay | [Pexels](https://www.pexels.com/photo/lit-building-lights-414675/) | [pexels](https://www.pexels.com/license) |
+| Video | Vibrant Auckland Waterfront With Cargo Cranes | Gaurav Kumar | [Pexels](https://www.pexels.com/video/vibrant-auckland-waterfront-with-cargo-cranes-30833640/) | [pexels](https://www.pexels.com/license) |
+| Audio | thursday coffee | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/thursday-coffee/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | RITA ORA | FitoreGashi | [Flickr](https://www.flickr.com/photos/79754467@N04/7964414396) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | A Person Signing A Contract | Kampus Production | [Pexels](https://www.pexels.com/photo/a-person-signing-a-contract-8815849/) | [pexels](https://www.pexels.com/license) |
+| Image | Man In Black Suit Sitting Signing A Contract | RDNE Stock project | [Pexels](https://www.pexels.com/photo/man-in-black-suit-sitting-signing-a-contract-5922534/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman In White Blazer Sitting While Signing A Contract | RDNE Stock project | [Pexels](https://www.pexels.com/photo/a-woman-in-white-blazer-sitting-while-signing-a-contract-7490729/) | [pexels](https://www.pexels.com/license) |
+| Image | Man Sitting At A Table And Signing A Document | Mikhail Nilov | [Pexels](https://www.pexels.com/photo/man-sitting-at-a-table-and-signing-a-document-8729721/) | [pexels](https://www.pexels.com/license) |
+| Image | A Person Signing A Document | Alena Darmel | [Pexels](https://www.pexels.com/photo/a-person-signing-a-document-7641994/) | [pexels](https://www.pexels.com/license) |
+| Image | A Person Signing A Document | Mikhail Nilov | [Pexels](https://www.pexels.com/photo/a-person-signing-a-document-8730975/) | [pexels](https://www.pexels.com/license) |
+| Audio | feeling happy today [upbeat happy beat] | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/feeling-happy-today-upbeat-happy-beat-3/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | 060 Todd Snider | Jester Jay Music | [Flickr](https://www.flickr.com/photos/39075416@N03/6970710564) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Video | Loyal Fans Supporting Their Team In A Game | Pressmaster | [Pexels](https://www.pexels.com/video/loyal-fans-supporting-their-team-in-a-game-3195653/) | [pexels](https://www.pexels.com/license) |
+| Image | Yelling Formal Man Watching News On Laptop | Andrea Piacquadio | [Pexels](https://www.pexels.com/photo/yelling-formal-man-watching-news-on-laptop-3760778/) | [pexels](https://www.pexels.com/license) |
+| Video | Man And Woman Surprised Upon Looking At Phone | Mikhail Nilov | [Pexels](https://www.pexels.com/video/man-and-woman-surprised-upon-looking-at-phone-6963495/) | [pexels](https://www.pexels.com/license) |
+| Audio | morning stroll | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/morning-stroll/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | BTS on the Billboard Music Awards red carpet, 1 May 2019 | Dispatch | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=80798808) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Cityscape At Night | Andres Idda Bianchi | [Pexels](https://www.pexels.com/photo/cityscape-at-night-13284182/) | [pexels](https://www.pexels.com/license) |
+| Image | Man In A Shirt Wearing Black Headphones | Brett Sayles | [Pexels](https://www.pexels.com/photo/man-in-a-shirt-wearing-black-headphones-4001264/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman Recording A Song In A Music Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-woman-recording-a-song-in-a-music-studio-7086736/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman Recording A Song | cottonbro studio | [Pexels](https://www.pexels.com/photo/woman-recording-a-song-7088041/) | [pexels](https://www.pexels.com/license) |
+| Audio | Sunny Vibes | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/sunny-vibes-2/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Grayscale Photo Of Woman Standing Near Painting | Như Vân ( Wind’s Buddha ) | [Pexels](https://www.pexels.com/photo/grayscale-photo-of-woman-standing-near-painting-2350303/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman Looking At A Horse Sculpture In A Museum | MiracleKilly | [Pexels](https://www.pexels.com/photo/woman-looking-at-a-horse-sculpture-in-a-museum-11775858/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman Standing Near Paintings | Darya Sannikova | [Pexels](https://www.pexels.com/photo/woman-standing-near-paintings-1671014/) | [pexels](https://www.pexels.com/license) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/58820009@N05/6820749028) | by-sa |
+| Image | Group Of People Gathering In Concert | Wendy Wei | [Pexels](https://www.pexels.com/photo/group-of-people-gathering-in-concert-1540406/) | [pexels](https://www.pexels.com/license) |
+| Image | Ветреная река / Wind River (Taylor Sheridan, 2017). | deepskyobject | [Flickr](https://www.flickr.com/photos/80806509@N04/36301714222) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Audio | see you again | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/see-you-again-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | AC-DC If you want blood | oddsock | [Flickr](https://www.flickr.com/photos/28648431@N00/55104375) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Manu Chao at 2007 Coachella Valley Music and Arts Festival | thetripwirenyc | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=2281332) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC-DC If you want blood | oddsock | [Flickr](https://www.flickr.com/photos/28648431@N00/55104375) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Savatage (PK) – Wacken Open Air 2015 05 | Frank Schwichtenberg | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=47334456) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | AC-DC If you want blood | oddsock | [Flickr](https://www.flickr.com/photos/28648431@N00/55104375) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC: Waiting for the concert | djidji.perroto | [Flickr](https://www.flickr.com/photos/72889141@N00/4604275489) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | AC/DC Concert Crowd | d_neeses_pix | [Flickr](https://www.flickr.com/photos/18542660@N00/4378890728) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC, Barcelona, June 7 2009 | Laureà | [Flickr](https://www.flickr.com/photos/54652842@N00/3606877873) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Brian Johnson of AC/DC contemplates a pint | adamnsinger | [Flickr](https://www.flickr.com/photos/77437968@N00/9472766889) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Closeup Of A Man Holding Tickets On A Ferry | Fatih Güney | [Pexels](https://www.pexels.com/photo/closeup-of-a-man-holding-tickets-on-a-ferry-18913040/) | [pexels](https://www.pexels.com/license) |
+| Image | Savatage (PK) – Wacken Open Air 2015 05 | Frank Schwichtenberg | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=47334456) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Savatage (PK) – Wacken Open Air 2015 01 | Frank Schwichtenberg | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=47334162) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Savatage (PK) – Wacken Open Air 2015 05 | Frank Schwichtenberg | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=47334456) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Audio | midnight drifter | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/midnight-drifter/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Man And Woman Kissing Inside Room | cottonbro studio | [Pexels](https://www.pexels.com/photo/man-and-woman-kissing-inside-room-6896334/) | [pexels](https://www.pexels.com/license) |
+| Image | NLE Choppa July 2022 | HOTSPOTATL | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=129186365) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Young Man With A Microphone Rapping | Matheus Rodrigues | [Pexels](https://www.pexels.com/photo/young-man-with-a-microphone-rapping-16739596/) | [pexels](https://www.pexels.com/license) |
+| Image | Rolling Stone Music News, Politics, Interviews, Pictures and Reviews | Jay Kogami | [Flickr](https://www.flickr.com/photos/8724084@N05/11264873223) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Audio | fun time | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/fun-time/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Urban Street Billboard With Graffiti In Tbilisi | Kerem Kaplan | [Pexels](https://www.pexels.com/photo/urban-street-billboard-with-graffiti-in-tbilisi-33124631/) | [pexels](https://www.pexels.com/license) |
+| Image | Young Man With A Microphone Rapping | Matheus Rodrigues | [Pexels](https://www.pexels.com/photo/young-man-with-a-microphone-rapping-16739596/) | [pexels](https://www.pexels.com/license) |
+| Image | Blondie (Debbie Harry) One | Jean-Luc | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=6601342) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Ocean Rooms Night Club - Rapture | Dominic's pics | [Flickr](https://www.flickr.com/photos/64097751@N00/1136722374) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Waiting at the St. Mark's / Hey Blondie! | Tony Fischer Photography | [Flickr](https://www.flickr.com/photos/22714323@N06/4045473896) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Debbie Harry Tribeca portrait 2008 by David Shankbone | david_shankbone | [Flickr](https://www.flickr.com/photos/27865228@N06/3621534496) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Dynamic Black And White Outdoor Rock Concert | Nascimento Jr. | [Pexels](https://www.pexels.com/photo/dynamic-black-and-white-outdoor-rock-concert-29927337/) | [pexels](https://www.pexels.com/license) |
+| Audio | late night cocktails | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/late-night-cocktails/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Blondie (Debbie Harry) One | Jean-Luc | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=6601342) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Kehlani | thecomeupshow | [Flickr](https://www.flickr.com/photos/22257051@N07/28225065303) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Close Up Photo Of A Trophy | RDNE Stock project | [Pexels](https://www.pexels.com/photo/close-up-photo-of-a-trophy-7005040/) | [pexels](https://www.pexels.com/license) |
+| Video | Close Up Shot Of A Turntable With Vinyl Record | Matthias Groeneveld | [Pexels](https://www.pexels.com/video/close-up-shot-of-a-turntable-with-vinyl-record-7135106/) | [pexels](https://www.pexels.com/license) |
+| Audio | Sunlight in the Breeze | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/sunlight-in-the-breeze/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | AC/DC | wonker | [Flickr](https://www.flickr.com/photos/94056408@N00/3443243112) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC paris | Yannick Croissant | [Flickr](https://www.flickr.com/photos/66988947@N00/3315339450) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC | wonker | [Flickr](https://www.flickr.com/photos/94056408@N00/3443263712) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC-DC If you want blood | oddsock | [Flickr](https://www.flickr.com/photos/28648431@N00/55104375) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC | Igor Krivokon | [Flickr](https://www.flickr.com/photos/21797654@N00/3344601289) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC | wonker | [Flickr](https://www.flickr.com/photos/94056408@N00/3443248800) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC | wonker | [Flickr](https://www.flickr.com/photos/94056408@N00/3442463285) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC paris | Yannick Croissant | [Flickr](https://www.flickr.com/photos/66988947@N00/3314505745) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC: Waiting for the concert | djidji.perroto | [Flickr](https://www.flickr.com/photos/72889141@N00/4604275489) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | AC/DC Concert Crowd | d_neeses_pix | [Flickr](https://www.flickr.com/photos/18542660@N00/4378890728) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC | New York + Philly Live! | [Flickr](https://www.flickr.com/photos/43359694@N05/4034264890) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | AC/DC | wonker | [Flickr](https://www.flickr.com/photos/94056408@N00/3442455355) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC | Igor Krivokon | [Flickr](https://www.flickr.com/photos/21797654@N00/3459773019) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | AC/DC, Barcelona, June 7 2009 | Laureà | [Flickr](https://www.flickr.com/photos/54652842@N00/3606877873) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | FR5189 being filmed for Quest TV , Cars that ROCK, Brian Johnson of AC/DC is the presenter and in the passenger seat. | adamnsinger | [Flickr](https://www.flickr.com/photos/77437968@N00/9487790917) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | AC/DC Black Ice Tour 2009 Buenos Aires 4 de Diciembre | Edvill | [Flickr](https://www.flickr.com/photos/84766178@N00/4238734314) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Brian Johnson of AC/DC contemplates a pint | adamnsinger | [Flickr](https://www.flickr.com/photos/77437968@N00/9472766889) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Brian Johnson of AC/DC having a 'chuff' in a 'Blower' | adamnsinger | [Flickr](https://www.flickr.com/photos/77437968@N00/9490583892) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | AC/DC | New York + Philly Live! | [Flickr](https://www.flickr.com/photos/43359694@N05/4034264910) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Donnington Park, Download Festival - AC/DC Crowds | lukewebber | [Flickr](https://www.flickr.com/photos/32041268@N07/4724062661) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | EmilyKingAtDougFir2016 | Rantankamus | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=52167214) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Dwele Concert | Steven Bornholtz | [Flickr](https://www.flickr.com/photos/40398000@N00/1185808854) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Ruby Ibarra 2025 July 19 Tiny Desk Concert | CarCai | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=170420210) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | June Millington 2025 July 19 Tiny Desk Concert | CarCai | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=170420703) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Parker Eidle recording for the NPR Tiny Desk Concerts Contest, on Bird Island, NC, 2020 | Pako0490 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=121333747) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | People Sitting On The Stage | cottonbro studio | [Pexels](https://www.pexels.com/photo/people-sitting-on-the-stage-7095710/) | [pexels](https://www.pexels.com/license) |
+| Image | People Playing Musical Instruments | cottonbro studio | [Pexels](https://www.pexels.com/photo/people-playing-musical-instruments-7095822/) | [pexels](https://www.pexels.com/license) |
+| Audio | corporate days.mp3 | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/corporate-daysmp3/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | Sunny Vibes | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/sunny-vibes-5/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Kehlani | thecomeupshow | [Flickr](https://www.flickr.com/photos/22257051@N07/28225065303) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Man Standing In Front Of A Microphone | Ficky | [Pexels](https://www.pexels.com/photo/man-standing-in-front-of-a-microphone-2364381/) | [pexels](https://www.pexels.com/license) |
+| Image | Bruno Mars wears Benjamin Eyewear 'Nicole' to the 2012 Grammy Awards | The Guise Archives | [Flickr](https://www.flickr.com/photos/24281144@N02/6867715201) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Grammy Award Winning Singer, Melissa Etheridge | Rafael Amado Deras | [Flickr](https://www.flickr.com/photos/28050552@N03/3332738782) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | (G)-idle's Miyeon 조미연 at the The 3rd Blue Dragon Series Awards 10 | 티비텐 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=150558292) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | (G)-idle's Miyeon 조미연 at the The 3rd Blue Dragon Series Awards 03 | 티비텐 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=150558278) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Man In A Shirt Wearing Black Headphones | Brett Sayles | [Pexels](https://www.pexels.com/photo/man-in-a-shirt-wearing-black-headphones-4001264/) | [pexels](https://www.pexels.com/license) |
+| Audio | Under the Neon Sky | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/under-the-neon-sky-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
