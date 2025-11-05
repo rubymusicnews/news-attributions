@@ -1,0 +1,52 @@
+# Sources for 2025-11-05 News Episode 
+- [One Of David Bowie’s Most Unusual Duets Becomes A Surprise Top 10 Hit](https://www.forbes.com/sites/hughmcintyre/2025/11/04/one-of-david-bowies-most-unusual-duets-becomes-a-surprise-top-10-hit/) - Forbes
+- [Bon Jovi Barely Misses No. 1 With A New Album — Who Beats The Band?](https://www.forbes.com/sites/hughmcintyre/2025/11/04/bon-jovi-barely-misses-no-1-with-a-new-album---who-beats-the-band/) - Forbes
+- [Bon Jovi extends 2026 ‘Forever Tour,’ adds fifth MSG show. Get tickets - New York Post](https://nypost.com/2025/10/27/ticket-sales/bon-jovi-2026-forever-tour-extended-where-to-buy-tickets-new-dates/) - Nypost
+- [BON JOVI Announces 'Forever Tour' And Return To Live Shows In 2026 - BLABBERMOUTH.NET](https://blabbermouth.net/news/bon-jovi-announces-forever-tour-and-return-to-live-shows-in-2026) - Blabbermouth
+- [Bon Jovi just added dates to their New York residency — Here's how to see the band live in Madison Square Garden - businessinsider.com](https://www.businessinsider.com/guides/tickets/how-to-get-bon-jovi-tickets-concert-tour) - Businessinsider
+- [Bon Jovi Announces Return to the Stage for 2026 Tour Dates - Ultimate Classic Rock](https://ultimateclassicrock.com/bon-jovi-2026-tour/) - Ultimateclassicrock
+- [Bon Jovi Announces Return to the Stage for 2026 Tour Dates - Loudwire](https://loudwire.com/bon-jovi-2026-tour-dates/) - Loudwire
+- [Lawsuit Claims Drake’s Getting ‘Billions of Fraudulent Streams’ from Spotify](http://www.vulture.com/article/spotify-lawsuit-drake-fake-streams.html) - Vulture
+- [Lawsuit: Spotify Turned 'Blind Eye' to Billions of Fake Streams Benefiting Drake](https://www.breitbart.com/tech/2025/11/04/lawsuit-spotify-turned-blind-eye-to-billions-of-fake-streams-benefiting-drake/) - Breitbart News
+- [New lawsuit alleges Spotify allows streaming fraud](https://japantoday.com/category/tech/new-lawsuit-alleges-spotify-allows-streaming-fraud) - Japan Today
+- [Drake’s Spotify Success Boosted By Bots, New Lawsuit Claims](http://hiphopdx.com/news/drake-lawsuit-spotify-bots-rbx/) - HipHopDX
+- [Rapper’s Lawsuit Accuses Spotify of Letting Bots Inflate Drake’s Streaming Numbers - FindLaw](https://www.findlaw.com/legalblogs/legally-weird/rappers-lawsuit-accuses-spotify-of-letting-bots-inflate-drakes-streaming-numbers/) - Findlaw
+- [Spotify accused of ignoring ‘billions’ of fraudulent Drake streams—what we know about bot streams - Forbes Australia](https://www.forbes.com.au/news/billionaires/spotify-accused-of-ignoring-billions-of-fraudulent-drake-streams-what-we-know-about-bot-streams/) - Forbes
+- [Spotify Failed to Act on Bot-Farmed Drake Streams, Class-Action Lawsuit Alleges - Pitchfork](https://pitchfork.com/news/spotify-accused-of-permitting-fake-drake-streams-in-new-class-action-lawsuit/) - Pitchfork
+- [Rapper RBX sues Spotify over alleged streaming fraud - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/rbx-sue-spotify-alleged-streaming-fraud/6413035/) - Nbcnewyork
+- [Real humans don’t stream Drake songs 23 hours a day, rapper suing Spotify says - Ars Technica](https://arstechnica.com/tech-policy/2025/11/real-humans-dont-stream-drake-songs-23-hours-a-day-rapper-suing-spotify-says/) - Arstechnica
+- [Rapper RBX sues Spotify over alleged streaming fraud - NBC News](https://www.nbcnews.com/business/media/rbx-sues-spotify-alleged-streaming-fraud-rcna240844) - Nbcnews
+- [Macy Gray and RBX sue Spotify over alleged streaming fraud - NBC News](https://www.nbcnews.com/news/amp/rcna240844) - Nbcnews
+- [Is Rosalía Collaborating With Latin Mafia Next?](http://www.rollingstone.com/music/music-latin/rosalia-latin-mafia-collab-1235459076/) - Rolling Stone
+- [Marc Anthony Reveals Advice He Gave Bad Bunny Ahead of Super Bowl Performance](http://www.rollingstone.com/music/music-latin/marc-anthony-bad-bunny-super-bowl-halftime-show-1235459436/) - Rolling Stone
+- [Shakira supports a Bad Bunny Super Bowl halftime show: ‘It’s about time!’ - Los Angeles Times](https://www.latimes.com/delos/story/2025-10-21/shakira-bad-bunny-puerto-rico-super-bowl-halftime-show-trump-pushback-petition-removal) - Latimes
+- [Super Bowl 2026: Bad Bunny stays as halftime headliner despite Trump criticism - Red94](https://www.red94.net/news/super-bowl-2026-bad-bunny-stays-as-halftime-headliner-despite-trump-criticism/) - Red94
+- [Super Bowl 2026 halftime show sparks outrage as NFL stands firm on Bad Bunny - Red94](https://www.red94.net/news/52231-super-bowl-2026-halftime-show-sparks-outrage-as-nfl-stands-firm-on-bad-bunny/) - Red94
+- [Super bowl halftime show 2026 sparks outrage as NFL stands firm on Bad Bunny - Red94](https://www.red94.net/news/92271-super-bowl-halftime-show-2026-sparks-outrage-as-nfl-stands-firm-on-bad-bunny/) - Red94
+- [Shakira 'Can't Wait' to Watch Bad Bunny Perform at Super Bowl - TMZ](https://www.tmz.com/2025/10/21/shakira-reacts-to-bad-bunny-performing-at-super-bowl/) - Tmz
+- [Bad Bunny — and now Sting — at the 2026 Super Bowl: A tale of two audiences - The Duke Chronicle](https://www.dukechronicle.com/article/bad-bunny-and-now-sting-at-the-2026-super-bowl-a-tale-of-two-audiences-20251104) - Dukechronicle
+- [NFL CMO defends Bad Bunny Super Bowl halftime show and explains the league’s inclusive marketing - Ad Age](https://adage.com/events-awards/ana/aa-nfl-cmo-bad-bunny-inclusive-marketing/) - Adage
+- [Super Bowl halftime show 2026: Bad Bunny confirmed, won’t be replaced despite backlash - Red94](https://www.red94.net/news/super-bowl-halftime-show-2026-bad-bunny-confirmed-wont-be-replaced-despite-backlash/) - Red94
+- [Bad Bunny's Super Bowl halftime show is not being reconsidered, NFL commissioner says - ABC News - Breaking News, Latest News and Videos](https://abcnews.go.com/Entertainment/wireStory/bad-bunnys-super-bowl-halftime-show-reconsidered-nfl-126764247) - Go
+- [Sorry’s New Album Is One of 2025’s Strangest Trips](http://www.rollingstone.com/music/music-features/sorry-uk-band-new-album-interview-1235455671/) - Rolling Stone
+- [AC/DC Power Up Tour 2026: Dates, Lineup, and What to Expect](https://screenrant.com/acdc-power-up-tour-2026-dates-tickets-lineup/) - Screen Rant
+- [AC/DC Announces 2026 Leg Of 'Power Up' Tour; 21 New Dates To Kick Off In February - BLABBERMOUTH.NET](https://blabbermouth.net/news/ac-dc-announces-2026-leg-of-power-up-tour-21-new-dates-to-kick-off-in-february) - Blabbermouth
+- [AC/DC Add 2026 Dates to Power Up Tour - Pitchfork](https://pitchfork.com/news/ac-dc-add-2026-dates-to-power-up-tour/) - Pitchfork
+- [AC/DC announces 2026 ‘Power Up Tour,’ MetLife concert. Get tickets - New York Post](https://nypost.com/2025/11/03/ticket-sales/acdc-power-up-tour-2026-where-to-buy-tickets-schedule-dates/) - Nypost
+- [AC/DC Adds More Than 20 Dates to ‘Power Up’ Tour - Men's Journal](https://www.mensjournal.com/entertainment/ac-dc-adds-more-than-20-dates-to-power-up-tour) - Mensjournal
+- [AC/DC coming to Camp Randall, Tickets on sale Nov. 7 - Wisconsin Badgers](https://uwbadgers.com/news/2025/11/3/general-news-ac-dc-coming-to-camp-randall-tickets-on-sale-nov-7) - Uwbadgers
+- [Wolfgang Van Halen Is Done Being a ‘Punching Bag’: ‘I’m Not a Kid’](http://www.rollingstone.com/music/music-features/wolfgang-van-halen-interview-podcast-new-album-alex-1235459495/) - Rolling Stone
+- [Wolfgang Van Halen calls ‘nepo baby’ term ‘a bit unfair’ in candid new interview - New York Post](https://nypost.com/2025/11/04/entertainment/wolfgang-van-halen-calls-nepo-baby-term-a-bit-unfair-in-candid-new-interview/) - Nypost
+- [Halsey Shuts Down Audience Member for Telling Her to ‘Stop Talking and Play’](http://www.rollingstone.com/music/music-news/halsey-audience-member-shut-down-boston-show-1235459103/) - Rolling Stone
+- [Halsey thanks Mass General doctors for ER treatment after Boston concert Sunday - The Boston Globe](https://www.bostonglobe.com/2025/11/04/lifestyle/halsey-thanks-mass-general-doctors/) - Bostonglobe
+- [“This Is Fucking Crazy” Sparks Fan Debate Over Halsey’s 10-Year Tour In 2025 - Red94](https://www.red94.net/news/37746-this-is-fucking-crazy-sparks-fan-debate-over-halsey-s-10-year-tour-in-2025/) - Red94
+- [Liam Gallagher calls out "massive c**t" who launched flare at Oasis’ Melbourne show - NME](https://www.nme.com/news/music/liam-gallagher-hits-out-at-seriously-fucked-up-person-who-set-off-flare-at-oasis-melbourne-show-3904375) - Nme
+- [Yesterday’s Gone, but Fleetwood Mac’s Rumours Is Forever](https://www.vanityfair.com/culture/story/yesterdays-gone-but-fleetwood-macs-rumours-is-forever) - Vanity Fair
+- [‘Stereophonic’ captures the chaos of Fleetwood Mac's 'Rumours' - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/broadwaysf-stereophonic-curran-review-21073947.php) - Sfchronicle
+- [Rita Ora Channels Her Inner Barbie Girl in Hot Pink Outfit for the 2025 Music Industry Trust Awards](https://www.justjared.com/2025/11/04/rita-ora-channels-her-inner-barbie-girl-in-hot-pink-outfit-for-the-2025-music-industry-trust-awards/) - Just Jared
+- [Rita Ora gives major Barbie vibes in head-to-toe pink for the 2025 Music Industry Trusts Awards](https://pagesix.com/2025/11/03/style/rita-ora-gives-major-barbie-vibes-in-head-to-toe-pink-for-the-2025-music-industry-trusts-awards/) - Page Six
+- [15 Years Capturing Lightning in a Bottle](http://www.vulture.com/article/unseen-david-bowie-photos-from-new-book-collaborations.html) - Vulture
+- [Stone Rolla Media's Vision: The Boutique Publisher Reclaiming Artistry and Mentorship in a Fast-Moving Music Industry](https://www.ibtimes.com/stone-rolla-medias-vision-boutique-publisher-reclaiming-artistry-mentorship-fast-moving-music-3789510) - International Business Times
+- [“I’d love to play the battlefields where the song actually happened”: Sabaton’s singer wants to do a gig on the beaches of Normandy, on the anniversary of D-Day](https://www.loudersound.com/news/sabaton-singer-wants-to-play-gig-normandy-beaches-d-day-2025) - Louder
+- [“The edges were bound to fray – we were bound to take from each other. David Gilmour openly accused Roger Waters of copying me”: The influential folk singer-songwriter who never quite gained stardom, but gained massive respect instead](https://www.loudersound.com/bands-artists/roy-harper-pink-floyd-led-zeppelin-kate-bush) - Louder
+- [Gunna Gets Taken Hostage In Steamy “wgft” Music Video Featuring Burna Boy — Watch It Here](https://www.rap-up.com/article/gunna-burna-boy-wgft-music-video) - Rap-Up.com
