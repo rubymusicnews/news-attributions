@@ -1,0 +1,47 @@
+# Sources for 2025-11-06 News Episode 
+- [Class Action Lawsuit Accuses Spotify of Engaging in ‘Payola’ in Discovery Mode](http://www.rollingstone.com/music/music-news/class-action-lawsuit-spotify-payola-discovery-mode-1235460448/) - Rolling Stone
+- [Radiohead Remind the World Why We Need Them at Transcendent Reunion Show](http://www.rollingstone.com/music/music-live-reviews/radiohead-2025-tour-opener-review-madrid-1235432512/) - Rolling Stone
+- [Here’s what Radiohead played as they kicked off their 2025 European comeback tour - NME](https://www.nme.com/news/music/radiohead-2025-european-tour-madrid-night-one-setlist-footage-photos-3905517) - Nme
+- [Radiohead reveal they'll be playing in the round on UK and European tour and talk setlists: "We have too many songs" - NME](https://www.nme.com/news/music/radiohead-reveal-theyll-be-playing-in-the-round-on-uk-and-european-tour-and-talk-setlists-we-have-too-many-songs-3902277) - Nme
+- [Acclaimed rock band plays first concert in 7 years, includes deep cut - Syracuse.com](https://www.syracuse.com/entertainment/2025/11/acclaimed-rock-band-plays-first-concert-in-7-years-includes-deep-cut.html) - Syracuse
+- [Radiohead reveal whether fans can expect new material after upcoming tour dates - NME](https://www.nme.com/news/music/radiohead-reveal-whether-fans-can-expect-new-material-after-upcoming-tour-dates-3902292) - Nme
+- [Radiohead: ‘The wheels had come off a bit. We had to stop’ - The Times](https://www.thetimes.com/culture/music/article/radiohead-tour-2025-interview-israel-fn0bmdzl8) - Thetimes
+- [Thom Yorke on Radiohead not playing live for seven years: “I guess the wheels came off a bit, so we had to stop” - NME](https://www.nme.com/news/music/thom-yorke-on-radiohead-not-playing-live-for-seven-years-i-guess-the-wheels-came-off-a-bit-so-we-had-to-stop-3902261) - Nme
+- [How to instantly claim your Apple Music for Artists account with CD Baby](https://diymusician.cdbaby.com/releasing-music/claim-your-apple-music-for-artists-account/) - Cdbaby.com
+- [Spotify Hit With Class Action Lawsuit Alleging Discovery Mode Is A ‘Pay-For-Play Scheme’](https://www.forbes.com/sites/conormurray/2025/11/05/spotify-hit-with-class-action-lawsuit-alleging-discovery-mode-is-a-pay-for-play-scheme/) - Forbes
+- [Creator Behind Billboard-Charting AI ‘Artist’ Xania Monet Defends Her Music Against Backlash From Kehlani And More](https://www.forbes.com/sites/conormurray/2025/11/05/creator-behind-billboard-charting-ai-artist-xania-monet-defends-her-music-against-backlash-from-kehlani-and-more/) - Forbes
+- [“How are people falling for this?”: Internet debates AI singer Xania Monet making the Billboard chart](https://www.dailydot.com/news/xania-monet-ai-artist-billboard-chart/) - The Daily Dot
+- [AI music is charting weekly as Billboard claims trend is “quickly accelerating” - Dexerto](https://www.dexerto.com/entertainment/ai-music-is-charting-weekly-as-billboard-claims-trend-is-quickly-accelerating-3278506/) - Dexerto
+- [AI artist makes debut on Billboard radio chat - NPR](https://www.npr.org/2025/11/02/nx-s1-5594790/ai-artist-makes-debut-on-billboard-radio-chat) - Npr
+- [Meet the woman behind chart-topping AI artist Xania Monet: "I look at her as a real person" - CBS News](https://www.cbsnews.com/news/meet-the-woman-behind-chart-topping-ai-artist-xania-monet-i-look-at-her-as-a-real-person/) - Cbsnews
+- [OpenAI Moves Into $2.8 Billion AI Music Market, Taking Aim at Suno and Google - TipRanks](https://www.tipranks.com/news/openai-moves-into-2-8-billion-ai-music-market-taking-aim-at-suno-and-google) - Tipranks
+- [Your favorite band has a new single? It might be AI - NPR](https://www.npr.org/2025/10/27/nx-s1-5587852/spotify-ai-music-fakes) - Npr
+- [Why Taylor Swift’s ‘The Life Of A Showgirl’ Won’t Be On This Year’s Grammy Ballot](https://www.forbes.com/sites/matthewleimkuehler/2025/11/05/why-taylor-swifts-the-life-of-a-showgirl-wont-be-on-this-years-grammy-ballot/) - Forbes
+- [Taylor Swift to Sit Out Grammys for First Time Since Age 17](https://consequence.net/2025/10/taylor-swift-no-grammy-nominations/) - Consequence
+- [Ed Sheeran, Taylor Swift and more announce album releases - Minute Mirror](https://minutemirror.com.pk/ed-sheeran-taylor-swift-and-more-announce-album-releases-457961/) - Minutemirror
+- [The Life Of A Showgirl Debuts With 3,479,500 Sales, 4.002M Units In 2025: Why It Matters - Red94](https://www.red94.net/news/79940-the-life-of-a-showgirl-debuts-with-3-479-500-sales-4-002m-units-in-2025-why-it-m/) - Red94
+- [Meet the woman behind chart-topping AI artist Xania Monet](https://www.cbsnews.com/news/meet-the-woman-behind-chart-topping-ai-artist-xania-monet-i-look-at-her-as-a-real-person/) - CBS News
+- [AI music is charting weekly as Billboard claims trend is “quickly accelerating” - Dexerto](https://www.dexerto.com/entertainment/ai-music-is-charting-weekly-as-billboard-claims-trend-is-quickly-accelerating-3278506/) - Dexerto
+- [AI artist makes debut on Billboard radio chat - NPR](https://www.npr.org/2025/11/02/nx-s1-5594790/ai-artist-makes-debut-on-billboard-radio-chat) - Npr
+- [Universal Music Group and Stability AI Announce Strategic Alliance to Co-Develop Professional AI Music Creation Tools - Stability AI](https://stability.ai/news/universal-music-group-and-stability-ai-announce-strategic-alliance) - Stability
+- [OpenAI's Work With The Julliard School Has A Catch 10/27/2025 - MediaPost](https://www.mediapost.com/publications/article/410195/) - Mediapost
+- [VA – It’s All Her Fault: A Tribute to Cindy Walker (2025)](https://exystence.net/blog/2025/11/05/va-its-all-her-fault-a-tribute-to-cindy-walker-2025/) - Exystence.net
+- [The Making Of ABBA by Joe Matera](https://www.soundonsound.com/news/making-abba-joe-matera) - Soundonsound.com
+- [Steinberg Cubase 15 arrives](https://www.soundonsound.com/news/steinberg-cubase-15-arrives) - Soundonsound.com
+- [The White Stripes join the Rock & Roll Hall of Fame − their primal sound reflects Detroit’s industrial roots](https://theconversation.com/the-white-stripes-join-the-rock-and-roll-hall-of-fame-their-primal-sound-reflects-detroits-industrial-roots-265469) - The Conversation Africa
+- [Behind The Campaign: Big Thief](http://musically.com/2025/11/05/behind-the-campaign-big-thief/) - Music Ally
+- [Wyclef Jean Is Building an Artist-Centric Music Platform - ADWEEK](https://www.adweek.com/media/brandweek-why-wyclef-jean-and-jaeson-ma-are-building-an-artist-centric-alternative-to-big-streaming-platforms/) - Adweek
+- [Grammys 2026: Everything you need to know about the voting process](https://www.the-independent.com/arts-entertainment/music/grammys-2026-voting-nomination-process-b2859325.html) - The-independent.com
+- [Grammy voting, explained: How nominees and winners are picked](https://www.bostonherald.com/2025/11/05/grammy-voting/) - Boston Herald
+- [How To Vote In The 2026 GRAMMYs](https://grammy.com/news/how-to-vote-2026-grammys-voting-guide) - Grammy
+- [GRAMMY 101 \| RECORDINGACADEMY.com](https://recordingacademy.com/awards/faq) - Recordingacademy
+- [Media Company Registration and Online Entry Process ...](https://www.recordingacademy.com/awards/media-company-registration-and-online-entry-process-oep) - Recordingacademy
+- [The Grammys invited all Latin Grammy voting members to the Recording Academy: Why it matters - Greenwich Time](https://www.greenwichtime.com/entertainment/article/the-grammys-invited-all-latin-grammy-voting-21135301.php) - Greenwichtime
+- [Latin Grammy voters can now vote for the general Grammys. Will it make a difference? - Los Angeles Times](https://www.latimes.com/delos/story/2025-11-04/latin-grammy-voting-members-join-recording-academy) - Latimes
+- [Mayhem Premiere New Single & Music Video "Weep For Nothing" From Upcoming New Album "Liturgy Of Death"](http://www.metalunderground.com/news/details.cfm?newsid=160386) - Metalunderground.com
+- [Nicki Minaj is Apparently Thrilled That The White House Used Her Music](http://www.rollingstone.com/music/music-news/nicki-minaj-white-house-music-tiktok-1235459552/) - Rolling Stone
+- [White House Admits to Trolling 'Fake News Brands' With Taylor Swift TikTok: 'Congrats, You Got Played' - TheWrap](https://www.thewrap.com/white-house-taylor-swift-the-fate-of-ophelia-pro-trump-tiktok-video/) - Thewrap
+- [“We’re Rising Up Again” Sparks Celebrity Backlash In 2025, Here’s Why - Red94](https://www.red94.net/news/69862-we-re-rising-up-again-sparks-celebrity-backlash-in-2025-here-s-why/) - Red94
+- [Ariana Grande On Her Future In Music Amid ‘Focker In-Law’ & ‘American Horror Story’ Season 13 Casting](http://deadline.com/2025/11/ariana-grande-future-music-focker-in-law-american-horror-story-season-13-casting-1236608044/) - Deadline
+- [Ariana Grande wraps filming on ‘Focker In-Law,’ shares sweet behind-the-scenes photos - The Lagos Review](https://thelagosreview.ng/ariana-grande-wraps-filming-on-focker-in-law-shares-sweet-behind-the-scenes-photos/) - Thelagosreview
+- [Ariana Grande and Cynthia Erivo lead the ‘Wicked: For Good’ press tour in green and pink - Vogue Australia](https://www.vogue.com.au/fashion/news/wicked-for-good-press-tour-looks/image-gallery/1ef5bab37441d47150e77469abf51508) - Vogue
