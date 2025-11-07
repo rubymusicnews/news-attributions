@@ -39,7 +39,7 @@ This repository hosts **public news source attributions** used in Ruby News broa
 ├─ attribution.md       # Attribution details for the day’s broadcast
 └─ {short_video_title}/
    └─ attribution.md    # Attribution for individual short videos
-````
+```
 
 **Example:**
 `2025-11-06/some_video_title/attribution.md`
