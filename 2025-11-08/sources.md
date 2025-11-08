@@ -1,0 +1,94 @@
+# Sources for 2025-11-08 News Episode 
+- [Rosalía Blesses Pop Music With Lux](http://www.vulture.com/article/rosalia-new-album-lux-listen.html) - Vulture
+- [Radical and riveting: Is Rosalía's Lux the year's best album?](https://www.bbc.com/news/articles/cd9kgy853zvo) - BBC News
+- [Rosalía Taps Björk and Yves Tumor for New Song “Berghain”: Watch the Video - Pitchfork](https://pitchfork.com/news/rosalia-taps-bjork-and-yves-tumor-for-new-song-berghain-watch-the-video/) - Pitchfork
+- [Rosalía Sees The Light With New Album ‘Lux’ - Forbes](https://www.forbes.com/sites/cmalone/2025/11/07/rosala-sees-the-light-with-new-album-lux/) - Forbes
+- [Rosalía Returns With Björk And Yves Tumor For Triumphant New Single ‘Berghain’ - Forbes](https://www.forbes.com/sites/cmalone/2025/10/27/rosala-returns-with-bjrk-and-yves-tumor-for-triumphant-new-single-berghain/) - Forbes
+- [Rosalía’s ‘Lux’ Is Operatic. But Is It Opera? - The New York Times](https://www.nytimes.com/2025/11/07/arts/music/rosalia-lux-classical-music-opera.html) - Nytimes
+- [On 'Lux,' Rosalía pulls the entire world into her symphony - NPR](https://www.npr.org/2025/11/03/nx-s1-5593155/rosalia-lux-interview) - Npr
+- [Rosalía: LUX Album Review - Pitchfork](https://pitchfork.com/reviews/albums/rosalia-lux/) - Pitchfork
+- [Rosalía Blesses Pop Music With Lux - Vulture](https://www.vulture.com/article/rosalia-new-album-lux-listen.html) - Vulture
+- [Bad Bunny And Rosé Are Changing How The Grammys Recognize Songwriting](https://www.forbes.com/sites/hughmcintyre/2025/11/07/bad-bunny-and-ros-are-changing-how-the-grammys-recognize-songwriting/) - Forbes
+- [Kendrick Lamar leads 2026 Grammy nominations, followed by Lady Gaga, Jack Antonoff and Cirkut - Chicago Tribune](https://www.chicagotribune.com/2025/11/07/kendrick-lamar-grammy-lady-gaga/) - Chicagotribune
+- [The 2026 Grammy Award nominations are about be announced. Here's what to know - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/2026-grammy-award-nominations/6415667/?amp=1) - Nbcnewyork
+- [K-pop, The Weeknd, Timothée Chalamet, Billie Eilish: All the 2026 Grammy nom snubs and surprises - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/k-pop-the-weeknd-timothee-chalamet-billie-21145744.php) - Sfchronicle
+- [Grammy nominated artists who played the Tiny Desk in 2025 - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-07/grammy-nominated-artists-who-played-the-tiny-desk-in-2025) - Vpm
+- [Lady Gaga and Kendrick Lamar lead 2026 Grammy nominations - BBC](https://www.bbc.com/news/articles/cvgv3g7enkqo) - Bbc
+- [Rosé And Bruno Mars's "APT." "KPop Demon Hunters" Soundtrack, KATSEYE, And "Maybe Happy Ending" Soundtrack Nominated For 2026 Grammys - Soompi](https://www.soompi.com/article/1796403wpp/rose-and-bruno-marss-apt-kpop-demon-hunters-soundtrack-katseye-and-maybe-happy-ending-soundtrack-nominated-for-2026-grammys) - Soompi
+- [The Cure Receive First Grammy Nominations in 24 Years](https://consequence.net/2025/11/the-cure-receive-first-grammy-nominations-in-24-years/) - Consequence.net
+- [Grammys 2026: Tyler, the Creator, the Cure, and More Nominated for Best Alternative Music Awards](https://pitchfork.com/news/grammys-2026-tyler-the-creator-the-cure-and-more-nominated-for-best-alternative-music-awards/) - Pitchfork
+- [Lux: 4 collaborators unpack Rosalía’s monumental new album](https://www.dazeddigital.com/music/article/69044/1/lux-rosalia-new-album-2025-noah-dillon-carminho-daniel-bjaranason-yahritza?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=lux-4-collaborators-unpack-rosalia-s-monumental-new-album) - Dazed
+- [Rosalía Taps Björk and Yves Tumor for New Song “Berghain”: Watch the Video - Pitchfork](https://pitchfork.com/news/rosalia-taps-bjork-and-yves-tumor-for-new-song-berghain-watch-the-video/) - Pitchfork
+- [Rosalía Returns With Björk And Yves Tumor For Triumphant New Single ‘Berghain’ - Forbes](https://www.forbes.com/sites/cmalone/2025/10/27/rosala-returns-with-bjrk-and-yves-tumor-for-triumphant-new-single-berghain/) - Forbes
+- [On 'Lux,' Rosalía pulls the entire world into her symphony - NPR](https://www.npr.org/2025/11/03/nx-s1-5593155/rosalia-lux-interview) - Npr
+- [Rosalía Sees The Light With New Album ‘Lux’ - Forbes](https://www.forbes.com/sites/cmalone/2025/11/07/rosala-sees-the-light-with-new-album-lux/) - Forbes
+- [Rosalía Blesses Pop Music With Lux - Vulture](https://www.vulture.com/article/rosalia-new-album-lux-listen.html) - Vulture
+- [Review: Rosalía Shatters All Expectations With ‘Lux’ - Vulture](https://www.vulture.com/article/review-rosalia-lux.html) - Vulture
+- [Rosalía’s ‘Lux’ Is Operatic. But Is It Opera? - The New York Times](https://www.nytimes.com/2025/11/07/arts/music/rosalia-lux-classical-music-opera.html) - Nytimes
+- [Radical and riveting: Is Rosalía's Lux the year's best album? - BBC](https://www.bbc.com/news/articles/cd9kgy853zvo) - Bbc
+- [2026 Grammy Nominations: Kendrick Lamar, Clipse, Tyler, The Creator & More (Full List)](http://hiphopdx.com/news/grammy-nominations-2026/) - HipHopDX
+- [Kendrick Lamar leads the 2026 Grammy nominations. See the list.](https://www.cbsnews.com/news/grammy-awards-2026-nominations-list/) - CBS News
+- [Grammy Nominations: Kendrick Lamar Leads, Lady Gaga And Bad Bunny Right Behind](https://www.forbes.com/sites/conormurray/2025/11/07/grammy-nominations-kendrick-lamar-leads-lady-gaga-and-bad-bunny-right-behind/) - Forbes
+- [Australian acts get nod as Kendrick Lamar, Lady Gaga lead Grammy nominations](https://www.abc.net.au/news/2025-11-08/grammy-awards-nominations-2026-kendrick-lamar-lady-gaga/105987408) - ABC News (AU)
+- [Grammy Nominations 2026: Addison Rae Stuns Industry, Kendrick Lamar, Lady Gaga Lead the …](http://www.thehollywoodgossip.com/2025/11/grammy-nominations-2026-addison-rae-stuns-industry-kendrick-lamar-lady-gaga-lead-the-pack-with-most-nods/) - The Hollywood Gossip
+- [The Snubs and Surprises of the 2026 Grammy Nominations](http://www.vulture.com/article/grammy-nominations-2026-snubs-surprises.html) - Vulture
+- [Lady Gaga and Kendrick Lamar lead 2026 Grammy nominations - BBC](https://www.bbc.com/news/articles/cvgv3g7enkqo) - Bbc
+- [K-pop, The Weeknd, Timothée Chalamet, Billie Eilish: All the 2026 Grammy nom snubs and surprises - AP News](https://apnews.com/article/2026-grammy-awards-nominations-snubs-surprises-71fc9a830662602d17d6caa14e1a8c56) - Apnews
+- [Grammy Nominations 2026: See the Full List of Nominees - The New York Times](https://www.nytimes.com/2025/11/07/arts/music/grammys-nominee-list-2026.html) - Nytimes
+- [Kendrick Lamar and Lady Gaga will face off for the Grammys’ biggest awards - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-07/grammys-2026-nominations-kendrick-lamar-lady-gaga-bad-bunny-recording-academy) - Latimes
+- [Kendrick Lamar leads 2026 Grammy nominations, followed by Lady Gaga, Jack Antonoff and Cirkut - Chicago Tribune](https://www.chicagotribune.com/2025/11/07/kendrick-lamar-grammy-lady-gaga/) - Chicagotribune
+- [All Things Considered for November 7, 2025 - NPR](https://www.npr.org/programs/all-things-considered/nx-s1-5584424/all-things-considered-for-november-7-2025?showDate=2025-11-07) - Npr
+- [The 2026 Grammy Award nominations are about be announced. Here's what to know - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/2026-grammy-award-nominations/6415667/?amp=1) - Nbcnewyork
+- [Grammy nominations led by Lady Gaga, Bad Bunny, Kendrick Lamar - The Washington Post](https://www.washingtonpost.com/entertainment/music/2025/11/07/grammy-nominations-2026-list/) - Washingtonpost
+- [Grammys 2026: Bad Bunny, the Marías break into Big Four categories - Los Angeles Times](https://www.latimes.com/delos/story/2025-11-07/grammys-2026-bad-bunny-karol-g-ca7riel-paco-amoroso-marias-grupo-frontera-fuerza-regida) - Latimes
+- [K-pop, The Weeknd, Timothée Chalamet, Billie Eilish: All the 2026 Grammy nom snubs and surprises - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/k-pop-the-weeknd-timothee-chalamet-billie-21145744.php) - Sfchronicle
+- [Spotify's New Weekly Feature Turns Wrapped Into a Year-Round Experience](https://www.androidheadlines.com/2025/11/spotifys-new-weekly-feature-turns-wrapped-into-a-year-round-experience.html) - Android Headlines
+- [Spotify's new listening stats include weekly chart of your favorite artists, songs - USA Today](https://www.usatoday.com/story/tech/2025/11/07/spotify-listening-stats-charts/87153732007/) - Usatoday
+- [When will Spotify Wrapped 2025 be released? What to know about annual music review - The Leaf-Chronicle](https://www.theleafchronicle.com/story/entertainment/music/2025/11/07/when-does-spotify-wrapped-2025-come-out-past-dates/87126657007/) - Theleafchronicle
+- [Spotify Brings Wrapped Energy Year-Round With Friend-Sharing Stats - CNET](https://www.cnet.com/tech/services-and-software/spotify-brings-wrapped-energy-year-round-with-friend-sharing-stats/) - Cnet
+- [Building a data-driven standard for digital audio frequency - The Drum](https://www.thedrum.com/industry-insight/building-a-data-driven-standard-for-digital-audio-frequency) - Thedrum
+- [Radiohead klinkt als die net iets slimmere, gevoelige vriend – aan wie je je kunt optrekken](https://www.nrc.nl/nieuws/2025/11/07/radiohead-klinkt-als-die-net-iets-slimmere-gevoelige-vriend-aan-wie-je-je-kunt-optrekken-a4911544) - Www.nrc.nl
+- [Here’s what Radiohead played as they kicked off their 2025 European comeback tour - NME](https://www.nme.com/news/music/radiohead-2025-european-tour-madrid-night-one-setlist-footage-photos-3905517) - Nme
+- [Radiohead reveal they'll be playing in the round on UK and European tour and talk setlists: "We have too many songs" - NME](https://www.nme.com/news/music/radiohead-reveal-theyll-be-playing-in-the-round-on-uk-and-european-tour-and-talk-setlists-we-have-too-many-songs-3902277) - Nme
+- [Radiohead: ‘The wheels had come off a bit. We had to stop’ - The Times](https://www.thetimes.com/culture/music/article/radiohead-tour-2025-interview-israel-fn0bmdzl8) - Thetimes
+- [Radiohead Live Review: Just ’Cause You Feel It… - Pitchfork](https://pitchfork.com/thepitch/radiohead-live-review-just-cause-you-feel-it/) - Pitchfork
+- [Radiohead Discuss Upcoming Tour, Possibility of New Music, State of Band - Consequence of Sound](https://consequence.net/2025/10/radiohead-discuss-upcoming-tour-possibility-of-new-music-state-of-band/) - Consequence
+- [Acclaimed rock band plays first concert in 7 years, includes deep cut - Syracuse.com](https://www.syracuse.com/entertainment/2025/11/acclaimed-rock-band-plays-first-concert-in-7-years-includes-deep-cut.html) - Syracuse
+- [Radiohead Mix It Up on Night Two of 2025 Tour - Consequence of Sound](https://consequence.net/2025/11/radiohead-setlist-night-two-2025-tour/) - Consequence
+- [Bad Bunny Makes Grammy History, Ariana Grande & Miley Cyrus Snubbed](https://www.tmz.com/2025/11/07/2026-grammy-nominations-snubs/) - TMZ
+- [Grammys 2026: Bad Bunny, the Marías break into Big Four categories - Los Angeles Times](https://www.latimes.com/delos/story/2025-11-07/grammys-2026-bad-bunny-karol-g-ca7riel-paco-amoroso-marias-grupo-frontera-fuerza-regida) - Latimes
+- [K-pop, The Weeknd, Timothée Chalamet, Billie Eilish: All the 2026 Grammy nom snubs and surprises - AP News](https://apnews.com/article/2026-grammy-awards-nominations-snubs-surprises-71fc9a830662602d17d6caa14e1a8c56) - Apnews
+- [Kendrick Lamar leads 2026 Grammy nominations, followed by Lady Gaga, Jack Antonoff and Cirkut - Chicago Tribune](https://www.chicagotribune.com/2025/11/07/kendrick-lamar-grammy-lady-gaga/) - Chicagotribune
+- [Grammy nominated artists who played the Tiny Desk in 2025 - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-07/grammy-nominated-artists-who-played-the-tiny-desk-in-2025) - Vpm
+- [Grammy nominations led by Lady Gaga, Bad Bunny, Kendrick Lamar - The Washington Post](https://www.washingtonpost.com/entertainment/music/2025/11/07/grammy-nominations-2026-list/) - Washingtonpost
+- [K-pop, The Weeknd, Timothée Chalamet, Billie Eilish: All the 2026 Grammy nom snubs and surprises - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/k-pop-the-weeknd-timothee-chalamet-billie-21145744.php) - Sfchronicle
+- [The Weeknd Made Up With the Grammys, Then Got Shut Out Again](http://www.rollingstone.com/music/music-news/the-weeknd-not-nominated-2026-grammys-1235461444/) - Rolling Stone
+- [K-pop, The Weeknd, Timothée Chalamet, Billie Eilish: All the 2026 Grammy nom snubs and surprises - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/k-pop-the-weeknd-timothee-chalamet-billie-21145744.php) - Sfchronicle
+- [Grammys 2026: K-pop finally gets its major-category nominations - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-07/grammys-nominations-2026-kpop-finally-gets-its-major-category) - Latimes
+- [The 2026 Grammy Nominations - Vulture](https://www.vulture.com/article/grammy-nominations-2026.html) - Vulture
+- [Major Artist Snubbed By Grammys AGAIN After Calling Out Award Show - HuffPost](https://www.huffpost.com/entry/the-weeknd-grammys-snub_n_690bd033e4b0799004d2fee6) - Huffpost
+- [Billie Eilish, The Weeknd, Timothée Chalamet: All The 2026 Grammy Nom Snubs And Surprises - HuffPost](https://www.huffpost.com/entry/grammy-nominations-snubs-and-surprises_n_690e2e6ae4b0d142901efd9a) - Huffpost
+- [Kendrick Lamar and Lady Gaga will face off for the Grammys’ biggest awards - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-07/grammys-2026-nominations-kendrick-lamar-lady-gaga-bad-bunny-recording-academy) - Latimes
+- [Grammy nominations snubs and surprises: The Weeknd whiffs while Doechii's high on 'Anxiety' - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-07/grammys-2026-nominations-snubs-surprises) - Latimes
+- [Grammy nominated artists who played the Tiny Desk in 2025](https://www.npr.org/2025/11/07/g-s1-96971/grammy-nominated-artists-who-played-the-tiny-desk-in-2025) - NPR
+- [Everything You Need to Know About the 2026 Grammy Awards - Vogue](https://www.vogue.com/article/everything-you-need-to-know-about-the-2026-grammy-awards) - Vogue
+- ['La Yugular' Lyrics, English Translation & Meaning: Rosalía Sings in Arabic, Includes Patti Smith Interview on 'Lux' Song](https://www.justjared.com/2025/11/07/la-yugular-lyrics-english-translation-meaning-rosalia-sings-in-arabic-includes-patti-smith-interview-on-lux-song/) - Just Jared
+- [Rosalía Sees The Light With New Album ‘Lux’ - Forbes](https://www.forbes.com/sites/cmalone/2025/11/07/rosala-sees-the-light-with-new-album-lux/) - Forbes
+- [On 'Lux,' Rosalía pulls the entire world into her symphony - NPR](https://www.npr.org/2025/11/03/nx-s1-5593155/rosalia-lux-interview) - Npr
+- [Review: Rosalía Shatters All Expectations With ‘Lux’ - Vulture](https://www.vulture.com/article/review-rosalia-lux.html) - Vulture
+- [Radical and riveting: Is Rosalía's Lux the year's best album? - BBC](https://www.bbc.com/news/articles/cd9kgy853zvo) - Bbc
+- ['Mio Cristo Piange Diamanti' Lyrics, English Translation & Meaning: Hear Rosalía's Stunning Italian 'Lux' Aria](https://www.justjared.com/2025/11/07/mio-cristo-piange-diamanti-lyrics-english-translation-meaning-hear-rosalias-stunning-italian-lux-aria/) - Just Jared
+- [Rosalía Sees The Light With New Album ‘Lux’ - Forbes](https://www.forbes.com/sites/cmalone/2025/11/07/rosala-sees-the-light-with-new-album-lux/) - Forbes
+- [Radical and riveting: Is Rosalía's Lux the year's best album? - BBC](https://www.bbc.com/news/articles/cd9kgy853zvo) - Bbc
+- [On 'Lux,' Rosalía pulls the entire world into her symphony - NPR](https://www.npr.org/2025/11/03/nx-s1-5593155/rosalia-lux-interview) - Npr
+- [Review: Rosalía Shatters All Expectations With ‘Lux’ - Vulture](https://www.vulture.com/article/review-rosalia-lux.html) - Vulture
+- [Rosalía’s ‘Lux’ Is Operatic. But Is It Opera? - The New York Times](https://www.nytimes.com/2025/11/07/arts/music/rosalia-lux-classical-music-opera.html) - Nytimes
+- [Kiss Announce Massive 50th Anniversary of ‘Alive!’ With Two Complete Unreleased Concerts](http://www.rollingstone.com/music/music-news/kiss-massive-50th-anniversary-alive-reissue-1235461810/) - Rolling Stone
+- [Kiss Celebrate ‘Alive!’ 50th Anniversary with Colossal Box Set](https://www.metalsucks.net/2025/11/06/kiss-celebrate-alive-50th-anniversary-with-colossal-box-set/) - MetalSucks
+- [Katy Perry Applies ‘Bandaids’ On New Single](https://www.forbes.com/sites/cmalone/2025/11/06/katy-perry-applies-bandaids-on-new-single/) - Forbes
+- [Katy Perry Seemingly Reveals Reason for Orlando Bloom Breakup in New Song "Bandaids" - E! News](https://www.eonline.com/news/1424637/katy-perry-song-bandaid-hints-orlando-bloom-breakup-reason) - Eonline
+- [Katy Perry Goes Full 'Final Destination' In Her New "bandaids" Video - Stereogum](https://www.stereogum.com/2328935/katy-perry-goes-full-final-destination-in-her-new-bandaids-video/music/) - Stereogum
+- [Katy Perry hints at reason behind Orlando Bloom breakup - Fox News](https://www.foxnews.com/entertainment/katy-perry-hints-reason-orlando-bloom-breakup) - Foxnews
+- [Grammys 2026: Turnstile, Deftones, and Yungblud Nominated for Best Rock Album](https://consequence.net/2025/11/grammys-2026-best-rock-albums-nominations/) - Consequence.net
+- [Grammy nominated artists who played the Tiny Desk in 2025 - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-07/grammy-nominated-artists-who-played-the-tiny-desk-in-2025) - Vpm
+- [First trailer for Michael Jackson biopic released after reported legal troubles](https://www.abc.net.au/news/2025-11-07/michael-jackson-biopic-trailer-released/105984044) - ABC News (AU)
