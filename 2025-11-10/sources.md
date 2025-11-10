@@ -1,0 +1,42 @@
+# Sources for 2025-11-10 News Episode 
+- [Hozier Charts A New No. 1 Smash Alongside A Superstar Collaborator](https://www.forbes.com/sites/hughmcintyre/2025/11/09/hozier-charts-a-new-no-1-smash-alongside-a-superstar-collaborator/) - Forbes
+- [Jisoo Joins Her Blackpink Bandmates With Her First Solo Radio Smash](https://www.forbes.com/sites/hughmcintyre/2025/11/09/jisoo-joins-her-blackpink-bandmates-with-her-first-solo-radio-smash/) - Forbes
+- [20 Crossover Songs From October 2025 Expanding K-Pop’s Global Reach - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/10/31/20-crossover-songs-from-october-2025-expanding-k-pops-global-reach/) - Forbes
+- [Outkast Ushered into Rock & Roll Hall of Fame by Donald Glover and a Stage Full of Dungeon Family](http://www.rollingstone.com/music/music-news/outkast-rock-hall-of-fame-induction-big-boi-andre-3000-1235460786/) - Rolling Stone
+- [Donald Glover Inducts OutKast, André 3000 Gives Powerful “Freestyle” Speech at Rock & Roll Hall of Fame](https://consequence.net/2025/11/donald-glover-outkast-andre-3000-rock-hall-of-fame/) - Consequence.net
+- [Outkast's Rock Hall induction honors Atlanta's legacy and hip-hop roots - Axios](https://www.axios.com/local/atlanta/2025/11/09/outkast-rock-hall-induction-2025-atlanta-south-hip-hop) - Axios
+- [Rock & Roll Hall of Fame ceremony will induct Outkast, Cyndi Lauper, Salt-N-Pepa, the White Stripes - AP News](https://apnews.com/article/rock-hall-fame-2025-outkast-white-stripes-16fde4991b33c8cab386d410da047264) - Apnews
+- [OutKast, White Stripes, Cyndi Lauper, and Salt-N-Pepa Join Rock Hall of Fame at Epic Ceremony](http://www.rollingstone.com/music/music-features/outkast-white-stripes-cyndi-lauper-salt-n-pepa-hall-of-fame-1235462370/) - Rolling Stone
+- [Twenty One Pilots Perform “Seven Nation Army” in Honor of The White Stripes at Rock & Roll Hall of Fame](https://consequence.net/2025/11/twenty-one-pilots-seven-nation-army-the-white-stripes-rock-and-roll-hall-of-fame/) - Consequence.net
+- [David Letterman Inducts Warren Zevon Into Rock & Roll Hall of Fame](https://consequence.net/2025/11/david-letterman-warren-zevon-rock-and-roll-hall-of-fame/) - Consequence.net
+- [Tears, shouts and courage as Rock & Roll Hall of Fame welcomes new inductees](https://www.cbc.ca/news/entertainment/rock-and-roll-hall-of-fame-induction-9.6972573) - CBC News
+- [Watch the Killers Pay Tribute to Warren Zevon at the Rock & Roll Hall of Fame 2025 Induction Ceremony](https://pitchfork.com/news/watch-the-killers-pay-tribute-to-warren-zevon-at-the-rock-and-roll-hall-of-fame-2025-induction-ceremony/) - Pitchfork
+- [Rock Hall Welcomes Soundgarden, White Stripes, Outkast](https://www.spin.com/2025/11/rock-hall-soundgarden-white-stripes-outkast/) - SPIN
+- [Cyndi Lauper calls for courage and Salt-N-Pepa romp through 'Push It' as they join Rock Hall of Fame](https://www.wisn.com/article/rock-and-roll-hall-of-fame-2025/69298846) - WISN Milwaukee
+- [Cyndi Lauper calls for courage and Salt-N-Pepa romp through 'Push It' as they join Rock Hall of Fame](https://japantoday.com/category/entertainment/rock-roll-hall-of-fame-ceremony-will-induct-outkast-cyndi-lauper-salt-n-pepa-the-white-stripes) - Japan Today
+- [Stevie Wonder, Flea, Beck & Questlove Join Forces for Sly Stone Tribute at Rock Hall: Watch](https://consequence.net/2025/11/sly-stone-tribute-rock-hall/) - Consequence.net
+- [Rosalía's Latest Album 'Lux' Achieves a Historic Best Debut in the First 24 Hours By a Female Spanish Artist!](https://www.justjared.com/2025/11/08/rosalias-latest-album-lux-achieves-a-historic-best-debut-in-the-first-24-hours-by-a-female-spanish-artist/) - Just Jared
+- [Rosalía Has Biggest Streaming Debut of Any Female Spanish-Language Artist on Spotify](http://www.rollingstone.com/music/music-latin/rosalia-lux-breaks-record-female-spanish-language-artist-1235462184/) - Rolling Stone
+- [Rosalía Blesses Pop Music With Lux - Vulture](https://www.vulture.com/article/rosalia-new-album-lux-listen.html) - Vulture
+- [How one photographer got access to 1960s rock royalty](https://www.cnn.com/interactive/2025/11/entertainment/rock-music-bent-rej-cnnphotos/) - CNN
+- [Black Artists command 2026 Grammy nominations](https://rollingout.com/2025/11/09/black-artists-command-2026-grammy/) - Rolling Out
+- [Grammy Awards 2026: See the full list of nominees - CNN](https://www.cnn.com/2025/11/07/entertainment/grammy-award-nominations-2026) - Cnn
+- [How to watch the 2026 Grammy nominations, announced by Chappell Roan, Doechii and more - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-06/grammys-2026-nominations-how-to-watch-livestream) - Latimes
+- [“Bacchanalian, primal, subversive, translucent… like what might happen if Robert Fripp’s drink had been spiked with acid”: 10 great psychedelic songs that’ll shake any prog fan’s tree (but aren't by Pink Floyd)](https://www.loudersound.com/music/tracks-singles/best-prog-pyschedlic-songs) - Louder
+- [Levellers – Zeitgeist [30th Anniversary Deluxe Edition] (2025)](https://exystence.net/blog/2025/11/09/levellers-zeitgeist-30th-anniversary-deluxe-edition-2025/) - Exystence.net
+- [Cyndi Lauper Celebrates Rock Hall Induction with Greatest Hits Set, Chappell Roan Induction](https://consequence.net/2025/11/chappell-roan-cyndi-lauper-rock-roll-hall-of-fame/) - Consequence.net
+- [Cyndi Lauper Inducted by Chappell Roan, Performs Hits at Rock Hall 2025 Ceremony: Watch - Pitchfork](https://pitchfork.com/news/cyndi-lauper-inducted-by-chappell-roan-performs-hits-at-rock-hall-2025-ceremony-watch/) - Pitchfork
+- [Cyndi Lauper Will Be Inducted Into the Rock Hall by a Pink Pony Girl - Vulture](https://www.vulture.com/article/rock-hall-2025-guest-list-performers.html) - Vulture
+- [Chappell Roan Lauds Cyndi Lauper at Rock Hall Induction for 'Showing Us You Can Be Bold, Quirky, Loud, Glamorous and Have Any Hair Color You Want' - Variety](https://au.variety.com/2025/music/news/chappell-roan-cyndi-lauper-speech-rock-hall-fame-induction-29777/) - Variety
+- [Rock & Roll Hall of Fame 2025: Cyndi Lauper, Soundgarden, The White Stripes inducted - abcnews.go.com](https://abcnews.go.com/GMA/Culture/rock-roll-hall-fame-2025-cyndi-lauper-soundgarden/story?id=127356576) - Go
+- [‘SNL’: Watch Sombr Perform ’12 to 12,’ ‘Back to Friends’](http://www.rollingstone.com/music/music-news/snl-sombr-perform-back-to-friends-i-barely-know-her-1235462129/) - Rolling Stone
+- [SNL Live Updates: Nikki Glaser, sombr to Lead Tonight’s Episode—How to Watch - Newsweek](https://www.newsweek.com/entertainment/snl-nbc-nikki-glaser-sombr-skits-live-updates-11017094) - Newsweek
+- ['Saturday Night Live' recap: Nikki Glaser makes her hosting debut - Entertainment Weekly](https://ew.com/snl-recap-nikki-glaser-hosts-sombr-musical-guest-11846378) - Ew
+- [Who is Rod Wave? Rapper arrested on drug, weapon charges hours after his FIRST Grammy nomination](https://www.wionews.com/entertainment/hollywood/who-is-rod-wave-rapper-arrested-on-drug-weapon-charges-hours-after-his-first-grammy-nomination-1762656156550) - WION
+- [Rod Wave, Hip-Hop Artist, Arrested on Drug and Weapons Charges - The New York Times](https://www.nytimes.com/2025/11/09/arts/music/rapper-rod-wave-arrest.html) - Nytimes
+- [Rapper Rod Wave arrested on drug, weapon charges— hours after earning first Grammy nomination - New York Post](https://nypost.com/2025/11/08/entertainment/rapper-rod-wave-arrested-on-drug-weapon-charges/) - Nypost
+- [Rod Wave Arrested on Weapon, Drug Accusations - TMZ](https://www.tmz.com/2025/11/08/rod-wave-arrested-weapon-drug-charges/) - Tmz
+- [Rod Wave arrested in Atlanta on drug and weapons charges - FOX 5 Atlanta](https://www.fox5atlanta.com/news/rod-wave-arrested-atlanta-drug-weapons-charges) - Fox5atlanta
+- [Rod Wave arrested in Atlanta on drug and weapons charges - FOX 13 Tampa Bay](https://www.fox13news.com/news/rod-wave-arrested-atlanta-drug-weapons-charges) - Fox13news
+- [“I had this void in front of me. It was intimidating. Then I realised I had total freedom, and it’s been amazing”: When one of prog’s biggest bands shut down, their guitarist bounced back by releasing three albums in two years](https://www.loudersound.com/music/albums/martin-barre-back-to-steel) - Louder
+- [Stabbing Premiere New Single & Music Video "Inhuman Torture Chamber" From Upcoming New Album "Eon Of Obscenity"](http://www.metalunderground.com/news/details.cfm?newsid=160412) - Metalunderground.com
