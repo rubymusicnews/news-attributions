@@ -1,0 +1,34 @@
+# Sources for 2025-11-11 News Episode 
+- [Grammys 2025: Turnstile, Kendrick Lamar und Hayley Williams nominiert](https://www.visions.de/news/grammy-nominierungen-2025/) - Visions.de
+- [Once Again, the 2025 Grammy Award Nominations Make No Sense](https://cheezburger.com/36329223/once-again-the-2025-grammy-award-nominations-make-no-sense) - Cheezburger.com
+- [Milli Vanilli’s Fab Morvan has a Grammy nom, 35 years after his Grammy was revoked](https://www.celebitchy.com/949411/milli_vanillis_fab_morvan_has_a_grammy_nom_35_years_after_grammy_was_revoked/) - Celebitchy.com
+- [2026 GRAMMYS Nominations: Record Of The Year Nominees - GRAMMY.com](https://www.grammy.com/news/2026-grammys-nominations-record-of-the-year) - Grammy
+- [Grammys 2026: K-pop finally gets its major-category nominations - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-07/grammys-nominations-2026-kpop-finally-gets-its-major-category) - Latimes
+- [Katy Perry to headline new Blenheim Palace Festival](https://www.bbc.com/news/articles/crklpp5y474o) - BBC News
+- [Hayley Williams Announces 2026 Tour](https://pitchfork.com/news/hayley-williams-announces-2026-tour/) - Pitchfork
+- [Hayley Williams Quietly Uploads Tour Dates for 2026 - ca.billboard.com](https://ca.billboard.com/music/music-news/hayley-williams-tour-dates-2026-1236108760/) - Billboard
+- [Taylor Swift Makes Chart History As She Refuses To Fall From No. 1](https://www.forbes.com/sites/hughmcintyre/2025/11/10/taylor-swift-makes-chart-history-as-she-refuses-to-fall-from-no-1/) - Forbes
+- [Taylor Swift Makes History: 90 Weeks at No. 1 With ‘The Life of a Showgirl’ - Bharatbarta](https://bharatbarta.com/taylor-swift-life-of-a-showgirl-billboard-200-record-2025/) - Bharatbarta
+- [Taylor Swift Joins Katy Perry And The Beatles In A Major Chart Feat - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/08/taylor-swift-joins-katy-perry-and-the-beatles-in-a-major-chart-feat/) - Forbes
+- [Ed Sheeran, Taylor Swift and more announce album releases - Minute Mirror](https://minutemirror.com.pk/ed-sheeran-taylor-swift-and-more-announce-album-releases-457961/) - Minutemirror
+- [Grammys 2026: Turnstile, Kendrick Lamar und Hayley Williams nominiert](https://www.visions.de/news/grammy-nominierungen-2026/) - Visions.de
+- [Grammy nominated artists who played the Tiny Desk in 2025 - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-07/grammy-nominated-artists-who-played-the-tiny-desk-in-2025) - Vpm
+- [The 2026 Grammy Nominations - Vulture](https://www.vulture.com/article/grammy-nominations-2026.html) - Vulture
+- [Full KISS Lineup to Reunite for Performances at Band’s Vegas Festival](https://consequence.net/2025/11/full-kiss-reunion-las-vegas-performances/) - Consequence.net
+- [MashBit announces his Vancouver debut show at Harbour Theatre with Dirty Audio & NXSTY](https://earmilk.com/2025/11/10/mashbit-announces-his-vancouver-debut-show-at-harbour-theatre-with-dirty-audio-nxsty/) - Earmilk.com
+- [Jonas Brothers Announce Televised New Year’s Eve Show in Miami](http://www.rollingstone.com/music/music-news/jonas-brothers-new-years-eve-show-miami-1235462585/) - Rolling Stone
+- [Rock & Roll Hall of Fame : 5 moments qui ont marqué l’événement](https://www.lesinrocks.com/non-classe/rock-roll-hall-of-fame-5-moments-qui-ont-marque-levenement-683830-10-11-2025/) - Les Inrocks
+- [Bad Company, Outkast to enter Rock and Roll Hall of Fame—Watch the 2025 induction - New York Post](https://nypost.com/2025/11/08/entertainment/how-to-watch-the-2025-rock-and-roll-hall-of-fame-induction/) - Nypost
+- [Rock Hall 2025 ceremony: Grunge, hip-hop and '80s icons head to LA - Axios](https://www.axios.com/2025/11/06/2025-rock-hall-ceremony-everything-to-know) - Axios
+- [ROCK AND ROLL HALL OF FAME Announces Additional Presenters And Performers For 2025 Induction Ceremony - BLABBERMOUTH.NET](https://blabbermouth.net/news/rock-and-roll-hall-of-fame-announces-additional-presenters-and-performers-for-2025-induction-ceremony) - Blabbermouth
+- [The Killers Pay Tribute to Warren Zevon at Rock Hall of Fame Show - Ultimate Classic Rock](https://ultimateclassicrock.com/the-killers-warren-zevon-rock-hall-2025-performance/) - Ultimateclassicrock
+- [Horses at 50: three reasons why Patti Smith still cuts to the bone](https://theconversation.com/horses-at-50-three-reasons-why-patti-smith-still-cuts-to-the-bone-269418) - The Conversation Africa
+- [Patti Smith’s ‘Horses’ Turns 50 : Fresh Air - NPR](https://www.npr.org/2025/11/07/nx-s1-5601880/patti-smiths-horses-turns-50) - Npr
+- [Trailblazer Patti Smith on influencing artists like Taylor Swift - BBC](https://www.bbc.com/news/articles/cjr038ze97yo.amp) - Bbc
+- [Patti Smith: Horses Album Review - Pitchfork](https://pitchfork.com/reviews/albums/patti-smith-horses/) - Pitchfork
+- [Summer Walker Reveals Album Collaborators With Wedding Seating Chart Featuring 21 Savage, GloRilla](http://www.rollingstone.com/music/music-news/summer-walker-finally-over-it-album-21-savage-glorilla-1235463076/) - Rolling Stone
+- [Patti Smith Features on New Rosalía Album with Rousing Message](https://www.artnews.com/art-news/news/rosalia-lux-patti-smith-la-yugular-1234760894/) - ARTnews
+- [Hilary Duff Announces 2026 Live Shows - 'Small Rooms, Big Nerves' Dates & Cities Revealed!](https://www.justjared.com/2025/11/10/hilary-duff-announces-2026-live-shows-small-rooms-big-nerves-dates-cities-revealed/) - Just Jared
+- [For millennials, Hilary Duff's return to music is 'what dreams are made of' - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/hilary-duff-releases-new-music-mature-single-rcna242264) - Nbcnews
+- [For millennials, Hilary Duff's return to music is 'what dreams are made of' - NBC News](https://www.nbcnews.com/news/amp/rcna242264) - Nbcnews
+- [Vincent Mason Is ‘Letting the Dream Win’ With Debut Album and Tour With Morgan Wallen](http://www.rollingstone.com/music/music-features/vincent-mason-there-i-go-album-1235462603/) - Rolling Stone
