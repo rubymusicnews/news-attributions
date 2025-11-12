@@ -1,0 +1,33 @@
+# Sources for 2025-11-12 News Episode 
+- [Charlotte de Witte – Charlotte de Witte (2025)](https://exystence.net/blog/2025/11/11/charlotte-de-witte-charlotte-de-witte-2025/) - Exystence.net
+- [Bob Dylan Charts A Brand New No. 1 Album — With His Oldest Material](https://www.forbes.com/sites/hughmcintyre/2025/11/11/bob-dylan-charts-a-brand-new-no-1-album---with-his-oldest-material/) - Forbes
+- [Exclusive \| Bob Dylan’s earliest New York tapes see the light — and they complement Timothée Chalamet biopic - New York Post](https://nypost.com/2025/10/31/entertainment/bob-dylans-earliest-new-york-tapes-see-the-light/) - Nypost
+- [Watch: SEVENTEEN’s Hoshi Finds Beauty In Brokenness In First English Solo “Fallen Superstar” MV](http://www.soompi.com/article/1797036wpp/watch-seventeens-hoshi-finds-beauty-in-brokenness-in-first-english-solo-fallen-superstar-mv) - soompi
+- [Michael Jackson Blocked From Charting A New No. 1 Hit](https://www.forbes.com/sites/hughmcintyre/2025/11/11/michael-jackson-blocked-from-charting-a-new-no-1-hit/) - Forbes
+- [Michael Jackson’s “Thriller” Returns To U.K. Charts After Halloween - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/04/michael-jacksons-annual-surge-concludes-with-multiple-smashes-returning/) - Forbes
+- [Michael Jackson’s Spooky Chart Comeback Is In Full Swing - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/01/michael-jacksons-spooky-chart-comeback-is-in-full-swing/) - Forbes
+- [OpenAI loses song lyrics copyright case in German court](https://www.dw.com/en/openai-loses-song-lyrics-copyright-case-in-german-court/a-74698240) - DW (English)
+- [GEMA wins landmark ruling against OpenAI over ChatGPT’s use of song lyrics - Music Business Worldwide](https://www.musicbusinessworldwide.com/gema-wins-landmark-ruling-against-openai-over-chatgpts-use-of-song-lyrics/) - Musicbusinessworldwide
+- [OpenAI may not use lyrics without license, German court rules - Reuters](https://www.reuters.com/world/german-court-sides-with-plaintiff-copyright-case-against-openai-2025-11-11/) - Reuters
+- [AI-Generated Country Song 'Walk My Walk' Tops Billboard Chart](https://www.ibtimes.com/ai-generated-country-song-walk-my-walk-tops-billboard-chart-3790083) - International Business Times
+- [The No. 1 Country Song in America Is AI-Generated...](https://www.newsweek.com/breaking-rust-ai-music-country-digital-sales-11022040) - Newsweek
+- [Creator Of Billboard -Charting AI Artist Xania Monet Reveals Herself: “I Look At Her As A Real Person” - Stereogum](https://www.stereogum.com/2328844/creator-of-billboard-charting-ai-artist-xania-monet-reveals-herself-i-look-at-her-as-a-real-person/news/) - Stereogum
+- [AI Song Tops Billboard Chart – Why We Need Transparency NOW - - Saving Country Music](https://savingcountrymusic.com/ai-song-tops-billboard-chart-why-we-need-transparency-now/) - Savingcountrymusic
+- [AI music is charting weekly as Billboard claims trend is “quickly accelerating” - Dexerto](https://www.dexerto.com/entertainment/ai-music-is-charting-weekly-as-billboard-claims-trend-is-quickly-accelerating-3278506/) - Dexerto
+- [AI slop hits new high as fake country artist hits #1 on Billboard digital songs chart - theregister.com](https://www.theregister.com/2025/11/10/ai_country_artist_hits_number_one/) - Theregister
+- [The settlement between Universal and Udio is a win for musicians everywhere - Music Business Worldwide](https://www.musicbusinessworldwide.com/the-settlement-between-universal-and-udio-is-a-win-for-musicians-everywhere/) - Musicbusinessworldwide
+- [When the Legends Cover the Algorithms: A Strange Unsettling New Future for Music - The Times of Israel](https://blogs.timesofisrael.com/when-the-legends-cover-the-algorithms-a-strange-unsettling-new-future-for-music/) - Timesofisrael
+- [Live Nation: Our Study Shows People Like Concerts More Than Sex](https://loudwire.com/study-concerts-over-sex/) - Loudwire
+- [SXSW Reveals First 100 Artists for 2026 Music Festival](http://www.rollingstone.com/music/music-news/sxsw-2026-lineup-artists-performing-1235463192/) - Rolling Stone
+- [SXSW 2026 Welcomes All-American Rejects, International Up-and-Comers - The Austin Chronicle](https://www.austinchronicle.com/music/sxsw-2026-welcomes-all-american-rejects-international-up-and-comers/) - Austinchronicle
+- [Indie music venues bring billions to Texas economy, report finds - Axios](https://www.axios.com/local/san-antonio/2025/11/04/texas-san-antonio-live-music-venues-economy) - Axios
+- [Fender gives £25,000 Mercury prize to small venues](https://www.bbc.com/news/articles/cn8xpw9n95qo) - BBC News
+- [Sam Fender gives £25,000 Mercury Prize to support smaller venues](https://news.sky.com/story/sam-fender-gives-25-000-mercury-prize-to-support-smaller-venues-13468451) - Sky.com
+- [Hayley Williams 2026 Solo Tour: Dates, Tickets & What to Expect](https://screenrant.com/haley-wiliams-tour-2026-dates-tickets-what-to-expect/) - Screen Rant
+- [Hayley Williams Quietly Uploads Tour Dates for 2026 - ca.billboard.com](https://ca.billboard.com/music/music-news/hayley-williams-tour-dates-2026-1236108760/) - Billboard
+- [Hayley Williams "leaks" 2026 solo world tour dates and teases more are coming - NME](https://www.nme.com/news/music/hayley-williams-leaks-2026-solo-tour-dates-and-teases-more-are-coming-3906540) - Nme
+- [Mark Tremonti Reveals Early Timeline for New Creed Music](https://loudwire.com/new-creed-music-plans/) - Loudwire
+- [Mark Tremonti Plans to “Start Working” on New Creed Music with Scott Stapp in 2026](https://consequence.net/2025/11/mark-tremonti-new-creed-music/) - Consequence.net
+- [Heriot Premiere New Single & Music Video "Commander Of Pain"](http://www.metalunderground.com/news/details.cfm?newsid=160421) - Metalunderground.com
+- [The Groundbreaking Animation That Defined Pink Floyd’s Psychedelic Visual Style: Watch “French Windows” (1972)](https://www.openculture.com/2025/11/the-groundbreaking-animation-that-defined-pink-floyds-psychedelic-visual-style.html) - Openculture.com
+- [As Rare Mariah Carey Demo Tape Hits Auction Block, Producer Says ‘She Was a Star Even Back Then’](http://www.rollingstone.com/product-recommendations/lifestyle/mariah-carey-original-demo-tape-auction-price-details-1235463264/) - Rolling Stone
