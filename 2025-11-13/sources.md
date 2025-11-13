@@ -1,4 +1,4 @@
-# Sources for 2025-11-13 News Episode 
+# Sources for 2025-11-13 News Episode
 - [Skepsis celebrates his music career with massive '10 YEARS OF SKEPSIS WORLD TOUR'](https://earmilk.com/2025/11/12/skepsis-celebrates-his-music-career-with-massive-10-years-of-skepsis-world-tour/) - Earmilk.com
 - [Katseye Say They’ve Received Thousands of ‘Death Threats’: ‘Very Terrorizing on the Mind’](http://www.rollingstone.com/music/music-news/katseye-death-threats-online-harassment-ice-1235464048/) - Rolling Stone
 - [Katseye Say They’ve Received Thousands of ‘Death Threats’: ‘Very Terrorizing on the Mind’ - Rolling Stone](https://www.rollingstone.com/music/music-news/katseye-death-threats-online-harassment-ice-1235464048/) - Rollingstone
