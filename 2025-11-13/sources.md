@@ -1,0 +1,37 @@
+# Sources for 2025-11-13 News Episode 
+- [Skepsis celebrates his music career with massive '10 YEARS OF SKEPSIS WORLD TOUR'](https://earmilk.com/2025/11/12/skepsis-celebrates-his-music-career-with-massive-10-years-of-skepsis-world-tour/) - Earmilk.com
+- [Katseye Say They’ve Received Thousands of ‘Death Threats’: ‘Very Terrorizing on the Mind’](http://www.rollingstone.com/music/music-news/katseye-death-threats-online-harassment-ice-1235464048/) - Rolling Stone
+- [Katseye Say They’ve Received Thousands of ‘Death Threats’: ‘Very Terrorizing on the Mind’ - Rolling Stone](https://www.rollingstone.com/music/music-news/katseye-death-threats-online-harassment-ice-1235464048/) - Rollingstone
+- [Global spotlight on KATSEYE: Groundbreaking girl group battles death threats, racism - The Times of India](https://timesofindia.indiatimes.com/entertainment/k-pop/music/news/global-spotlight-on-katseye-groundbreaking-girl-group-battles-death-threats-racism/articleshow/125284991.cms) - Indiatimes
+- [Global girl group Katseye have received 'thousands' of death threats - BBC](https://www.bbc.com/news/articles/cj6ng8w1xrjo) - Bbc
+- [All NewJeans Members To Return To ADOR After High Profile Lawsuit](https://www.forbes.com/sites/hannahabraham/2025/11/12/all-newjeans-members-to-return-to-ador-after-high-profile-lawsuit/) - Forbes
+- [Hyein and Haerin rejoin ADOR, remaining NewJeans members still in limbo - Korea JoongAng Daily](https://koreajoongangdaily.joins.com/news/2025-11-12/entertainment/kpop/Hyein-and-Haerin-rejoin-ADOR-battle-continues-for-the-remaining-three/2442823) - Joins
+- [Three remaining NewJeans members to return to ADOR, ending year-long K-pop clash - Korea JoongAng Daily](https://koreajoongangdaily.joins.com/news/2025-11-12/entertainment/kpop/Three-remaining-NewJeans-members-to-return-to-ADOR-ending-yearlong-Kpop-clash/2442958) - Joins
+- [NewJeans: All members of K-pop group set to return to label after legal battle - BBC](https://www.bbc.com/news/articles/cd9k54yejxjo) - Bbc
+- [NewJeans Members Haerin And Hyein To Return To HYBE’s ADOR Label - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/11/12/newjeans-members-haerin-and-hyein-to-return-to-hybes-ador-label/) - Forbes
+- [K-pop band NewJeans set to resume with record label after court loss - NBC News](https://www.nbcnews.com/world/asia/k-pop-band-newjeans-set-resume-record-label-court-loss-rcna243642) - Nbcnews
+- [Brazil’s Viot expands global reach ahead of 2026 U.S. and European tour, plus upcoming single “Fyrah”](https://dancingastronaut.com/2025/11/brazils-viot-expands-global-reach-ahead-of-2026-u-s-and-european-tour-plus-upcoming-single-fyrah/) - Dancing Astronaut
+- [Anything to Stay Warm: A Dispatch From Iceland Airwaves](https://www.spin.com/2025/11/anything-to-stay-warm-a-dispatch-from-iceland-airwaves/) - SPIN
+- [Cruise Arrivals Could Fall 37% by 2027, Industry Warns - Iceland Review](https://www.icelandreview.com/news/cruise-arrivals-could-fall-37-by-2027-industry-warns/) - Icelandreview
+- [Villanelle Have Arrived To Bring Back The Glory Days of Nineties Grunge](http://www.rollingstone.com/music/music-features/villanelle-band-new-single-measly-means-1235463013/) - Rolling Stone
+- [374 Bagpipers Set World Record by Playing AC/DC Classic in Melbourne: Watch](https://consequence.net/2025/11/bagpipers-melbourne-ac-dc-world-record/) - Consequence.net
+- [Bagpipers claim world record with AC/DC’s ‘It’s a Long Way to the Top’](https://www.bostonherald.com/2025/11/12/australia-bagpipes-record/) - Boston Herald
+- [Bagpipers claim world record with AC/DC's 'It's a Long Way to the Top'](https://japantoday.com/category/entertainment/bagpipers-claim-world-record-with-ac-dc%27s-%27it%27s-a-long-way-to-the-top%27) - Japan Today
+- [Bagpipers claim world record with AC/DC’s ‘It’s a Long Way to the Top’ - AP News](https://apnews.com/article/australia-bagpipes-world-record-acdc-78d64553759cfcbfb482c2b7b4e6f9f2) - Apnews
+- [Bagpipers claim world record with AC/DC's 'It's a Long Way to the Top' - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/bagpipers-claim-world-record-with-ac-dc-s-it-s-a-21168199.php) - Sfchronicle
+- [Hundreds of bagpipers, including 98-year-old, break world record with rendition of AC/DC’s ‘It’s a Long Way to the Top’ - New York Post](https://nypost.com/2025/11/12/entertainment/hundreds-of-bagpipers-break-world-record-with-ac-dcs-its-a-long-way-to-the-top/) - Nypost
+- [Bagpipers claim world record with AC/DC's 'It's a Long Way to the Top' - abcnews.go.com](https://abcnews.go.com/Entertainment/wireStory/bagpipers-claim-world-record-acdcs-long-top-127442296) - Go
+- [Megan Thee Stallion Says She’d “Really Love” To Perform At The Super Bowl Halftime Show Someday](https://www.rap-up.com/article/megan-thee-stallion-manifesting-super-bowl-halftime-show) - Rap-Up.com
+- [Owning the Beat With Wyclef Jean, Jason Ma, and Madeline Nelson](https://www.adweek.com/brand-marketing/owning-the-beat-with-wyclef-jean-jason-ma-and-madeline-nelson/) - Adweek
+- [Humans Can No Longer Tell AI Music from the Real Thing: Survey](https://www.breitbart.com/entertainment/2025/11/12/humans-can-no-longer-tell-ai-music-from-the-real-thing-survey/) - Breitbart News
+- [Humans can no longer tell AI music from the real thing: survey](https://japantoday.com/category/tech/humans-can-no-longer-tell-ai-music-from-the-real-thing-survey1) - Japan Today
+- [AI Music Fools Most People, and They're Not Happy About It - CNET](https://www.cnet.com/tech/services-and-software/ai-music-fools-most-people-and-theyre-not-happy-about-it/) - Cnet
+- [People Can’t Tell If a Song Is AI-Generated, and That’s Why It’s Going to Be Inescapable - Gizmodo](https://gizmodo.com/people-cant-tell-if-a-song-is-ai-generated-and-thats-why-its-going-to-be-inescapable-2000684711) - Gizmodo
+- [Deezer Now Says It Receives Roughly 50,000 New Fully AI-Generated Songs Daily - Billboard](https://www.billboard.com/pro/deezer-ai-music-report-streamer-ai-songs-daily/) - Billboard
+- [The settlement between Universal and Udio is a win for musicians everywhere - Music Business Worldwide](https://www.musicbusinessworldwide.com/the-settlement-between-universal-and-udio-is-a-win-for-musicians-everywhere/) - Musicbusinessworldwide
+- [The Resurgence Of Music On Physical Objects](https://www.thetonearm.com/xeno-masculinity-and-the-return-of-physical-music/) - Thetonearm.com
+- [Waukegan record store to celebrate first anniversary: ‘A lot of people say it sounds better’ - Chicago Tribune](https://www.chicagotribune.com/2025/11/04/waukegan-record-store/) - Chicagotribune
+- [Trend alert: High-tech Bluetooth CD players make me nostalgic for the mix tape era - Mashable](https://mashable.com/article/high-tech-bluetooth-cd-players-trend) - Mashable
+- [Kehlani Wanted Usher On The “Folded” Remix, Confirms They’ve Got "A Little Something" On The Way](https://www.rap-up.com/article/kehlani-usher-collaboration-2026-album) - Rap-Up.com
+- [The Best Grunge Song by 5 Hair Metal Bands](https://loudwire.com/hair-metal-bands-grunge-songs/) - Loudwire
+- [Tencent Music Entertainment Reports 27% Revenue Growth in Q3, Driven by Subscriptions and Live Events](https://variety.com/2025/music/news/tencent-music-q3-revenue-2025-1236577827/) - Variety
