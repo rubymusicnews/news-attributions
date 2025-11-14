@@ -1,0 +1,40 @@
+# Sources for 2025-11-14 News Episode 
+- [BTS leader RM teases that the K-pop group's new music is 'coming out great'](https://cnalifestyle.channelnewsasia.com/entertainment/bts-rm-new-music-473851) - CNA
+- [Why more than 1,000 musicians are boycotting Israel with 'No Music for Genocide'](https://www.npr.org/2025/11/13/nx-s1-5599908/no-music-for-genocide-israel-boycott) - NPR
+- [Why more than 1,000 musicians are boycotting Israel with 'No Music for Genocide' - Ideastream](https://www.ideastream.org/npr-news/2025-11-13/why-more-than-1-000-musicians-are-boycotting-israel-with-no-music-for-genocide) - Ideastream
+- [AC/DC Shook Melbourne So Hard Earthquake-Detectors Picked It Up](http://www.rollingstone.com/music/music-news/ac-dc-shook-melbourne-earthquake-detector-power-up-tour-1235464443/) - Rolling Stone
+- [“He was the Mad Max of rock’n’roll!” Lemmy is on the cover of the new Metal Hammer](https://www.loudersound.com/bands-artists/motorhead-lemmy-cover-metal-hammer-issue-407-2025) - Louder
+- [Bad Bunny in box seat as Latin Grammys hit Vegas](https://www.digitaljournal.com/world/bad-bunny-in-box-seat-as-latin-grammys-hit-vegas/article) - Digital Journal
+- [Bad Bunny in box seat as Latin Grammys hit Vegas](https://www.digitaljournal.com/entertainment/bad-bunny-in-box-seat-as-latin-grammys-hit-vegas/article) - Digital Journal
+- [2025 Latin Grammys recap— Bad Bunny wins album of the year, Karol G shuts down critics - USA Today](https://www.usatoday.com/live-story/entertainment/music/2025/11/13/latin-grammys-2025-live/87240090007/) - Usatoday
+- [Everything you need to know about the 2025 Latin Grammy Awards. Here's how to watch - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/everything-you-need-to-know-about-the-2025-latin-21154749.php) - Sfchronicle
+- [Billboard Says AI-Generated 'Artists' Now Top the Charts Weekly – Will Spotify Even Do Anything About it?](https://biztoc.com/x/5fc4ecb6cbeafd2b) - Biztoc.com
+- [How 'fraudulent' AI music is fooling most of us](https://news.sky.com/story/a-third-of-daily-music-uploads-are-ai-generated-and-97-of-people-cant-tell-the-difference-says-report-13469818) - Sky.com
+- [AI Song Tops Billboard Chart – Why We Need Transparency NOW - - Saving Country Music](https://savingcountrymusic.com/ai-song-tops-billboard-chart-why-we-need-transparency-now/) - Savingcountrymusic
+- [AI music is charting weekly as Billboard claims trend is “quickly accelerating” - Dexerto](https://www.dexerto.com/entertainment/ai-music-is-charting-weekly-as-billboard-claims-trend-is-quickly-accelerating-3278506/) - Dexerto
+- [AI Music Fools Most People, and They're Not Happy About It - CNET](https://www.cnet.com/tech/services-and-software/ai-music-fools-most-people-and-theyre-not-happy-about-it/) - Cnet
+- [AI artists blow up on country music chart - Axios](https://www.axios.com/local/nashville/2025/11/13/ai-artists-dominate-country-music-chart-nashville-songwriters) - Axios
+- [Little Feat Announce Final Tour, Share New Song With Inara George: Listen](https://pitchfork.com/news/little-feat-announce-final-tour-share-new-song-with-inara-george-listen/) - Pitchfork
+- [Massive Attack Promise New Music for 2026](https://pitchfork.com/news/massive-attack-promise-new-music-for-2026/) - Pitchfork
+- [The 2025 Latin Grammy Awards are almost here. Here's what to expect and how to watch](https://abcnews.go.com/Entertainment/wireStory/2025-latin-grammy-awards-expect-watch-127477762) - ABC News
+- [How to Watch the 2025 Latin Grammys Tonight](https://www.today.com/popculture/awards/how-to-watch-latin-grammys-2025-rcna243354) - TODAY
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - AP News](https://apnews.com/article/latin-grammys-2025-42dc4af01c917740b60fe585c09f6d1b) - Apnews
+- [Bad Bunny wins album of the year at 2025 Latin Grammys - Iowa Public Radio](https://www.iowapublicradio.org/2025-11-14/bad-bunny-wins-album-of-the-year-at-2025-latin-grammys) - Iowapublicradio
+- [Elegance, Flow & Afro-Caribbean Flair: Rauw Alejandro Brings Puerto Rican Pride to Latin Grammys 2025 Stage - Billboard](https://www.billboard.com/music/latin/rauw-alejandro-latin-grammys-2025-puerto-rican-pride-1236112773/) - Billboard
+- [Everything you need to know about the 2025 Latin Grammy Awards. Here's how to watch - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/everything-you-need-to-know-about-the-2025-latin-21154749.php) - Sfchronicle
+- [Tokischa Says She Married Nathy Peluso, Talks New Album & More \| Latin Grammys 2025 - Yahoo](https://www.yahoo.com/entertainment/videos/tokischa-says-she-married-nathy-003453029.html) - Yahoo
+- [Yandel Talks About His SINFÓNICO Tour & New Album 'INFINITO' \| Latin Grammys 2025 - Yahoo](https://www.yahoo.com/entertainment/videos/yandel-talks-sinf-nico-tour-003522576.html) - Yahoo
+- [Taylor Swift: The Eras Tour Docuseries Chronicles "The End of an Era"](https://bleedingcool.com/tv/taylor-swift-the-eras-tour-docuseries-chronicles-the-end-of-an-era/) - Bleeding Cool News
+- [Here’s a first proper glimpse of Taylor Swift’s upcoming docuseries, ‘End Of An Era’ - Vogue Australia](https://www.vogue.com.au/culture/heres-a-first-proper-glimpse-of-taylor-swifts-upcoming-docuseries-end-of-an-era/news-story/77cb7baccd1ed62314e0d2c558316109) - Vogue
+- [Taylor Swift's Eras Tour Docuseries Trailer: New 'End of an Era' Footage Includes Travis Kelce, Sabrina Carpenter and Surprise Song Planning - Variety](https://au.variety.com/2025/music/trailers/taylor-swift-eras-tour-doc-trailer-travis-kelce-sabrina-carpenter-29955/) - Variety
+- [Taylor Swift drops ‘Eras Tour’ doc trailer, with ‘mysterious forces at play’ - CNN](https://www.cnn.com/2025/11/13/entertainment/taylor-swift-eras-tour-documentary-trailer) - Cnn
+- [Taylor Swift’s ‘The End of an Era’ Trailer Gives Intimate Look Into Swift (and Travis Kelce) on Record-Breaking Tour - The Hollywood Reporter](https://www.hollywoodreporter.com/tv/tv-news/taylor-swift-doc-the-end-of-an-era-trailer-disney-1236426077/) - Hollywoodreporter
+- [K-pop band NewJeans set to resume with record label after court loss](https://www.nbcnews.com/world/asia/k-pop-band-newjeans-set-resume-record-label-court-loss-rcna243642) - NBC News
+- [NewJeans to Return to Label Following Legal Dispute](https://pitchfork.com/news/newjeans-to-return-to-label-following-legal-dispute/) - Pitchfork
+- [Three remaining NewJeans members to return to ADOR, ending year-long K-pop clash - Korea JoongAng Daily](https://koreajoongangdaily.joins.com/news/2025-11-12/entertainment/kpop/Three-remaining-NewJeans-members-to-return-to-ADOR-ending-yearlong-Kpop-clash/2442958) - Joins
+- [Hyein and Haerin rejoin ADOR, remaining NewJeans members still in limbo - Korea JoongAng Daily](https://koreajoongangdaily.joins.com/news/2025-11-12/entertainment/kpop/Hyein-and-Haerin-rejoin-ADOR-battle-continues-for-the-remaining-three/2442823) - Joins
+- [NewJeans: All members of K-pop group set to return to label after legal battle - BBC](https://www.bbc.com/news/articles/cd9k54yejxjo) - Bbc
+- [NewJeans Members Haerin And Hyein To Return To HYBE’s ADOR Label - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/11/12/newjeans-members-haerin-and-hyein-to-return-to-hybes-ador-label/) - Forbes
+- [Jisoo Joins Her Blackpink Bandmates With A Historic New Radio Hit](https://www.forbes.com/sites/hughmcintyre/2025/11/13/jisoo-joins-her-blackpink-bandmates-with-a-historic-new-radio-hit/) - Forbes
+- [ローリング・ストーンズ『Black And Blue』スーパー・デラックス・エディションのデジタル版　全曲公開](https://amass.jp/186227/) - Amass.jp
+- [安迪之夢 (评论: The Velvet Underground & Nico)](https://music.douban.com/review/17197711/) - Douban.com
