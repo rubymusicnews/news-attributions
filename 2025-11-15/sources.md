@@ -1,0 +1,55 @@
+# Sources for 2025-11-15 News Episode 
+- [Bad Bunny wins album of the year at 2025 Latin Grammys](https://www.npr.org/2025/11/14/nx-s1-5605433/2025-latin-grammy-awards-bad-bunny) - NPR
+- [Bad Bunny wins Album of the Year as rapper dominates 2025 Latin Grammys](https://www.the-independent.com/arts-entertainment/music/news/bad-bunny-latin-grammys-album-year-b2865228.html) - The-independent.com
+- [Watch Bad Bunny Perform “Weltita” at 2025 Latin Grammys](https://pitchfork.com/news/watch-bad-bunny-perform-weltita-at-2025-latin-grammys/) - Pitchfork
+- [Bad Bunny Closes Latin Grammys With First Album of the Year Win](http://www.rollingstone.com/music/music-latin/bad-bunny-wins-latin-grammy-album-of-the-year-dtmf-1235464993/) - Rolling Stone
+- [Latin Grammys 2025 Winners: Bad Bunny, Karol G & More Shine - Jobaaj](https://news.jobaaj.com/news-updates/entertainment/latin-grammys-2025-winners-bad-bunny-karol-g-more-shine) - Jobaaj
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - AP News](https://apnews.com/article/latin-grammys-2025-42dc4af01c917740b60fe585c09f6d1b) - Apnews
+- [Latin Grammys 2025 Winners: The Complete List](http://www.rollingstone.com/music/music-news/latin-grammys-2025-winners-complete-list-1235464637/) - Rolling Stone
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - AP News](https://apnews.com/article/latin-grammys-2025-42dc4af01c917740b60fe585c09f6d1b) - Apnews
+- [Latin Grammys 2025 Winners: Bad Bunny, Karol G & More Shine - Jobaaj](https://news.jobaaj.com/news-updates/entertainment/latin-grammys-2025-winners-bad-bunny-karol-g-more-shine) - Jobaaj
+- [Bad Bunny wins album of the year at 2025 Latin Grammys - Iowa Public Radio](https://www.iowapublicradio.org/2025-11-14/bad-bunny-wins-album-of-the-year-at-2025-latin-grammys) - Iowapublicradio
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/bad-bunny-wins-album-year-2025-latin-grammys-capping-electric-night-rcna243875) - Nbcnews
+- [Latin Grammy Awards 2025 Winners — Full List](http://deadline.com/2025/11/latin-grammy-awards-2025-winners-1236617219/) - Deadline
+- [Everything you need to know about the 2025 Latin Grammy Awards. Here's how to watch - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/everything-you-need-to-know-about-the-2025-latin-21154749.php) - Sfchronicle
+- [Latin Grammys 2025 Winners: Bad Bunny, Karol G & More Shine - Jobaaj](https://news.jobaaj.com/news-updates/entertainment/latin-grammys-2025-winners-bad-bunny-karol-g-more-shine) - Jobaaj
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - AP News](https://apnews.com/article/latin-grammys-2025-42dc4af01c917740b60fe585c09f6d1b) - Apnews
+- [Bad Bunny wins album of the year at 2025 Latin Grammys - Iowa Public Radio](https://www.iowapublicradio.org/2025-11-14/bad-bunny-wins-album-of-the-year-at-2025-latin-grammys) - Iowapublicradio
+- [Elegance, Flow & Afro-Caribbean Flair: Rauw Alejandro Brings Puerto Rican Pride to Latin Grammys 2025 Stage - Billboard](https://www.billboard.com/music/latin/rauw-alejandro-latin-grammys-2025-puerto-rican-pride-1236112773/) - Billboard
+- [Tokischa Says She Married Nathy Peluso, Talks New Album & More \| Latin Grammys 2025 - Yahoo](https://www.yahoo.com/entertainment/videos/tokischa-says-she-married-nathy-003453029.html) - Yahoo
+- [Yandel Talks About His SINFÓNICO Tour & New Album 'INFINITO' \| Latin Grammys 2025 - Yahoo](https://www.yahoo.com/entertainment/videos/yandel-talks-sinf-nico-tour-003522576.html) - Yahoo
+- [Megadeth Hits No. 1 Shortly Before Calling It Quits](https://www.forbes.com/sites/hughmcintyre/2025/11/14/megadeth-hits-no-1-shortly-before-calling-it-quits/) - Forbes
+- [Maybe Dave Mustaine Should Have Cared a Bit More when Writing Megadeth’s New Single](https://www.metalsucks.net/2025/11/14/maybe-dave-mustaine-should-have-cared-a-bit-more-when-writing-megadeths-new-single/) - MetalSucks
+- [Megadeth Premiere New Single & Music Video "I Don’t Care" From Upcoming Self-Titled Farewell Album](http://www.metalunderground.com/news/details.cfm?newsid=160439) - Metalunderground.com
+- [Megadeth To Bow Out With Self-Titled Final Album Featuring A New Edition Of His Metallica Song ‘Ride The Lightning - Noise11.com](https://www.noise11.com/news/megadeth-final-album-metallica-ride-the-lightning-20251104) - Noise11
+- [2025 KBS Song Festival Announces Date, Venue, And MC Lineup](http://www.soompi.com/article/1797727wpp/2025-kbs-song-festival-announces-date-venue-and-mc-lineup) - soompi
+- [2025 KBS Song Festival Announces Date, Venue, And MC Lineup](https://www.soompi.com/article/1797727wpp/2025-kbs-song-festival-announces-date-venue-and-mc-lineup) - Soompi
+- [Jang Do Yeon, Moon Sang Min, & ILLIT's Minju to host the '2025 ...](https://www.allkpop.com/article/2025/11/jang-do-yeon-moon-sang-min-illits-minju-to-host-the-2025-kbs-gayo-festival) - Allkpop
+- [Liniker wins 3 Latin Grammys—becomes most-winning trans woman in Grammy history](https://www.out.com/gay-music/liniker-latin-grammys-2025-wins-trans-history) - Out.com
+- [Bad Bunny wins album of the year at 2025 Latin Grammys - Iowa Public Radio](https://www.iowapublicradio.org/2025-11-14/bad-bunny-wins-album-of-the-year-at-2025-latin-grammys) - Iowapublicradio
+- [Bad Bunny wins album of the year at 2025 Latin Grammys - NPR](https://www.npr.org/2025/11/14/nx-s1-5605433/2025-latin-grammy-awards-bad-bunny) - Npr
+- [Oasis Reunion Tour 2025: A Blockbuster Success Explained](https://screenrant.com/oasis-tour-2025-is-over-new-music-could-be-next/) - Screen Rant
+- [As AI-Artist Xania Monet Climbs the Charts, Victoria Monét’s Caught in the Uncanny Valley](https://www.vanityfair.com/culture/story/victoria-monet-xania-monet-ai-artist) - Vanity Fair
+- [A mysterious stranger rode into town and topped a country music chart. He might not be real. - NBC News](https://www.nbcnews.com/tech/tech-news/mysterious-stranger-rode-town-topped-country-music-chart-might-not-rea-rcna243098) - Nbcnews
+- [People Can’t Tell If a Song Is AI-Generated, and That’s Why It’s Going to Be Inescapable - Gizmodo](https://gizmodo.com/people-cant-tell-if-a-song-is-ai-generated-and-thats-why-its-going-to-be-inescapable-2000684711) - Gizmodo
+- [Creator Of Billboard -Charting AI Artist Xania Monet Reveals Herself: “I Look At Her As A Real Person” - Stereogum](https://www.stereogum.com/2328844/creator-of-billboard-charting-ai-artist-xania-monet-reveals-herself-i-look-at-her-as-a-real-person/news/) - Stereogum
+- [Meet the woman behind chart-topping AI artist Xania Monet: "I look at her as a real person" - CBS News](https://www.cbsnews.com/news/meet-the-woman-behind-chart-topping-ai-artist-xania-monet-i-look-at-her-as-a-real-person/) - Cbsnews
+- [AI music is charting weekly as Billboard claims trend is “quickly accelerating” - Dexerto](https://www.dexerto.com/entertainment/ai-music-is-charting-weekly-as-billboard-claims-trend-is-quickly-accelerating-3278506/) - Dexerto
+- [Buddy Guy, Larkin Poe, and the Cross-Generational Power of B.B. King’s Blues Summit 100](https://www.spin.com/2025/11/buddy-guy-larkin-poe-and-the-cross-generational-power-of-b-b-kings-blues-summit-100/) - SPIN
+- [HYBE Stock Shoots Up With News Of NewJeans’ Return To Company](https://www.forbes.com/sites/jeffbenjamin/2025/11/13/hybe-stock-shoot-up-with-news-of-newjeans-return-to-company/) - Forbes
+- [NewJeans Members Haerin And Hyein To Return To HYBE’s ADOR Label - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/11/12/newjeans-members-haerin-and-hyein-to-return-to-hybes-ador-label/) - Forbes
+- [K-pop band NewJeans set to resume with record label after court loss - NBC News](https://www.nbcnews.com/world/asia/k-pop-band-newjeans-set-resume-record-label-court-loss-rcna243642) - Nbcnews
+- [Hyein and Haerin rejoin ADOR, remaining NewJeans members still in limbo - Korea JoongAng Daily](https://koreajoongangdaily.joins.com/news/2025-11-12/entertainment/kpop/Hyein-and-Haerin-rejoin-ADOR-battle-continues-for-the-remaining-three/2442823) - Joins
+- [Watch Karol G and Marco Antonio Solís Perform “Coleccionando Heridas” at 2025 Latin Grammys](https://pitchfork.com/news/watch-karol-g-and-marco-antonio-solis-perform-coleccionando-heridas-at-2025-latin-grammys/) - Pitchfork
+- [Karol Shoots Back at Haters During Passionate Latin Grammy Speech: ‘I Was Born For This’](http://www.rollingstone.com/music/music-latin/karol-g-latin-grammy-song-of-the-year-speech-1235464982/) - Rolling Stone
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/bad-bunny-wins-album-year-2025-latin-grammys-capping-electric-night-rcna243875) - Nbcnews
+- [2025 Latin Grammys recap— Bad Bunny wins album of the year, Karol G shuts down critics - USA Today](https://www.usatoday.com/live-story/entertainment/music/2025/11/13/latin-grammys-2025-live/87240090007/) - Usatoday
+- [Snubs & Surprises at Latin Grammy Awards 2025 - Billboard](https://www.billboard.com/lists/latin-grammy-awards-2025-snubs-surprises/) - Billboard
+- ["What would Van Gogh be worth if he had other artists dabbing their paint brushes on his canvas?" How Trent Reznor wrote Nine Inch Nails' first big hit - and why it annoyed the hell out of him](https://www.loudersound.com/music/tracks-singles/the-story-of-head-like-a-hole-nine-inch-nails) - Louder
+- [Whitesnake Frontman David Coverdale Announces Retirement: “Time For Me To Call It A Day”](http://deadline.com/2025/11/david-coverdale-retires-whitesnake-singer-founder-1236617177/) - Deadline
+- [Whitesnake Rocker Davide Coverdale Announces Retirement](https://dailycaller.com/2025/11/14/rocker-whitesnake-david-coverdale-retirement-deep-purple/) - The Daily Caller
+- [Whitesnake Frontman David Coverdale Announces Retirement: “Time For Me To Call It A Day” - Deadline](https://deadline.com/2025/11/david-coverdale-retires-whitesnake-singer-founder-1236617177/) - Deadline
+- [Whitesnake founder David Coverdale says it's 'time for me to call it a day' after five-decade career - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-14/whitesnake-david-coverdale-retiring) - Latimes
+- ["We've taken care of the lion's wig": Deep Purple and Whitesnake legend David Coverdale announces retirement - Louder](https://www.loudersound.com/bands-artists/david-coverdale-announces-retirement) - Loudersound
+- [Whitesnake frontman David Coverdale announces retirement from music: ‘Time for me to call it a day’ - New York Post](https://nypost.com/2025/11/14/entertainment/whitesnake-frontman-david-coverdale-announces-retirement-from-music/) - Nypost
+- [How Wale Built A Career Before Monetization Was Even The Plan](https://www.forbes.com/sites/imeekpo/2025/11/13/how-wale-built-a-career-before-monetization-was-even-the-plan/) - Forbes
