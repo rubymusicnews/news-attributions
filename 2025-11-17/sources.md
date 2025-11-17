@@ -1,0 +1,30 @@
+# Sources for 2025-11-17 News Episode 
+- [Taylor Swift’s Current Smash Beats Two Of Her Most Famous No. 1 Smashes](https://www.forbes.com/sites/hughmcintyre/2025/11/16/taylor-swifts-current-smash-beats-two-of-her-most-famous-no-1-smashes/) - Forbes
+- [Taylor Swift Joins Katy Perry And The Beatles In A Major Chart Feat - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/08/taylor-swift-joins-katy-perry-and-the-beatles-in-a-major-chart-feat/) - Forbes
+- [The Fast Rise, Long Decline, and Agonizing Downfall of the MTV Empire](http://www.rollingstone.com/music/music-features/the-fast-rise-and-slow-decline-of-mtv-1235465957/) - Rolling Stone
+- [The Fast Rise, Long Decline, and Agonizing Downfall of the MTV Empire - Rolling Stone](https://www.rollingstone.com/music/music-features/the-fast-rise-and-slow-decline-of-mtv-1235465957/) - Rollingstone
+- [Rebuilding A Linear TV Network: Maybe Not Just With Sports 11/07/2025 - MediaPost](https://www.mediapost.com/publications/article/410523/rebuilding-a-linear-tv-network-maybe-not-just-wit.html?edition=140527) - Mediapost
+- [Jerry Jones' daughter defends choice of Bad Bunny for Super Bowl show: "It's going to be amazing"](https://www.marca.com/en/nfl/dallas-cowboys/2025/11/16/691a468122601d6e168b4579.html) - Marca
+- [Bad Bunny, ICE presence at Super Bowl spark dueling petitions topping 180,000 signatures - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/super-bowl-bad-bunny-ice-raid-21143299.php) - Sfchronicle
+- [‘Selena y Los Dinos’: Candid footage captured by late singer’s sister is the treasured heart of a new Netflix doc](https://www.cnn.com/2025/11/16/entertainment/selena-quintanilla-perez-netflix-documentary) - CNN
+- [In ‘Selena Y Los Dinos,” Never-Seen Home Videos Capture Star’s Charm And Vision](https://www.forbes.com/sites/veronicavillafane/2025/11/16/in-selena-y-los-dinos-never-seen-home-videos-capture-stars-charm-and-vision/) - Forbes
+- [Selena’s Husband Chris Pérez Says 'Not a Day Goes By' That He Doesn’t Think of Her: 'Can Hear Her in My Head' (Exclusive) - Yahoo](https://www.yahoo.com/entertainment/music/articles/selena-husband-chris-p-rez-150000522.html) - Yahoo
+- [Netflix doc on Selena Quintanilla-Pérez comes straight from family vault - New York Post](https://nypost.com/2025/11/14/entertainment/netflix-doc-on-selena-quintanilla-perez-comes-straight-from-family-vault/) - Nypost
+- [Yungblud to break from tour until 2026 for health reasons](https://www.bbc.co.uk/news/articles/cpq1g7n08ero) - BBC News
+- [Yungblud Cancels Remainder of 2025 Tour Dates: ‘I Have Been Ordered by My Doctor to Take a Break’](http://www.rollingstone.com/music/music-news/yungblud-cancels-remainder-2025-tour-dates-health-check-1235465942/) - Rolling Stone
+- [Yungblud to break from tour until 2026 for health reasons](https://www.bbc.com/news/articles/cpq1g7n08ero) - BBC News
+- [Yungblud to break from touring after medical advice](https://www.rte.ie/entertainment/2025/1116/1544259-yungblud-to-break-from-touring-after-medical-advice/) - RTE
+- [Rock Star in Crisis: Yungblud Cancels The Rest of His 2025 Tour After Shock Medical Warning From Doctors](https://radaronline.com/p/yungblud-cancels-2025-tour-shock-medical-warning-doctors/) - Radaronline.com
+- [Yungblud cancels tour dates after shock health warning](https://www.the-independent.com/arts-entertainment/music/news/yungblud-shows-cancelled-health-update-b2866156.html) - The-independent.com
+- [Yungblud cancels remaining tour dates on doctor's orders after concerning health test results](https://www.foxnews.com/entertainment/yungblud-cancels-remaining-tour-dates-doctors-orders-concerning-health-test-results) - Fox News
+- [Soompi’s K-Pop Music Chart 2025, November Week 3](http://www.soompi.com/article/1798200wpp/soompis-k-pop-music-chart-2025-november-week-3) - soompi
+- [Alt-rock legends Deftones announce one-off New Zealand show](https://www.nzherald.co.nz/entertainment/alt-rock-legends-deftones-announce-one-off-new-zealand-show/KBO3BQ5JCZBPTFQEXPDRQEDSFE/) - New Zealand Herald
+- ["I came in like, ‘Doc, I know you like Rush. I’m in a metal band, we’re flying out in a week to go do one of our biggest shows in a long time. Any way you can help me out?’" An interview with metal's busiest man, Matt Heafy](https://www.loudersound.com/bands-artists/trivium-matt-heafy-interview-2025) - Louder
+- [TXT’s Yeonjun Debuts In Top 10 Of Billboard 200 + Takes No. 1 On Top Album Sales Chart](http://www.soompi.com/article/1798351wpp/txts-yeonjun-debuts-in-top-10-of-billboard-200-takes-no-1-on-top-album-sales-chart) - soompi
+- [Kraftwerk’s equipment defined electronic music. Now it’s on sale to the highest bidder](https://theconversation.com/kraftwerks-equipment-defined-electronic-music-now-its-on-sale-to-the-highest-bidder-268770) - The Conversation Africa
+- [Scorpions’ Klaus Meine on Changing Lyrics to “Wind of Change”](https://www.metalsucks.net/2025/11/16/scorpions-klaus-meine-on-changing-lyrics-to-wind-of-change/) - MetalSucks
+- [Watch: Performances From 2025 KGMA (Korea Grand Music Awards) Day 2](http://www.soompi.com/article/1798342wpp/watch-performances-from-2025-kgma-korea-grand-music-awards-day-2) - soompi
+- [Post Malone and Jack White to perform in NFL Thanksgiving halftime shows](https://www.the-independent.com/arts-entertainment/music/news/post-malone-jack-white-nfl-thanksgiving-halftime-b2866327.html) - The-independent.com
+- [2025 Lions Thanksgiving halftime show to feature local HOF rock star - Pride Of Detroit](https://www.prideofdetroit.com/detroit-lions-news/149106/2025-detroit-lions-thanksgiving-halftime-show-to-feature-hall-of-famer-rock-star) - Prideofdetroit
+- [Post Malone, Jack White to Perform Thanksgiving Halftime Show for Cowboys, Lions Games - Bleacher Report](https://bleacherreport.com/articles/25295593-post-malone-jack-white-perform-thanksgiving-halftime-show-cowboys-lions-games) - Bleacherreport
+- [LL Cool J: The pioneer who built a hip-hop empire](https://rollingout.com/2025/11/16/ll-cool-j-pioneer-built-hip-hop-empire/) - Rolling Out
