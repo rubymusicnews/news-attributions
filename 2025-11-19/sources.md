@@ -1,0 +1,31 @@
+# Sources for 2025-11-19 News Episode 
+- [Pink Floyd’s “Shine On You Crazy Diamond” Parts 1-9 Released as One Continuous Track for First Time: Stream](https://consequence.net/2025/11/pink-floyd-shine-on-you-crazy-diamond-parts-1-9/) - Consequence.net
+- [Pink Floyd share new stereo mix of Shine On You Crazy Diamond, presented for the first time as a single continuous piece of music](https://www.loudersound.com/bands-artists/pink-floyd-share-new-stereo-mix-of-shine-on-you-crazy-diamond-presented-for-the-first-time-as-a-single-continuous-piece-of-music) - Louder
+- [A Definitive Music Lover’s Gift Guide: Record Players, Books, Speakers, Vinyl and More - Variety](https://variety.com/2025/music/news/best-gifts-for-music-lovers-shop-online-1236583351/) - Variety
+- ["The sound of an enduring rock'n'roll firm updating the business": The Rolling Stones' first album without Mick Taylor, now available in super deluxe form](https://www.loudersound.com/bands-artists/the-rolling-stones-black-and-blue-super-deluxe) - Louder
+- [10 Acts to See at Rolling Loud India’s 2026 Festival Debut](https://consequence.net/2025/11/10-acts-to-see-rolling-loud-india/) - Consequence.net
+- [Drake Gets ‘Max Offer’ to Perform at Rolling Loud ‘Every Year,’ Festival’s Co-Founder Says - Billboard](https://www.billboard.com/music/rb-hip-hop/rolling-loud-drake-max-offer-1236115342/) - Billboard
+- [Here Are The Classical Grammy Nominations For 2026 (In Case You Missed Them)](https://moto-perpetuo.com/2026-classical-grammy-nominations/) - Moto-perpetuo.com
+- [The 2026 Grammy Nominations - Vulture](https://www.vulture.com/article/grammy-nominations-2026.html) - Vulture
+- [Host Austria seeks Eurovision compromise on Israel](https://www.rte.ie/entertainment/2025/1118/1544627-host-austria-seeks-eurovision-compromise-on-israel/) - RTE
+- ['Inseparable part of the contest': Austrian broadcaster backs Israel’s place in Eurovision ahead of EBU talks - Ynetnews](https://www.ynetnews.com/culture/article/rysis5ajbg) - Ynetnews
+- [Eurovision host Austria backs Israel's participation at what it hopes will be record event - Ynetnews](https://www.ynetnews.com/culture/article/h1ihte9l11e) - Ynetnews
+- [FKA Twigs Signs With UTA](http://deadline.com/2025/11/fka-twigs-signs-uta-1236620718/) - Deadline
+- [Southbank Centre x Montreux Jazz Festival announce 2026 edition of Residency celebrating Miles Davis](https://www.thelineofbestfit.com/news/southbank-centre-x-montreux-jazz-festival-announce-2026-edition-of-residency-celebrating-miles-davis) - Thelineofbestfit.com
+- [Milli Vanilli used to be Grammys poison… but not anymore](https://www.npr.org/2025/11/18/nx-s1-5612225/grammys-milli-vanilli-fab-morvan) - NPR
+- [Father John Misty Announces 2026 Tour Dates](https://pitchfork.com/news/father-john-misty-announces-2026-tour-dates/) - Pitchfork
+- [Ariana Grande Says Upcoming Tour Will Be Her “One Last Hurrah”](https://consequence.net/2025/11/ariana-grande-eternal-sunshine-tour-last-hurrah/) - Consequence.net
+- [Ariana Grande Says She Probably Won’t Tour Again, Calls ‘Eternal Sunshine’ Her ‘Last Hurrah’ \| Video](https://www.thewrap.com/ariana-grande-eternal-sunshine-last-tour/) - TheWrap
+- [Ariana Grande Describes Upcoming Tour as 'One Last Hurrah,' Might Not Happen Again for 'Long, Long Time'](https://www.justjared.com/2025/11/18/ariana-grande-describes-upcoming-tour-as-one-last-hurrah-might-not-happen-again-for-long-long-time/) - Just Jared
+- [Ariana Grande Says Her 'Eternal Sunshine' Tour Is The "Last Hurrah": "I'm Going To Give It My All" - Deadline](https://deadline.com/2025/11/ariana-grande-eternal-sunshine-tour-last-hurrah-1236622148/) - Deadline
+- [Ariana Grande Says ‘Eternal Sunshine’ Tour Will Be Her ‘Last Hurrah’ - Billboard](https://www.billboard.com/music/music-news/ariana-grande-eternal-sunshine-tour-last-hurrah-1236116103/) - Billboard
+- [Exclusive: Ariana Grande tells TODAY her next ‘dream' after ‘Wicked' - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/ariana-grande-plans-after-wicked-broadway/6419998/) - Nbcnewyork
+- [Road Work: Hinterland, Zootown, Mötley Crüe](https://www.spin.com/2025/11/road-work-hinterland-zootown-motley-crue/) - SPIN
+- [Mötley Crüe Announce Summer 2026 North American Tour](https://consequence.net/2025/11/motley-crue-summer-2026-north-american-tour/) - Consequence.net
+- [MÖTLEY CRÜE, TESLA & EXTREME Announce Massive North American Tour](https://metalinjection.net/tour-dates/motley-crue-tesla-extreme-announce-massive-north-american-tour) - Metal Injection.net
+- [Mötley Crüe announce mammoth Carnival Of Sins tour with Tesla and Extreme](https://www.loudersound.com/bands-artists/motley-crue-announce-mammoth-carnival-of-sins-tour-with-tesla-and-extreme) - Louder
+- [Motley Crue Announce First 2026 North American Tour Dates](https://loudwire.com/motley-crue-first-2026-tour-dates/) - Loudwire
+- [Drake Explains Why His ‘Iceman’ Livestreams Attract Such “Overly Critical” Opinions](https://www.rap-up.com/article/drake-iceman-livestream-overly-critical-response) - Rap-Up.com
+- [Drake Opens Up About the Creative Process Behind His ‘Iceman’ Livestreams: ‘Dying for a Challenge’ - Billboard](https://www.billboard.com/music/rb-hip-hop/drake-explains-iceman-livestreams-1236115902/) - Billboard
+- ["Prepare yourselves for a night of epic music!" Voivod announce UK tour dates or June](https://www.loudersound.com/bands-artists/live-performances/prepare-yourselves-for-a-night-of-epic-music-voivod-announce-uk-tour-dates-or-june) - Louder
+- [Chappell Roan Was ‘Nervous’ for Mexico City Show: ‘I Wasn’t Sure If the Crowd Would Vibe With Me’](http://www.rollingstone.com/music/music-news/chappell-roan-mexico-city-show-nervous-1235466812/) - Rolling Stone
