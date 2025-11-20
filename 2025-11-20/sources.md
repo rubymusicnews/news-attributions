@@ -1,0 +1,51 @@
+# Sources for 2025-11-20 News Episode 
+- [Labrinth Makes a Pensive ‘IMPLOSION’ With New Song](http://www.rollingstone.com/music/music-news/labrinth-implosion-song-1235468100/) - Rolling Stone
+- [Ariana Grande Says Her ‘Eternal Sunshine’ Tour Is The “Last Hurrah”: “I’m Going To Give It My All”](http://deadline.com/2025/11/ariana-grande-eternal-sunshine-tour-last-hurrah-1236622148/) - Deadline
+- [“She’s Done”: Ariana Grande’s Cryptic “Last Hurrah” Announcement Leaves Fans Heartbroken](https://www.boredpanda.com/ariana-grande-retirement-announcement-leaves-fans-heartbroken/) - Boredpanda.com
+- [Ariana Grande Says ‘Eternal Sunshine’ Tour Will Be Her ‘Last Hurrah’ - Billboard](https://www.billboard.com/music/music-news/ariana-grande-eternal-sunshine-tour-last-hurrah-1236116103/) - Billboard
+- [Ariana Grande gives shocking update on music career after ‘Wicked: For Good’ - New York Post](https://nypost.com/2025/11/19/entertainment/ariana-grande-gives-shocking-music-update-after-wicked-for-good/) - Nypost
+- [Is 'Wicked' star Ariana Grande ending her music career? What she says about upcoming tour - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/19/ariana-grande-music-acting-career/87360902007/) - Usatoday
+- [Ariana Grande Says Her 'Eternal Sunshine' Tour Is The "Last Hurrah": "I'm Going To Give It My All" - Deadline](https://deadline.com/2025/11/ariana-grande-eternal-sunshine-tour-last-hurrah-1236622148/) - Deadline
+- [Exclusive: Ariana Grande tells TODAY her next ‘dream' after ‘Wicked' - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/ariana-grande-plans-after-wicked-broadway/6419998/) - Nbcnewyork
+- [AI Music Generator Suno Valued At $2.45 Billion—Here’s Why It’s Controversial](https://www.forbes.com/sites/conormurray/2025/11/19/ai-music-generator-suno-valued-at-245-billion-heres-why-its-controversial/) - Forbes
+- [Legally embattled AI music startup Suno raises at $2.45B valuation on $200M revenue - TechCrunch](https://techcrunch.com/2025/11/19/legally-embattled-ai-music-startup-suno-raises-at-2-45b-valuation-on-200m-revenue/) - Techcrunch
+- [AI music company Suno valued at $2.45 billion in latest funding round - Reuters](https://www.reuters.com/business/media-telecom/ai-music-company-suno-valued-245-billion-latest-funding-round-2025-11-19/) - Reuters
+- [Michael Jackson’s Last Major Hit Returns For The First Time In Decades](https://www.forbes.com/sites/hughmcintyre/2025/11/19/michael-jacksons-last-major-hit-returns-for-the-first-time-in-decades/) - Forbes
+- [Michael Jackson Blocked From Charting A New No. 1 Hit - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/11/michael-jackson-blocked-from-charting-a-new-no-1-hit/) - Forbes
+- [Michael Jackson’s ‘Thriller’ Returns, Taboo & His Daughter Give Their Take on Hot 100 \| Hot 100 Show - Billboard](https://www.billboard.com/video/michael-jackson-thriller-returns-taboo-hot-100-show/) - Billboard
+- [Billboard Hot 100 Top 10 Countdown for Nov. 15, 2025 \| Billboard News - Billboard](https://www.billboard.com/video/billboard-hot-100-top-10-countdown-november-15-2025/) - Billboard
+- [Michael Jackson’s “Thriller” Returns To U.K. Charts After Halloween - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/04/michael-jacksons-annual-surge-concludes-with-multiple-smashes-returning/) - Forbes
+- [Michael Jackson's music sets a new record on the pop charts - NPR](https://www.npr.org/2025/11/13/nx-s1-5607016/michael-jacksons-music-sets-a-new-record-on-the-pop-charts) - Npr
+- [The Beatles Anthology, cosa c’è nei nuovi 4 volumi e nel documentario inedito](https://www.ilsole24ore.com/art/the-beatles-anthology-cosa-c-e-nuovi-4-volumi-e-documentario-inedito-AHIAmDqD) - Il Sole 24 Ore
+- [Disney+ Debuts Trailer For Restored ‘The Beatles Anthology’ Ahead of Streaming Debut - billboard.com](https://www.billboard.com/music/pop/disney-plus-trailer-restored-beatles-anthology-streaming-watch-1236114717/) - Billboard
+- [How to watch CMA Awards 2025 online for free from anywhere – plus performances from Keith Urban and Shaboozey](https://www.techradar.com/how-to-watch/tv-shows/cma-awards-2025) - TechRadar
+- [What Time Do The CMA Awards 2025 Start? Here’s How To Watch Tonight](https://www.forbes.com/sites/monicamercuri/2025/11/19/what-time-do-the-cma-awards-2025-start-heres-how-to-watch-tonight/) - Forbes
+- [The 2025 Country Music Association Awards are almost here: How to watch](https://www.bostonherald.com/2025/11/19/2025-country-music-awards-info/) - Boston Herald
+- [Megan Moroney Talks Inspiration Behind ‘Cloud 9’ & CMA Nominations \| CMA Awards 2025 - Billboard](https://www.billboard.com/video/megan-moroney-talks-cloud-9-cma-nominations-cma-awards-2025/) - Billboard
+- [CMA Awards 2025: Full list of nominations, from Entertainer of the Year to Album of the Year - Yahoo](https://www.yahoo.com/entertainment/article/cma-awards-2025-full-list-of-nominations-from-entertainer-of-the-year-to-album-of-the-year-225127376.html) - Yahoo
+- [What time do the CMA Awards start? How to watch, livestream - The Leaf Chronicle \| Clarksville, TN](https://www.theleafchronicle.com/story/entertainment/music/2025/11/19/cma-awards-how-watch-livestream-what-time/87340467007/) - Theleafchronicle
+- [2025 CMA Awards: The Complete Winners List - Yahoo](https://www.yahoo.com/entertainment/music/articles/2025-cma-awards-complete-winners-135154647.html) - Yahoo
+- [How to Get Tickets to Empire of the Sun’s New Destination Festival Chrysalis](https://consequence.net/2025/11/empire-of-the-sun-festival-chrysalis-how-to-get-tickets/) - Consequence.net
+- [Converge’s Return Is Exactly What Heavy Music Needs Right Now](https://www.forbes.com/sites/quentinsinger/2025/11/19/converges-new-single-is-exactly-what-heavy-music-needs-right-now/) - Forbes
+- ["I think that realism is missing from a lot of modern music of any genre, but especially our genre" Legendary hardcore heavyweights Converge have announced their first new album in five years, Love Is Not Enough](https://www.loudersound.com/bands-artists/converge-announce-new-album-love-is-not-enough) - Louder
+- [Converge Announce New Album Love Is Not Enough, Unveil Title Track: Stream](https://consequence.net/2025/11/converge-new-album-single-love-is-not-enough/) - Consequence.net
+- [Converge Detail New Album, ‘Love Is Not Enough’](https://thequietus.com/?p=264737) - The Quietus
+- [Converge Announce New Album, Share Video for New Song: Watch](https://pitchfork.com/news/converge-announce-new-album-share-video-for-new-song-watch/) - Pitchfork
+- [Converge Announce New Album ‘Love Is Not Enough”, Title Track Streaming Now](https://www.metalsucks.net/2025/11/19/converge-announce-new-album-love-is-not-enough-title-track-streaming-now/) - MetalSucks
+- [CONVERGE Announces New Record Love Is Not Enough, Streams Blistering Title Track](https://metalinjection.net/video/converge-announces-new-record-love-is-not-enough-streams-blistering-title-track) - Metal Injection.net
+- [Zayn's collab with Blackpink singer made him 'cool again' with daughter](https://www.bbc.com/news/articles/cp97d9j4m0zo) - BBC News
+- [Marketing as a service: seven insights into healthy partnerships with artists](http://musically.com/2025/11/19/marketing-as-a-service-seven-insights-into-healthy-partnerships-with-artists/) - Music Ally
+- [5 Music Industry Shifts In November 2025 That Reveal What Changes Next - Red94](https://www.red94.net/news/80408-5-music-industry-shifts-in-november-2025-that-reveal-what-changes-next/) - Red94
+- [Samy Sharif explores time, memory, and truth in new video, "Snuff the Pilot Light"](https://earmilk.com/2025/11/19/samy-sharif-explores-time-memory-and-truth-in-new-video-snuff-the-pilot-light/) - Earmilk.com
+- [UK government confirms plans for reforms to ‘ban ticket touting’](http://musically.com/2025/11/19/uk-government-confirms-plans-for-reforms-to-ban-ticket-touting/) - Music Ally
+- [Why Labour’s Proposals to Ban Ticket Touting don’t go far Enough](https://thequietus.com/opinion-and-essays/black-sky-thinking/labour-ticket-resale-viagogo-stubhub/) - The Quietus
+- [Music industry reacts to UK secondary-ticketing reform plans](http://musically.com/2025/11/19/uks-music-industry-reacts-to-secondary-ticketing-reform-plans/) - Music Ally
+- [Ticket Resale for Profit to Be Outlawed in United Kingdom - Pitchfork](https://pitchfork.com/news/ticket-resale-for-profit-to-be-outlawed-in-united-kingdom/) - Pitchfork
+- [UK government to ban above-face value ticket reselling - CNBC](https://www.cnbc.com/2025/11/18/uk-government-ticket-resale-ban.html) - Cnbc
+- [The United Kingdom plans to ban ticket reselling for profit - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-18/united-kingdom-plans-to-ban-ticket-reselling-for-profit) - Latimes
+- [UK to ban the resale of tickets for profit to protect fans - Reuters](https://www.reuters.com/world/uk/uk-ban-resale-tickets-profit-protect-fans-2025-11-19/) - Reuters
+- [Chappell Roan Completes Her Perfect Chart Track Record With A New No. 1](https://www.forbes.com/sites/hughmcintyre/2025/11/19/chappell-roan-completes-her-perfect-chart-track-record-with-a-new-no-1/) - Forbes
+- [Live: The 39th Annual ARIA Awards kick off with G-Flip, Olivia Dean hitting the red carpet](https://www.abc.net.au/news/2025-11-19/arias-2025-live-red-carpet-kicks-off-australian-music/106021634) - ABC News (AU)
+- [Here Are The 2025 ARIA Award Winners - Variety](https://au.variety.com/2025/music/news/aria-awards-2025-winners-list-30110/) - Variety
+- [‘The Rebuild Is Working — Brick By Brick’: Read ARIA’s Chair and CEO Speech In Full - Billboard](https://www.billboard.com/pro/aria-chair-and-ceo-speech-in-full-aria-awards-2025/) - Billboard
+- [ARIA Awards 2025: Amyl and The Sniffers, Ninajirachi Win Big - Billboard](https://www.billboard.com/music/awards/aria-awards-2025-amyl-and-the-sniffers-ninajirachi-dom-dolla-1236117842/) - Billboard
