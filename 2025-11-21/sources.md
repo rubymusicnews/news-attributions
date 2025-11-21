@@ -1,0 +1,43 @@
+# Sources for 2025-11-21 News Episode 
+- [Tyler, The Creator Named Apple Music Artist of the Year 2025](https://www.iphoneincanada.ca/2025/11/20/apple-music-artist-of-the-year-2025/) - iPhone in Canada
+- [Apple Music’s Artist of the Year really is off the charts](https://www.cultofmac.com/news/2025-apple-music-artist-of-the-year) - Cult of Mac
+- [Apple Music launches ‘Best of 2025’ playlists and picks Artist of the Year](https://9to5mac.com/2025/11/20/apple-music-launches-best-of-2025-playlists-and-picks-artist-of-the-year/) - 9to5Mac
+- ['Tyler, The Creator' Named Apple Music's Artist of the Year](https://www.macrumors.com/2025/11/20/tyler-the-creator-apple-music-artist-of-year/) - MacRumors
+- [Apple Music’s Artist of the Year for 2025: Tyler, The Creator](https://macdailynews.com/2025/11/20/apple-musics-artist-of-the-year-for-2025-tyler-the-creator/) - Macdailynews.com
+- [The Weeknd’s “After Hours ‘Til Dawn” Tour Surpasses $1 Billion](https://consequence.net/2025/11/the-weeknd-after-hours-til-dawn-tour-grosses-1-billion/) - Consequence.net
+- [The Weeknd’s ‘After Hours ‘Til Dawn’ Tour grosses over $1 billion, Live Nation says](https://www.bostonherald.com/2025/11/20/the-weeknd-tour/) - Boston Herald
+- [The Weeknd’s Record-Breaking After Hours Til Dawn Tour Surpasses $1 Billion in Grosses - Billboard](https://www.billboard.com/music/rb-hip-hop/weeknd-after-hours-til-dawn-tour-1-billion-grosses-record-1236118384/) - Billboard
+- [The Weeknd’s ‘After Hours Til Dawn’ Tour Surpasses $1 Billion and Becomes Top-Earning Tour by Male Solo Artist - Variety](https://variety.com/2025/music/news/the-weeknd-after-hours-til-dawn-tour-surpasses-1-billion-1236586696/) - Variety
+- [XO Records Co-Founder La Mar Taylor Becomes Billboard Canada's Inaugural 40 Under 40 Visionary: Interview - Billboard Canada](https://ca.billboard.com/business/record-labels/la-mar-taylor-xo-40-under-40-interview) - Billboard
+- [Inside Rolling Loud Australia’s 2026 Lineup: Gunna, Ken Carson, Sexyy Red, & More To Perform](https://www.rap-up.com/article/rolling-loud-australia-2026-lineup-gunna-sexyy-red-ken-carson) - Rap-Up.com
+- [Ariana Grande's Touring Pause: The End of Nonstop Pop Tours?](https://screenrant.com/ariana-grande-tour-end-of-nonstop-pop-tours/) - Screen Rant
+- [Ariana Grande Says ‘Eternal Sunshine’ Tour Will Be Her ‘Last Hurrah’ - Billboard](https://www.billboard.com/music/music-news/ariana-grande-eternal-sunshine-tour-last-hurrah-1236116103/) - Billboard
+- [Ariana Grande gives shocking update on music career after ‘Wicked: For Good’ - New York Post](https://nypost.com/2025/11/19/entertainment/ariana-grande-gives-shocking-music-update-after-wicked-for-good/) - Nypost
+- [Is 'Wicked' star Ariana Grande ending her music career? What she says about upcoming tour - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/19/ariana-grande-music-acting-career/87360902007/) - Usatoday
+- [Ariana Grande Says Her 'Eternal Sunshine' Tour Is The "Last Hurrah": "I'm Going To Give It My All" - Deadline](https://deadline.com/2025/11/ariana-grande-eternal-sunshine-tour-last-hurrah-1236622148/) - Deadline
+- [Exclusive: Ariana Grande tells TODAY her next ‘dream' after ‘Wicked' - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/ariana-grande-plans-after-wicked-broadway/6419998/) - Nbcnewyork
+- [The Beatles – Anthology Collection (2025)](https://exystence.net/blog/2025/11/20/the-beatles-anthology-collection-2025/) - Exystence.net
+- [Disney+ Debuts Trailer For Restored ‘The Beatles Anthology’ Ahead of Streaming Debut - billboard.com](https://www.billboard.com/music/pop/disney-plus-trailer-restored-beatles-anthology-streaming-watch-1236114717/) - Billboard
+- [Jin’s Debut Solo Concert Film Is Heading to Theaters This December](http://www.rollingstone.com/music/music-news/bts-jin-solo-concert-film-theaters-1235469382/) - Rolling Stone
+- [BTS’ Jin Sets December Release Date For First Solo Concert Film ‘#RUNSEOKJIN_EP.Tour The Movie’ - Billboard](https://www.billboard.com/music/pop/bts-jin-december-release-first-solo-concert-film-details-1236118289/) - Billboard
+- [Doja Cat brushes off tour complaints from fans](https://www.bbc.com/news/articles/cp8e8z38d2po) - BBC News
+- [Doja Cat Claps Back at Criticism of Her Tour Opener: ‘You Are Not the Artist, You Are the Watcher’ - billboard.com](https://www.billboard.com/music/rb-hip-hop/doja-cat-tour-criticism-response-1236117570/) - Billboard
+- [Major Labels Team Up on New AI Streamer Where Users Slop-ify Songs, Report Says](https://gizmodo.com/major-labels-team-up-on-new-ai-streamer-where-users-slop-ify-songs-report-says-2000688676) - Gizmodo.com
+- [Major Labels Sign Licensing Deals With AI Music Company Klay - Pitchfork](https://pitchfork.com/news/warner-music-group-signs-licensing-deal-with-ai-music-company-klay/) - Pitchfork
+- [Major Music Labels Strike Deals With New AI Streaming Service - Insurance Journal](https://www.insurancejournal.com/news/national/2025/11/20/848425.htm) - Insurancejournal
+- [Major Music Labels Strike Deals With New AI Streaming Service - Bloomberg.com](https://www.bloomberg.com/news/articles/2025-11-20/major-music-labels-strike-deals-with-new-ai-streaming-service) - Bloomberg
+- [Charli XCX Stars as Fictionalized Version of Herself in ‘The Moment’ Trailer](http://www.rollingstone.com/music/music-news/charli-xcx-the-moment-trailer-1235469316/) - Rolling Stone
+- [Teaser for Charli XCX's 'The Moment' Meta Pop Star Mockumentary](https://www.firstshowing.net/2025/teaser-for-charli-xcxs-the-moment-meta-pop-star-mockumentary/) - First Showing
+- [Charli xcx endures the pitfalls of fame and stress of arena touring in a trailer for the A24 mockumentary The Moment](https://www.joblo.com/the-moment-trailer-charli-xcx/) - JoBlo.com
+- [‘The Moment’ Teaser: First Look At Charli xcx’s A24 Feature](http://deadline.com/2025/11/the-moment-charli-xcx-a24-teaser-1236624670/) - Deadline
+- [It's Not Clear How Real Charli xcx's The Moment Is in First Teaser](https://www.jezebel.com/its-not-clear-how-real-charli-xcxs-the-moment-is-in-first-teaser) - Jezebel
+- [The Smashing Pumpkins – Mellon Collie and the Infinite Sadness (30th Anniversary Edition) (2025)](https://exystence.net/blog/2025/11/20/the-smashing-pumpkins-mellon-collie-and-the-infinite-sadness-30th-anniversary-edition-2025/) - Exystence.net
+- [How Joe Budden Made the Internet Work for Him](http://www.rollingstone.com/music/music-features/joe-budden-podcast-interview-voices-of-the-year-1235460370/) - Rolling Stone
+- [Internal Bleeding Announce 2026 Northeast U.S. and International Tour Dates](https://www.metalsucks.net/2025/11/20/internal-bleeding-announce-2026-northeast-u-s-and-international-tour-dates/) - MetalSucks
+- [How Karol G Returned to Her Roots and Raised the Bar](http://www.rollingstone.com/music/music-features/karol-g-interview-voices-of-the-year-1235460264/) - Rolling Stone
+- [2025 Latin Grammys recap— Bad Bunny wins album of the year, Karol G shuts down critics - USA Today](https://www.usatoday.com/live-story/entertainment/music/2025/11/13/latin-grammys-2025-live/87240090007/) - Usatoday
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - AP News](https://apnews.com/article/latin-grammys-2025-42dc4af01c917740b60fe585c09f6d1b) - Apnews
+- [Bad Bunny wins album of the year at the 2025 Latin Grammys, capping an electric night - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/bad-bunny-wins-album-year-2025-latin-grammys-capping-electric-night-rcna243875) - Nbcnews
+- [Latin Grammys 2025 Recap: Bad Bunny Wins Big, Karol G Dances & More - Billboard](https://www.billboard.com/video/latin-grammys-2025-recap-bad-bunny-wins-big-karol-g-dances/) - Billboard
+- [December 1 HBO Berth Firmed For TIFF Docu ‘Paul Anka: His Way’](http://deadline.com/2025/11/paul-anka-his-way-documentary-december-1-hbo-1236624908/) - Deadline
+- [December 1 HBO Berth Firmed For TIFF Docu ‘Paul Anka: His Way’ - Deadline](https://deadline.com/2025/11/paul-anka-his-way-documentary-december-1-hbo-1236624908/) - Deadline

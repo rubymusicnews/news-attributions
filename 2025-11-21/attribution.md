@@ -1,0 +1,124 @@
+# Daily News Video Credits - 2025-11-21
+Full media attributions for all assets used.
+
+| Type | Title / Description | Author | Source | License |
+|------|---------------------|---------|---------|----------|
+| Image | Monitor Displaying Computer Application | Digital Buggu | [Pexels](https://www.pexels.com/photo/monitor-displaying-computer-application-374559/) | [pexels](https://www.pexels.com/license) |
+| Image | The New York Times Building With Glasses | Vlada Karpovich | [Pexels](https://www.pexels.com/photo/the-new-york-times-building-with-glasses-4451740/) | [pexels](https://www.pexels.com/license) |
+| Image | The Weeknd with hand in the air performing live in Hong Kong in November 2018 (cropped) | Salandco | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=76330544) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | FEQ July 2018 The Weeknd (44778856382) (cropped) | Nicolas Padovani | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=74331888) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | People Enjoying The Concert | anna-m. w. | [Pexels](https://www.pexels.com/photo/people-enjoying-the-concert-1047442/) | [pexels](https://www.pexels.com/license) |
+| Image | People In A Concert | Laura Stanley | [Pexels](https://www.pexels.com/photo/people-in-a-concert-2147029/) | [pexels](https://www.pexels.com/license) |
+| Image | People In Concert | Josh Sorenson | [Pexels](https://www.pexels.com/photo/people-in-concert-154147/) | [pexels](https://www.pexels.com/license) |
+| Image | People At Concert | Vishnu R Nair | [Pexels](https://www.pexels.com/photo/people-at-concert-1105666/) | [pexels](https://www.pexels.com/license) |
+| Image | People Gathering Near Stage With Fireworks | Wendy Wei | [Pexels](https://www.pexels.com/photo/people-gathering-near-stage-with-fireworks-1306791/) | [pexels](https://www.pexels.com/license) |
+| Video | A Free Live Concert In Celebration Of An Event | Tima Miroshnichenko | [Pexels](https://www.pexels.com/video/a-free-live-concert-in-celebration-of-an-event-4916813/) | [pexels](https://www.pexels.com/license) |
+| Image | The Weeknd @ Massey Hall October 17, 2013 | thecomeupshow | [Flickr](https://www.flickr.com/photos/22257051@N07/10348747514) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | The Weeknd @ Massey Hall October 17, 2013 | thecomeupshow | [Flickr](https://www.flickr.com/photos/22257051@N07/10348758465) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Crowd Dancing At A Concert | Kei Scampa | [Pexels](https://www.pexels.com/photo/crowd-dancing-at-a-concert-16113965/) | [pexels](https://www.pexels.com/license) |
+| Image | Silhouette Of People In Front Of Stage | Sebastian Ervi | [Pexels](https://www.pexels.com/photo/silhouette-of-people-in-front-of-stage-1763067/) | [pexels](https://www.pexels.com/license) |
+| Image | People Watching Concert Photography | daniel dinu | [Pexels](https://www.pexels.com/photo/people-watching-concert-photography-849/) | [pexels](https://www.pexels.com/license) |
+| Image | Crowd At A Music Concert | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/crowd-at-a-music-concert-16637459/) | [pexels](https://www.pexels.com/license) |
+| Image | Anxiety | seanmasn | [Flickr](https://www.flickr.com/photos/29193619@N00/140174359) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | GWAR BLOOD CANNON | Incase. | [Flickr](https://www.flickr.com/photos/62021300@N00/4463523166) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Doja Cat 2019 BET Awards2 (cropped) | The Knockturnal | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=89189755) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Doja Cat 2019 BET Awards1 (cropped) | The Knockturnal | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=89189476) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Doja Cat Cabooze 2018 01 (cropped) | 7EVENSIQS on YouTube | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=93255965) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Doja Cat at Billboard Women In Music, March 2022 | Authentic Culture Network | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=116078821) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Doja Cat Planet Her Day Party 2 (cropped) | Naz (@dojaclouds) | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=107310391) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | A Woman Wearing A Hat Holding A Microphone | Alena Darmel | [Pexels](https://www.pexels.com/photo/a-woman-wearing-a-hat-holding-a-microphone-7715778/) | [pexels](https://www.pexels.com/license) |
+| Image | A Vocalist Holding A Microphone And Singing | RDNE Stock project | [Pexels](https://www.pexels.com/photo/a-vocalist-holding-a-microphone-and-singing-7502208/) | [pexels](https://www.pexels.com/license) |
+| Image | Lively Outdoor Crowd At Festival Event | Noland Live | [Pexels](https://www.pexels.com/photo/lively-outdoor-crowd-at-festival-event-34766174/) | [pexels](https://www.pexels.com/license) |
+| Image | Photo Of A Musician With A Yellow Electric Guitar During A Concert | samimibirfotografci | [Pexels](https://www.pexels.com/photo/photo-of-a-musician-with-a-yellow-electric-guitar-during-a-concert-14505051/) | [pexels](https://www.pexels.com/license) |
+| Video | Musical Instruments On The Stage | Alena Darmel | [Pexels](https://www.pexels.com/video/musical-instruments-on-the-stage-7722623/) | [pexels](https://www.pexels.com/license) |
+| Image | Lace Up High Top Boots | Tomaz Barcellos | [Pexels](https://www.pexels.com/photo/lace-up-high-top-boots-2021365/) | [pexels](https://www.pexels.com/license) |
+| Image | Ariana Grande promoting Wicked (2024) | Barbie Simons | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=159393331) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Ariana Grande Shankbone 2010 NYC | david_shankbone | [Flickr](https://www.flickr.com/photos/27865228@N06/4568646137) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | People At A Concert On A Stadium | Luis Quintero | [Pexels](https://www.pexels.com/photo/people-at-a-concert-on-a-stadium-18482986/) | [pexels](https://www.pexels.com/license) |
+| Image | Crowd At Concert On Stadium | Luis Quintero | [Pexels](https://www.pexels.com/photo/crowd-at-concert-on-stadium-15325469/) | [pexels](https://www.pexels.com/license) |
+| Image | Crowded People Standing Watching Live During Daytime | Thibault Trillet | [Pexels](https://www.pexels.com/photo/crowded-people-standing-watching-live-during-daytime-167478/) | [pexels](https://www.pexels.com/license) |
+| Image | Alex Sino is accepting the Latin Grammy Award | Poordocfl | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=145476566) | [cc0](https://creativecommons.org/publicdomain/zero/1.0/deed.en/) |
+| Image | Karol G en El Salvador 2024 02 | La Prensa Gráfica Noticias de El Salvador | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=147546051) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Karol G 2018 2 | NotimexTV | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=81147307) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Karol G & Anuel AA en El Salvador 2019 (cropped) | La Prensa Gráfica Noticias de El Salvador | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=133667812) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Karol G en 2018 | Programas Telemedellín | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=107932573) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Bad Bunny 2019 by Glenn Francis | Toglenn | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=83272215) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Bad Bunny 2019 by Glenn Francis (cropped) | Toglenn | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=88940917) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Tyler The Creator / Odd Future Tokyo Live | dat' | [Flickr](https://www.flickr.com/photos/45195228@N05/6126662535) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | An Album Of A Band White Lies Titled As I Try Not To Fall Apart Lying On A Jacket | Renya Sh | [Pexels](https://www.pexels.com/photo/an-album-of-a-band-white-lies-titled-as-i-try-not-to-fall-apart-lying-on-a-jacket-16036164/) | [pexels](https://www.pexels.com/license) |
+| Image | Vintage Vinyl Record Player With Album Cover | Gizemtoş 🕊️ | [Pexels](https://www.pexels.com/photo/vintage-vinyl-record-player-with-album-cover-31513714/) | [pexels](https://www.pexels.com/license) |
+| Image | Listening To Music On A Smartphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/listening-to-music-on-a-smartphone-5077404/) | [pexels](https://www.pexels.com/license) |
+| Image | Person With Headphones Holding A Smartphone | Ivan S | [Pexels](https://www.pexels.com/photo/person-with-headphones-holding-a-smartphone-4162581/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman In White T Shirt And Gray Pants Holding Black Smartphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/woman-in-white-t-shirt-and-gray-pants-holding-black-smartphone-5077062/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of An Academy Award | RDNE Stock project | [Pexels](https://www.pexels.com/photo/close-up-of-an-academy-award-7005696/) | [pexels](https://www.pexels.com/license) |
+| Image | Tyler The Creator X Earl Sweatshirt @ Fox Theater Pomona | demxx | [Flickr](https://www.flickr.com/photos/80128903@N08/8831497292) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | 1117 Jin (BTS) Dispatch Photo Shoot LA (3) | KOREA Dispatch | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=68195826) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Man Singing On Stage With Stage Lights Near Crowd | Patrick Black, Jr | [Pexels](https://www.pexels.com/photo/man-singing-on-stage-with-stage-lights-near-crowd-878998/) | [pexels](https://www.pexels.com/license) |
+| Image | Silhouette Photography Of People On Theater | Wendy Wei | [Pexels](https://www.pexels.com/photo/silhouette-photography-of-people-on-theater-1714361/) | [pexels](https://www.pexels.com/license) |
+| Image | Silhouette Of Performer On Stage With Bright Spotlight | Saulo Hernández | [Pexels](https://www.pexels.com/photo/silhouette-of-performer-on-stage-with-bright-spotlight-34791019/) | [pexels](https://www.pexels.com/license) |
+| Image | Backstage Camera Operator At Live Concert | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/backstage-camera-operator-at-live-concert-34623558/) | [pexels](https://www.pexels.com/license) |
+| Image | Musician In Front Of Audience | Furkan AYDİLEK | [Pexels](https://www.pexels.com/photo/musician-in-front-of-audience-17905270/) | [pexels](https://www.pexels.com/license) |
+| Image | Black Turntable | Diana ✨ | [Pexels](https://www.pexels.com/photo/black-turntable-1653090/) | [pexels](https://www.pexels.com/license) |
+| Image | A Man Holding A Microphone While Singing On A Stage With Smoke Effects | Yan Krukau | [Pexels](https://www.pexels.com/photo/a-man-holding-a-microphone-while-singing-on-a-stage-with-smoke-effects-9008841/) | [pexels](https://www.pexels.com/license) |
+| Image | Person In A Cosplay At A Fan Convention | Elina Volkova | [Pexels](https://www.pexels.com/photo/person-in-a-cosplay-at-a-fan-convention-17800220/) | [pexels](https://www.pexels.com/license) |
+| Image | Colorful Fursuiters At Cosplay Event In Costa Rica | Mario Spencer | [Pexels](https://www.pexels.com/photo/colorful-fursuiters-at-cosplay-event-in-costa-rica-33339382/) | [pexels](https://www.pexels.com/license) |
+| Image | The Smashing Pumpkins — Mellon Collie and the Infinite Sadness | John Althouse Cohen | [Flickr](https://www.flickr.com/photos/60843921@N00/14260676419) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Makin Magic Album Sleeve | Lopsan | [Pexels](https://www.pexels.com/photo/makin-magic-album-sleeve-2191013/) | [pexels](https://www.pexels.com/license) |
+| Image | Vintage Record Player With Disc Placed On Windowsill | Alex Green | [Pexels](https://www.pexels.com/photo/vintage-record-player-with-disc-placed-on-windowsill-5699509/) | [pexels](https://www.pexels.com/license) |
+| Video | Variety Of Vinyl Covers | Matthias Groeneveld | [Pexels](https://www.pexels.com/video/variety-of-vinyl-covers-7135105/) | [pexels](https://www.pexels.com/license) |
+| Image | Two Gold Colored Wedding Bands On Book Page | Caio | [Pexels](https://www.pexels.com/photo/two-gold-colored-wedding-bands-on-book-page-56926/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman In Dress And Heels With Cake And Champagne | Biola Visuals | [Pexels](https://www.pexels.com/photo/woman-in-dress-and-heels-with-cake-and-champagne-19200944/) | [pexels](https://www.pexels.com/license) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/39400957@N03/14999577766) | by |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/39400957@N03/15022581945) | by |
+| Image | A Performance On Stage | Denys Gromov | [Pexels](https://www.pexels.com/photo/a-performance-on-stage-4662303/) | [pexels](https://www.pexels.com/license) |
+| Image | People Inside Stadium | Teddy Yang | [Pexels](https://www.pexels.com/photo/people-inside-stadium-2263410/) | [pexels](https://www.pexels.com/license) |
+| Image | People Inside Building While Light Turned Off | Wendy Wei | [Pexels](https://www.pexels.com/photo/people-inside-building-while-light-turned-off-1494665/) | [pexels](https://www.pexels.com/license) |
+| Image | A Large Crowd At A Concert With A Stage And Lights | Felipe Balduino | [Pexels](https://www.pexels.com/photo/a-large-crowd-at-a-concert-with-a-stage-and-lights-17718209/) | [pexels](https://www.pexels.com/license) |
+| Image | A Man In A Suit Adjusting His Bow Tie | mohamed abdelghaffar | [Pexels](https://www.pexels.com/photo/a-man-in-a-suit-adjusting-his-bow-tie-17732315/) | [pexels](https://www.pexels.com/license) |
+| Image | N/A | N/A | [Flickr](https://www.flickr.com/photos/39400957@N03/14999604346) | by |
+| Image | Youtube Logo On Smartphone Over Keyboard | Zulfugar Karimov | [Pexels](https://www.pexels.com/photo/youtube-logo-on-smartphone-over-keyboard-33440447/) | [pexels](https://www.pexels.com/license) |
+| Image | Warner Music Group | star5112 | [Flickr](https://www.flickr.com/photos/24509941@N00/1059816275) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Universal Music Group UK HQ, King's Cross Central development, Pancras Square, London, England 02 | Acabashi | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=77620219) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Icon Collectibles / Sony Music | PHOTO/arts Magazine | [Flickr](https://www.flickr.com/photos/92357396@N00/2533216561) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Video | Dynamic Digital Sound Wave Visualization | Chandresh Uike | [Pexels](https://www.pexels.com/video/dynamic-digital-sound-wave-visualization-34645273/) | [pexels](https://www.pexels.com/license) |
+| Image | An Artist S Illustration Of Artificial Intelligence Ai This Image Represents The Boundaries Set In Place To Secure Safe Accountable Biotechnology It Was Created By Artist Khyati Treha | Google DeepMind | [Pexels](https://www.pexels.com/photo/an-artist-s-illustration-of-artificial-intelligence-ai-this-image-represents-the-boundaries-set-in-place-to-secure-safe-accountable-biotechnology-it-was-created-by-artist-khyati-treha-17484901/) | [pexels](https://www.pexels.com/license) |
+| Image | An Artist S Illustration Of Artificial Intelligence Ai This Image Was Inspired By Ai Chip Design And Computer Vision It Was Created By Champ Panupong Techawongthawon As Part Of The Vis | Google DeepMind | [Pexels](https://www.pexels.com/photo/an-artist-s-illustration-of-artificial-intelligence-ai-this-image-was-inspired-by-ai-chip-design-and-computer-vision-it-was-created-by-champ-panupong-techawongthawon-as-part-of-the-vis-17483849/) | [pexels](https://www.pexels.com/license) |
+| Video | Colorful Digital Data Wave Futuristic Visual | Chandresh Uike | [Pexels](https://www.pexels.com/video/colorful-digital-data-wave-futuristic-visual-34127887/) | [pexels](https://www.pexels.com/license) |
+| Image | Joe Budden 'I Ain't Watching' | KF.Photography | [Flickr](https://www.flickr.com/photos/77541974@N06/7123687961) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Laptop And Mic On Tripod In Studio Before Recording Vlog | George Milton | [Pexels](https://www.pexels.com/photo/laptop-and-mic-on-tripod-in-studio-before-recording-vlog-6953870/) | [pexels](https://www.pexels.com/license) |
+| Image | Women Recording Podcast Indoors | George Milton | [Pexels](https://www.pexels.com/photo/women-recording-podcast-indoors-6953819/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Holding White Ipad Near Macbook Pro | Artem Podrez | [Pexels](https://www.pexels.com/photo/person-holding-white-ipad-near-macbook-pro-5716032/) | [pexels](https://www.pexels.com/license) |
+| Image | Smartphone On Tripod Recording Vlog With Young Multiethnic Ladies | George Milton | [Pexels](https://www.pexels.com/photo/smartphone-on-tripod-recording-vlog-with-young-multiethnic-ladies-6953860/) | [pexels](https://www.pexels.com/license) |
+| Image | A Group Of People Clapping To A Woman Presenting A Graph On Screen With Success Rate | Artem Podrez | [Pexels](https://www.pexels.com/photo/a-group-of-people-clapping-to-a-woman-presenting-a-graph-on-screen-with-success-rate-5716026/) | [pexels](https://www.pexels.com/license) |
+| Video | Business Analytics Used In A Business Meeting | Kindel Media | [Pexels](https://www.pexels.com/video/business-analytics-used-in-a-business-meeting-6774648/) | [pexels](https://www.pexels.com/license) |
+| Image | Joe Budden performing in 2010 | InkwellDesignGroup | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=11388961) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | beatles | jacilluch | [Flickr](https://www.flickr.com/photos/70626035@N00/8057561201) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | The Beatles Anthology | pviojo | [Flickr](https://www.flickr.com/photos/11268615@N00/2730690184) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | The Beatles Anthology | pviojo | [Flickr](https://www.flickr.com/photos/11268615@N00/2729958899) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Peter Jackson SDCC 2014 | Gage Skidmore | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=34349925) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | 'It was fifty years ago today!' - Sgt. Pepper's Lonely Hearts Club Band by The Beatles, released June 1, 1967. Now, playing: The anniversary deluxe release, with remixed versions of all songs, remixed by Giles Martin, son of late Sir George. #TheBeatles # | andersabrahamsson | [Flickr](https://www.flickr.com/photos/65889456@N00/34866176332) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | The Beatles Anthology | pviojo | [Flickr](https://www.flickr.com/photos/11268615@N00/2730715928) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | 'It was fifty years ago today!' - Sgt. Pepper's Lonely Hearts Club Band by The Beatles, released June 1, 1967. Now, playing: The anniversary deluxe release, with remixed versions of all songs, remixed by Giles Martin, son of late Sir George. #TheBeatles # | andersabrahamsson | [Flickr](https://www.flickr.com/photos/65889456@N00/34866170902) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Musical Equipment In A Recording Studio | Tom de Monteiller | [Pexels](https://www.pexels.com/photo/musical-equipment-in-a-recording-studio-13978776/) | [pexels](https://www.pexels.com/license) |
+| Image | The Beatles Story Exhibition - Albert Dock - Liverpool | ell brown | [Flickr](https://www.flickr.com/photos/39415781@N06/10495742824) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | The Beatles Story Exhibition - Albert Dock - Liverpool | ell brown | [Flickr](https://www.flickr.com/photos/39415781@N06/10495733945) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Close Up Of Newspapers On Wooden Table | Lisa from Pexels | [Pexels](https://www.pexels.com/photo/close-up-of-newspapers-on-wooden-table-18287623/) | [pexels](https://www.pexels.com/license) |
+| Image | Selective Focus Photography Of Magazines | brotiN biswaS | [Pexels](https://www.pexels.com/photo/selective-focus-photography-of-magazines-518543/) | [pexels](https://www.pexels.com/license) |
+| Image | Paul Anka 1995 | Kingkongphoto & www.celebrity-photos.com from Laurel Maryland, USA | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=74900349) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Paul-Anka-1959 | U. A. Saarinen | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=78388408) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Journalist Taking Notes During The Interview Of A Pianist | cottonbro studio | [Pexels](https://www.pexels.com/photo/journalist-taking-notes-during-the-interview-of-a-pianist-9391627/) | [pexels](https://www.pexels.com/license) |
+| Image | Elegant Woman Holding Trombone In Stylish Attire | Konstantin Mishchenko | [Pexels](https://www.pexels.com/photo/elegant-woman-holding-trombone-in-stylish-attire-34751905/) | [pexels](https://www.pexels.com/license) |
+| Image | Paul Anka performing at Caesars Windsor, 2024-05-24 10 | Crisco 1492 | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=148709082) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | Paul Anka - '...Great Hits - Strictly Instrumental' | Abaraphobia | [Flickr](https://www.flickr.com/photos/52585175@N07/13511186404) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Paul Anka star on Walk of Fame | Tabercil | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=6644649) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | Crowd Of Fans Waiting In Front Of A Stall With Official Merchandise Of Their Favorite Band | sirhan bahasuan | [Pexels](https://www.pexels.com/photo/crowd-of-fans-waiting-in-front-of-a-stall-with-official-merchandise-of-their-favorite-band-16034168/) | [pexels](https://www.pexels.com/license) |
+| Image | Aerial View Of Outdoor Concert Stage Setup | Sérgio Souza | [Pexels](https://www.pexels.com/photo/aerial-view-of-outdoor-concert-stage-setup-32284221/) | [pexels](https://www.pexels.com/license) |
+| Image | Aerial View Of Outdoor Concert Venue Setup | Sérgio Souza | [Pexels](https://www.pexels.com/photo/aerial-view-of-outdoor-concert-venue-setup-32284222/) | [pexels](https://www.pexels.com/license) |
+| Video | Aerial View Of Downtown Concert Setup | Kelly | [Pexels](https://www.pexels.com/video/aerial-view-of-downtown-concert-setup-34004629/) | [pexels](https://www.pexels.com/license) |
+| Video | Outdoor Stage Event With Aerial View And Crowd | Beautiful Life | [Pexels](https://www.pexels.com/video/outdoor-stage-event-with-aerial-view-and-crowd-28834187/) | [pexels](https://www.pexels.com/license) |
+| Video | Aerial View Of Outdoor Event With Stage Setup | Beautiful Life | [Pexels](https://www.pexels.com/video/aerial-view-of-outdoor-event-with-stage-setup-28834185/) | [pexels](https://www.pexels.com/license) |
+| Image | People Standing Outside Buildings | Denniz Futalan | [Pexels](https://www.pexels.com/photo/people-standing-outside-buildings-3453067/) | [pexels](https://www.pexels.com/license) |
+| Audio | becoming you [slow lofi] | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/becoming-you-slow-lofi/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | laundromat [lofi chill] | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/laundromat-lofi-chill/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | Late Night Glow | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/late-night-glow-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | waking up easy | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/waking-up-easy/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |

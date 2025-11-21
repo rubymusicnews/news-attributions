@@ -4,27 +4,47 @@
 
 ---
 
-![GitHub Repo stars](https://img.shields.io/github/stars/rubymusicnews/news-attributions?style=for-the-badge)
-![GitHub last commit](https://img.shields.io/github/last-commit/rubymusicnews/news-attributions?style=for-the-badge)
-![YouTube Channel Subscribers](https://img.shields.io/youtube/channel/subscribers/UCuDk4eeX-3JDJmB4WUHdr2A?style=for-the-badge)
-![TikTok](https://img.shields.io/badge/follow-%40rubymusicnews-ff0050?logo=tiktok&style=for-the-badge)
-![License: CC BY 4.0](https://img.shields.io/badge/license-CC--BY--4.0-blue?style=for-the-badge)
+## 🔖 Badges
+<p align="center">
+  <!-- Project badges -->
+  <img src="https://img.shields.io/github/last-commit/rubymusicnews/news-attributions?style=for-the-badge" alt="GitHub last commit" />
+  <img src="https://img.shields.io/badge/license-CC--BY--4.0-blue?style=for-the-badge" alt="License: CC BY 4.0" />
+  <img src="https://img.shields.io/github/stars/rubymusicnews/news-attributions?style=for-the-badge" alt="GitHub Repo stars" />
+  <img src="https://img.shields.io/badge/Status-Active-success?style=for-the-badge" alt="Status: Active" />
+</p>
+
+<p align="center">
+  <!-- Social badges -->
+  <a href="https://www.youtube.com/channel/UCuDk4eeX-3JDJmB4WUHdr2A">
+    <img src="https://img.shields.io/youtube/channel/subscribers/UCuDk4eeX-3JDJmB4WUHdr2A?logo=youtube&style=for-the-badge" alt="YouTube Channel Subscribers" />
+  </a>
+  <a href="https://www.tiktok.com/@rubymusicnews">
+    <img src="https://img.shields.io/badge/follow-%40rubymusicnews-ff0050?logo=tiktok&style=for-the-badge" alt="TikTok" />
+  </a>
+  <a href="https://www.instagram.com/rubymusicnews/">
+    <img src="https://img.shields.io/badge/follow-%40rubymusicnews-E4405F?logo=instagram&style=for-the-badge" alt="Instagram" />
+  </a>
+  <a href="https://www.facebook.com/profile.php?id=61583252780067">
+    <img src="https://img.shields.io/badge/follow-rubymusicnews-1877F2?logo=facebook&style=for-the-badge" alt="Facebook" />
+  </a>
+</p>
+
 
 ---
 
 ## 🎧 Overview
 
-**Ruby Music News** (also known as *Ruby News*) is a transparent, AI-assisted broadcast system that reports the latest music-industry news through short, engaging videos.  
+**Ruby Music News** (also known as *Ruby News*) is a transparent, AI-assisted broadcast system that reports the latest music-industry news through short, engaging videos.
 It combines verified sources, AI summarization, and automated publishing — while keeping all **sources and attributions open to the public** in this repository.
 
 ---
 
 ## ⚙️ How It Works
 
-1. **Collect News** — Headlines and updates are gathered from verified and reputable music-industry sources.  
-2. **Summarize & Script** — Stories are transformed into concise news summaries and scripts.  
-3. **Voice & Video Generation** — Audio narration and visuals are automatically created.  
-4. **Publish** — Final videos are uploaded to TikTok, YouTube, Instagram, and Facebook.  
+1. **Collect News** — Headlines and updates are gathered from verified and reputable music-industry sources.
+2. **Summarize & Script** — Stories are transformed into concise news summaries and scripts.
+3. **Voice & Video Generation** — Audio narration and visuals are automatically created.
+4. **Publish** — Final videos are uploaded to TikTok, YouTube, Instagram, and Facebook.
 5. **Transparency** — Every video’s sources and attributions are published here for verification.
 
 ---
@@ -116,4 +136,4 @@ Thanks to every journalist, publication, and artist that fuels our daily updates
 
 ---
 
-*Last updated: 2025-11-06*
+*Last updated: 2025-11-21*
