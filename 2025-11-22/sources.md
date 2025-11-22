@@ -1,0 +1,40 @@
+# Sources for 2025-11-22 News Episode 
+- [The Weeknd’s tour rakes in $1B, crowning star as top male solo artist](https://pagesix.com/2025/11/20/entertainment/the-weeknds-after-hours-tour-crosses-1-billion-grossed/) - Page Six
+- [The Weeknd’s Record-Breaking After Hours Til Dawn Tour Surpasses $1 Billion in Grosses - Billboard](https://www.billboard.com/music/rb-hip-hop/weeknd-after-hours-til-dawn-tour-1-billion-grosses-record-1236118384/) - Billboard
+- [The Weeknd’s ‘After Hours Til Dawn’ Tour Surpasses $1 Billion and Becomes Top-Earning Tour by Male Solo Artist - Variety](https://variety.com/2025/music/news/the-weeknd-after-hours-til-dawn-tour-surpasses-1-billion-1236586696/) - Variety
+- [XO Records Co-Founder La Mar Taylor Becomes Billboard Canada's Inaugural 40 Under 40 Visionary: Interview - Billboard Canada](https://ca.billboard.com/business/record-labels/la-mar-taylor-xo-40-under-40-interview) - Billboard
+- [Madonna’s New No. 1 Song Has Already Become A Chart-Topper For Another Musician](https://www.forbes.com/sites/hughmcintyre/2025/11/21/madonnas-new-no-1-song-has-already-become-a-chart-topper-for-another-musician/) - Forbes
+- [Firewind Signs With BLKIIBLK Records With Plans For New Album; Former Singer Henning Basse Returns](http://www.metalunderground.com/news/details.cfm?newsid=160485) - Metalunderground.com
+- [Sunmi Opens Up To The Artist & Person Within On Full-Length ‘HEART MAID’ Album](https://www.forbes.com/sites/jeffbenjamin/2025/11/20/sunmi-opens-up-to-the-artist--person-within-on-full-length-heart-maid-album/) - Forbes
+- [Art is getting weird again](https://www.dazeddigital.com/music/article/69116/1/art-is-getting-weird-again-rosalia-berghain-lux-charli-xcx-ethel-cain?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=art-is-getting-weird-again) - Dazed
+- [Rosalia’s new album soars with Hebrew verses and sacred imagery - The Times of Israel](https://www.timesofisrael.com/rosalias-new-album-soars-with-hebrew-verses-and-sacred-imagery/) - Timesofisrael
+- [Rosalía in her own words : Alt.Latino - NPR](https://www.npr.org/2025/11/12/nx-s1-5606030/rosalia-in-her-own-words) - Npr
+- [Rosalía’s ‘Lux’ enraptures Vatican cardinal and bishops with its songs of faith - ABC News](https://abcnews.go.com/Entertainment/wireStory/rosalas-lux-enraptures-vatican-cardinal-bishops-songs-faith-127777301) - Go
+- [Rosalía’s ‘Lux’ enraptures Vatican cardinal and bishops with its songs of faith - Houston Chronicle](https://www.houstonchronicle.com/entertainment/article/rosal-a-s-lux-enraptures-vatican-21202099.php) - Houstonchronicle
+- [How Was Rosalía’s ‘LUX’ Able to Score Easily Her Best Chart Debut? - Billboard](https://www.billboard.com/music/chart-beat/rosalia-lux-five-burning-questions-1236116105/) - Billboard
+- [Eurovision Song Contest changes voting rules after concern about Israel’s result](https://www.irishtimes.com/world/europe/2025/11/21/eurovision-song-contest-changes-voting-rules-after-concern-about-israels-result/) - The Irish Times
+- [Eurovision unveils voting changes seemingly aimed at complaints over Israel - The Times of Israel](https://www.timesofisrael.com/eurovision-unveils-voting-changes-seemingly-aimed-at-complaints-over-israel/) - Timesofisrael
+- [Eurovision tightens rules after Israel voting controversy - BBC](https://www.bbc.com/news/articles/cly2yey51wko) - Bbc
+- [Eurovision Song Contest Changes Rules After Israel Public Vote Controversy: “We’ve Listened and We’ve Acted” - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/eurovision-song-contest-changes-rules-israel-public-vote-1236432892/) - Hollywoodreporter
+- [Eurovision plans changes to voting, security after allegations of Israeli government 'interference' - AP News](https://apnews.com/article/eurovision-israel-voting-changes-3513b0b10b21050335b9049b079e1272) - Apnews
+- [Eurovision Tweaks Promotion & Voting Rules As Crunch Meeting Over Israeli Participation Looms - Deadline](https://deadline.com/2025/11/eurovision-tweaks-promotion-voting-rules-israel-gaza-meeting-1236625803/) - Deadline
+- [10 New Albums You Should Listen to Now: Oneohtrix Point Never, Tobias Jesso Jr., and More](https://pitchfork.com/news/10-new-albums-you-should-listen-to-now-oneohtrix-point-never-tobias-jesso-jr/) - Pitchfork
+- [The best new albums out Nov. 14 : All Songs Considered - NPR](https://www.npr.org/2025/11/14/nx-s1-5608275/new-music-friday-november-14-2025) - Npr
+- [Prefix:SELF by JSDavani: Album Review - Illustrate Magazine](https://illustratemagazine.com/prefixself-by-jsdavani-album-review/) - Illustratemagazine
+- [Robert Plant: Tiny Desk Concert](https://www.npr.org/2025/11/21/g-s1-97414/robert-plant-tiny-desk-concert) - NPR
+- [Robert Plant: Tiny Desk Concert - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2025-11-21/robert-plant-tiny-desk-concert) - Kansaspublicradio
+- [Robert Plant: Tiny Desk Concert - WRKF](https://www.wrkf.org/npr-news/2025-11-21/robert-plant-tiny-desk-concert) - Wrkf
+- [Robert Plant Sings Led Zeppelin, Moby Grape Classics at NPR’s Tiny Desk - Rolling Stone](https://www.rollingstone.com/music/music-news/robert-plant-suzi-dian-saving-gace-npr-tiny-desk-concert-1235470609/) - Rollingstone
+- [Robert Plant Performs Soul-Stirring Set for NPR's Tiny Desk - Consequence of Sound](https://consequence.net/2025/11/robert-plant-npr-tiny-desk-concert/) - Consequence
+- [Robert Plant: Tiny Desk Concert - STLPR](https://www.stlpr.org/npr/2025-11-21/robert-plant-tiny-desk-concert) - Stlpr
+- [The 10 Most Important Pink Floyd Moments](https://www.spin.com/2025/11/the-10-most-important-pink-floyd-moments/) - SPIN
+- [“We made bad albums. Two of them should be melted down into flowerpots. But how many great pieces of artwork are you going to create in your career?” What Carl Palmer really thinks of ELP - Louder](https://www.loudersound.com/bands-artists/carl-palmer-elp-legacy) - Loudersound
+- [Apple Music Names ‘Tyler, The Creator’ Artist of the Year](https://www.mactrast.com/2025/11/apple-music-names-tyler-the-creator-artist-of-the-year/) - Mactrast.com
+- [Tyler, the Creator caps monumental year with Apple Music Artist of the Year award - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/20/tyler-the-creator-apple-music-2025-artist-of-the-year/87372615007/) - Usatoday
+- [The first two albums recorded by what became their definitive line-up: Now a seven-CD countdown to Thin Lizzy's lift-off](https://www.loudersound.com/bands-artists/thin-lizzy-74-75-night-life-fighting) - Louder
+- [Dancing Astronaut’s New Music Friday: GENESI & Rivo, ALLEYCVT & Level Up, Clüb De Combat, DREYA V, Gorgon City and more (November 14 – 21, 2025)](https://dancingastronaut.com/2025/11/dancing-astronauts-new-music-friday-genesi-rivo-alleycvt-level-up-club-de-combat-dreya-v-gorgon-city-and-more-november-14-21-2025/) - Dancing Astronaut
+- [METAL CHURCH Recruits MEGADETH, VICIOUS RUMORS & ALICE COOPER Members For New Lineup](https://metalinjection.net/new-music/metal-church-recruits-megadeth-vicious-rumors-alice-cooper-members-for-new-lineup) - Metal Injection.net
+- [Metal Church Return with Revamped Lineup Including Ex-Megadeth Bassist David Ellefson](https://consequence.net/2025/11/metal-church-revamped-lineup-david-ellefson/) - Consequence.net
+- [Metal Church Reveals New Lineup And Single "F.A.F.O."; New Album Due In 2026](http://www.metalunderground.com/news/details.cfm?newsid=160486) - Metalunderground.com
+- [David Ellefson Joins Metal Church, First Song Off New Album](https://loudwire.com/david-ellefson-joins-metal-church-fafo-lyrics/) - Loudwire
+- [Tems Surprise-Releases New EP Love Is a Kingdom: Listen](https://pitchfork.com/news/tems-surprise-releases-new-ep-love-is-a-kingdom-listen/) - Pitchfork
