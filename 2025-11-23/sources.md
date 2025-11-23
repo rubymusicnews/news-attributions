@@ -1,0 +1,39 @@
+# Sources for 2025-11-23 News Episode 
+- [Radiohead’s music about alienation makes feeling alienated feel less alienating](https://www.the-independent.com/arts-entertainment/music/features/radiohead-live-london-thom-york-alienation-songs-b2870424.html) - The-independent.com
+- [Radiohead Returns to London: The Best Moments From the Band’s First U.K. Show in 8 Years](https://variety.com/2025/music/global/radiohead-london-show-setlist-best-moments-1236586592/) - Variety
+- [Radiohead Make Epic Return to the U.K. With Greatest Hits Set in London: Best Moments - billboard.com](https://www.billboard.com/lists/radiohead-live-in-london-setlist-best-moments/) - Billboard
+- [Radiohead deliver a spell-binding, hit-packed set in London - BBC](https://www.bbc.com/news/articles/clyz32pz81vo) - Bbc
+- [Acclaimed rock band plays first concert in 7 years, includes deep cut - Syracuse.com](https://www.syracuse.com/entertainment/2025/11/acclaimed-rock-band-plays-first-concert-in-7-years-includes-deep-cut.html) - Syracuse
+- [Here’s what Radiohead played as they kicked off their 2025 European comeback tour - NME](https://www.nme.com/news/music/radiohead-2025-european-tour-madrid-night-one-setlist-footage-photos-3905517) - Nme
+- [Radiohead unveil new merch line ahead of European comeback tour kicking off - NME](https://www.nme.com/news/music/radiohead-unveil-new-merch-line-ahead-of-european-comeback-tour-kicking-off-3905471) - Nme
+- [Former Led Zepplin frontman Robert Plant reinterprets traditional folk in his latest album](https://www.cbsnews.com/video/former-led-zepplin-frontman-robert-plant-reinterprets-traditional-folk-in-his-latest-album/) - CBS News
+- [Robert Plant: Tiny Desk Concert](https://littlegreenfootballs.com/article/55082_Robert_Plant-_Tiny_Desk_Concer) - Littlegreenfootballs.com
+- [Robert Plant: Tiny Desk Concert - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2025-11-21/robert-plant-tiny-desk-concert) - Kansaspublicradio
+- [Robert Plant: Tiny Desk Concert - NPR](https://www.npr.org/2025/11/21/g-s1-97414/robert-plant-tiny-desk-concert) - Npr
+- [Robert Plant: Tiny Desk Concert - STLPR](https://www.stlpr.org/npr/2025-11-21/robert-plant-tiny-desk-concert) - Stlpr
+- [Robert Plant: Tiny Desk Concert - WRKF](https://www.wrkf.org/npr-news/2025-11-21/robert-plant-tiny-desk-concert) - Wrkf
+- [Robert Plant Sings Led Zeppelin, Moby Grape Classics at NPR’s Tiny Desk - Rolling Stone](https://www.rollingstone.com/music/music-news/robert-plant-suzi-dian-saving-gace-npr-tiny-desk-concert-1235470609/) - Rollingstone
+- [Robert Plant Performs Soul-Stirring Set for NPR's Tiny Desk - Consequence of Sound](https://consequence.net/2025/11/robert-plant-npr-tiny-desk-concert/) - Consequence
+- [How can you tell if your new favourite artist is a real person?](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - BBC News
+- [Major Music Labels Strike Deals With New AI Streaming Service - Insurance Journal](https://www.insurancejournal.com/news/national/2025/11/20/848425.htm) - Insurancejournal
+- [Major Labels Team Up on New AI Streamer Where Users Slop-ify Songs, Report Says - Gizmodo](https://gizmodo.com/major-labels-team-up-on-new-ai-streamer-where-users-slop-ify-songs-report-says-2000688676) - Gizmodo
+- [Major Music Labels Strike Deals With New AI Streaming Service - Bloomberg.com](https://www.bloomberg.com/news/articles/2025-11-20/major-music-labels-strike-deals-with-new-ai-streaming-service) - Bloomberg
+- [Major Labels Sign Licensing Deals With AI Music Company Klay - Pitchfork](https://pitchfork.com/news/warner-music-group-signs-licensing-deal-with-ai-music-company-klay/) - Pitchfork
+- [22-åringene som eier hitlistene: – Først var det bare for gøy](https://www.vg.no/rampelys/i/al5jWa/distortion-22-aaringene-som-eier-hitlistene) - Www.vg.no
+- [Paul McCartney leans into Beatles archive for Hamilton arena opening](https://www.cbc.ca/news/canada/toronto/paul-mccartney-plays-hamilton-arena-opening-9.6989302) - CBC News
+- [Next Generation Leaders From Across The Music Industry Celebrate Billboard Canada's First-Ever 40 Under 40 - Billboard Canada](https://ca.billboard.com/business/billboard-canada-40-under-40-celebration) - Billboard
+- [Doja Cat Ties Two Of The Most Successful Women Of All Time With A New No. 1](https://www.forbes.com/sites/hughmcintyre/2025/11/22/doja-cat-ties-two-of-the-most-successful-women-of-all-time-with-a-new-no-1/) - Forbes
+- [Doja Cat Ties Beyoncé & Nicki Minaj as ‘Jealous Type’ Tops Rhythmic Airplay Chart - Billboard](https://www.billboard.com/music/chart-beat/doja-cat-ties-beyonce-nicki-minaj-jealous-type-radio-chart-1236117110/) - Billboard
+- [“They said, ‘You mean we’ve paid $12,500 for a piano player?’ My publisher said, ‘Yes, but he’s a good piano player’”: The label called it “unsellable”, the critics hated it, but this prog icon’s solo album went on to sell nearly 15 million copies](https://www.loudersound.com/bands-artists/rick-wakeman-six-wives-of-henry-vii-story-behind-album) - Louder
+- [Zipangu Music Festival Brings Ado, 'Atarashii Gakkō!,' More Japanese Artists to Los Angeles](https://www.animenewsnetwork.com/news/2025-11-22/zipangu-music-festival-brings-ado-atarashii-gakko-more-japanese-artists-to-los-angeles/.231295) - Anime News Network
+- [Ado, Atarashii Gakko!, Hana and Yuki Chiba Among Artists Performing at L.A. Japanese Music Showcase Zipangu - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/zipangu-ado-atarashii-gakko-hana-yuki-chiba-1236433155/) - Hollywoodreporter
+- [“When you were in that taxi saying Pink Floyd are w*kers, my brother was driving it!” How Bob Geldof ended up in The Wall despite everything](https://www.loudersound.com/bands-artists/how-bob-geldof-ended-up-in-the-the-wall-movie-despite-hating-pink-floyd) - Louder
+- [“It deals with the fact there’s no hope of escaping The Trump Show. But if Michael League isn’t getting much sleep, his loss is the world’s gain”: Snarky Puppy & Metropole Orkest reunite for Somni](https://www.loudersound.com/music/albums/snarky-puppy-metropolo-orkest-somni) - Louder
+- [The best new albums out Nov. 21 - KNKX](https://www.knkx.org/jazz/2025-11-21/the-best-new-albums-out-nov-21) - Knkx
+- [China scraps concerts with Japanese musicians](https://japantoday.com/category/entertainment/china-scraps-concerts-with-japanese-musicians-as-diplomatic-tensions-mount1) - Japan Today
+- [Japan counts cost of China's travel boycott as tensions flare - Reuters](https://www.reuters.com/business/media-telecom/japan-counts-cost-chinas-travel-boycott-tensions-flare-2025-11-19/) - Reuters
+- [China suspends Japanese film releases as diplomatic crisis deepens - Reuters](https://www.reuters.com/world/asia-pacific/china-suspends-japanese-film-releases-diplomatic-crisis-deepens-2025-11-18/) - Reuters
+- [Leigh-Anne Wants To Be ‘Friends’ On New Single](https://www.forbes.com/sites/cmalone/2025/11/21/leigh-anne-wants-to-be-friends-on-new-single/) - Forbes
+- [Katy Perry’s New Single Misses The Biggest Chart — But It’s Still A Hit](https://www.forbes.com/sites/hughmcintyre/2025/11/22/katy-perrys-new-single-misses-the-biggest-chart---but-its-still-a-hit/) - Forbes
+- [“I thought, ‘Enough. I don’t know that I need this kind of thing’”: In the early 90s, Nine Inch Nails’ Trent Reznor was at war with his label – so he did the most extreme thing he could](https://www.loudersound.com/bands-artists/nine-inch-nails-broken-story) - Louder
+- [New Metal Church Lineup Features Megadeth, Alice Cooper & Vicious Rumors Members](https://www.metalsucks.net/2025/11/22/new-metal-church-lineup-features-megadeth-alice-cooper-vicious-rumors-members/) - MetalSucks
