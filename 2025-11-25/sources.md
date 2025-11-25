@@ -1,0 +1,60 @@
+# Sources for 2025-11-25 News Episode 
+- [SEVENTEEN: Tiny Desk Concert](https://www.npr.org/2025/11/24/g-s1-97415/seventeen-tiny-desk-concert) - NPR
+- [SEVENTEEN: Tiny Desk Concert - New Hampshire Public Radio](https://www.nhpr.org/2025-11-24/seventeen-tiny-desk-concert) - Nhpr
+- [SEVENTEEN: Tiny Desk Concert - Boise State Public Radio](https://www.boisestatepublicradio.org/music/2025-11-24/seventeen-tiny-desk-concert) - Boisestatepublicradio
+- [SEVENTEEN: Tiny Desk Concert - WCBU Peoria](https://www.wcbu.org/npr-news/2025-11-24/seventeen-tiny-desk-concert) - Wcbu
+- [Inside SEVENTEEN’s ‘NPR Tiny Desk’ Taping: 3 Things You Didn’t See - billboard.com](https://www.billboard.com/lists/seventeen-tiny-desk-behind-the-scenes-inside-taping/) - Billboard
+- [SEVENTEEN: Tiny Desk Concert - WKMS](https://www.wkms.org/npr-news/2025-11-24/seventeen-tiny-desk-concert) - Wkms
+- [Guns N’ Roses Announce New Singles And 2026 World Tour](https://www.forbes.com/sites/quentinsinger/2025/11/24/guns-n-roses-announce-new-singles-and-2026-world-tour/) - Forbes
+- [Guns N’ Roses announce 2026 world tour, MetLife show. Get tickets today - New York Post](https://nypost.com/2025/11/24/ticket-sales/guns-n-roses-tour-2026-where-to-buy-tickets-schedule-dates/) - Nypost
+- [Following a 2025 world tour throughout Europe, the Middle East, Asia and Latin America, Guns N' Roses will return to North America in 2026. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/following-a-2025-world-tour-throughout-europe-the-middle-east-asia-and-latin-ame/1205333701466968/) - Facebook
+- [Michael Jackson Charts A New Global Hit With One Of His Biggest Songs](https://www.forbes.com/sites/hughmcintyre/2025/11/24/michael-jackson-charts-a-new-global-hit-with-one-of-his-biggest-songs/) - Forbes
+- [Michael Jackson Blocked From Charting A New No. 1 Hit - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/11/michael-jackson-blocked-from-charting-a-new-no-1-hit/) - Forbes
+- [Michael Jackson’s ‘Thriller’ Returns, Taboo & His Daughter Give Their Take on Hot 100 \| Hot 100 Show - Billboard](https://www.billboard.com/video/michael-jackson-thriller-returns-taboo-hot-100-show/) - Billboard
+- [Billboard Hot 100 Top 10 Countdown for Nov. 15, 2025 \| Billboard News - Billboard](https://www.billboard.com/video/billboard-hot-100-top-10-countdown-november-15-2025/) - Billboard
+- [Michael Jackson’s “Thriller” Returns To U.K. Charts After Halloween - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/04/michael-jacksons-annual-surge-concludes-with-multiple-smashes-returning/) - Forbes
+- [Michael Jackson's music sets a new record on the pop charts - NPR](https://www.npr.org/2025/11/13/nx-s1-5607016/michael-jacksons-music-sets-a-new-record-on-the-pop-charts) - Npr
+- [K-pop group RIIZE on the dark side of success: ‘Fame isn’t everything’](https://www.dazeddigital.com/music/article/69131/1/for-riize-k-pop-emotional-fame-fans-celebrity-interview?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=k-pop-group-riize-on-the-dark-side-of-success-fame-isn-t-everything) - Dazed
+- ['Fame' Lyrics & English Translation: RIIZE Returns With New Single Album!](https://www.justjared.com/2025/11/24/fame-lyrics-english-translation-riize-returns-with-new-single-album/) - Just Jared
+- [WATCH: Jamaican reggae legend Jimmy Cliff dies at 81](https://abcnews.go.com/Entertainment/video/jamaican-reggae-legend-jimmy-cliff-dies-81-127834399) - ABC News
+- [Reggae pioneer Jimmy Cliff dies at 81](https://www.npr.org/2025/11/24/nx-s1-4526570/jimmy-cliff-obituary-reggae) - NPR
+- [Jimmy Cliff, reggae legend and Jamaican icon, dies at 81](https://www.cbsnews.com/news/jimmy-cliff-reggae-music-icon-dies-age-81/) - CBS News
+- [Jimmy Cliff, reggae legend and Jamaican icon, dies at 81 - NBC News](https://www.nbcnews.com/world/caribbean/jimmy-cliff-reggae-legend-jamaican-icon-died-81-rcna245575) - Nbcnews
+- [Jimmy Cliff, Jamaican reggae legend, dead at 81 - New York Post](https://nypost.com/2025/11/24/entertainment/jimmy-cliff-jamaican-reggae-legend-dies-at-81/) - Nypost
+- [Reggae pioneer Jimmy Cliff dies at 81 - WCBU Peoria](https://www.wcbu.org/npr-news/2025-11-24/reggae-pioneer-jimmy-cliff-dies-at-81) - Wcbu
+- [Reggae pioneer Jimmy Cliff dies at 81 - WOSU Public Media](https://www.wosu.org/npr-news/2025-11-24/reggae-pioneer-jimmy-cliff-dies-at-81) - Wosu
+- [Reggae pioneer Jimmy Cliff dies at 81 - VPM](https://www.vpm.org/npr-news/2025-11-24/reggae-pioneer-jimmy-cliff-dies-at-81) - Vpm
+- [Travis Scott Closes ‘Historic Chapter’ as He Breaks Solo Rap Tour Sales Record](http://www.rollingstone.com/music/music-news/travis-scott-solo-rap-tour-sales-record-circus-maximus-1235472117/) - Rolling Stone
+- [‘Mixtapification’: Why is everything a mixtape now?](https://www.dazeddigital.com/music/article/69115/1/mixtapification-why-is-everything-a-mixtape-now-doechii-drake-ceebo?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=mixtapification-why-is-everything-a-mixtape-now) - Dazed
+- [Zeds Dead's 'Channel Flipping 2: Only You' Mashup Features Nas, Tupac - Billboard](https://www.billboard.com/music/music-news/zeds-dead-channel-flipping-2-only-you-nas-tupac-interview-1236117845/) - Billboard
+- [5 Music Industry Shifts In November 2025 That Reveal What Changes Next - Red94](https://www.red94.net/news/80408-5-music-industry-shifts-in-november-2025-that-reveal-what-changes-next/) - Red94
+- [How Wale Built A Career Before Monetization Was Even The Plan - Forbes](https://www.forbes.com/sites/imeekpo/2025/11/13/how-wale-built-a-career-before-monetization-was-even-the-plan/) - Forbes
+- [It’s a Love That Lasts Forever: How ‘Anthology’ Redefined The Beatles Story](http://www.rollingstone.com/music/music-features/beatles-anthology-documentary-interview-1235471257/) - Rolling Stone
+- [Disney+ Debuts Trailer For Restored ‘The Beatles Anthology’ Ahead of Streaming Debut - billboard.com](https://www.billboard.com/music/pop/disney-plus-trailer-restored-beatles-anthology-streaming-watch-1236114717/) - Billboard
+- [Lady Gaga’s Grammy-Nominated Album Spikes 675% In Sales In One Week](https://www.forbes.com/sites/hughmcintyre/2025/11/24/lady-gagas-grammy-nominated-album-spikes-675-in-sales-in-one-week/) - Forbes
+- [Lady Gaga’s Debut Album Reaches A Billboard Chart For The First Time - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/17/lady-gagas-debut-album-reaches-a-billboard-chart-for-the-first-time/) - Forbes
+- [Watch Tool play a bunch of rarities for the first time in 20 years, plus a Black Sabbath cover, during New Zealand shows over the weekend](https://www.loudersound.com/news/tool-play-several-rare-songs-during-new-zealand-tour-2025) - Louder
+- [How to turn music discovery into fandom: on TikTok and beyond](http://musically.com/2025/11/24/how-to-turn-music-discovery-into-fandom-on-tiktok-and-beyond/) - Music Ally
+- [IAB Data: Creator Media Declared A Must-Buy As Paid Spend Hits $37B - Forbes](https://www.forbes.com/sites/jamiegutfreund/2025/11/20/iab-data-creator-media-declared-a-must-buy-as-paid-spend-hits-37b/) - Forbes
+- [Robert Plant Plays a Powerfully Soulful NPR Tiny Desk Concert for His New Album ‘Saving Grace’](https://laughingsquid.com/robert-plant-npr-tiny-desk-concert/) - Laughingsquid.com
+- [Robert Plant: Tiny Desk Concert - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2025-11-21/robert-plant-tiny-desk-concert) - Kansaspublicradio
+- [Robert Plant: Tiny Desk Concert - NPR](https://www.npr.org/2025/11/21/g-s1-97414/robert-plant-tiny-desk-concert) - Npr
+- [Robert Plant: Tiny Desk Concert - STLPR](https://www.stlpr.org/npr/2025-11-21/robert-plant-tiny-desk-concert) - Stlpr
+- [Robert Plant: Tiny Desk Concert - WRKF](https://www.wrkf.org/npr-news/2025-11-21/robert-plant-tiny-desk-concert) - Wrkf
+- [Robert Plant Sings Led Zeppelin, Moby Grape Classics at NPR’s Tiny Desk - Rolling Stone](https://www.rollingstone.com/music/music-news/robert-plant-suzi-dian-saving-gace-npr-tiny-desk-concert-1235470609/) - Rollingstone
+- [Robert Plant Performs Soul-Stirring Set for NPR's Tiny Desk - Consequence of Sound](https://consequence.net/2025/11/robert-plant-npr-tiny-desk-concert/) - Consequence
+- [Ariana Grande Says She’s ‘Healing’ Her Relationship With Music](http://www.thecut.com/article/is-ariana-grande-quitting-music-what-she-said.html) - The Cut
+- [Ariana Grande Says ‘Eternal Sunshine’ Tour Will Be Her ‘Last Hurrah’ - Billboard](https://www.billboard.com/music/music-news/ariana-grande-eternal-sunshine-tour-last-hurrah-1236116103/) - Billboard
+- [Ariana Grande gives shocking update on music career after ‘Wicked: For Good’ - New York Post](https://nypost.com/2025/11/19/entertainment/ariana-grande-gives-shocking-music-update-after-wicked-for-good/) - Nypost
+- [Is 'Wicked' star Ariana Grande ending her music career? What she says about upcoming tour - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/19/ariana-grande-music-acting-career/87360902007/) - Usatoday
+- [Ariana Grande Says Her 'Eternal Sunshine' Tour Is The "Last Hurrah": "I'm Going To Give It My All" - Deadline](https://deadline.com/2025/11/ariana-grande-eternal-sunshine-tour-last-hurrah-1236622148/) - Deadline
+- [Exclusive: Ariana Grande tells TODAY her next ‘dream' after ‘Wicked' - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/ariana-grande-plans-after-wicked-broadway/6419998/) - Nbcnewyork
+- [Sébastien Tellier joins forces with Slayyyter and Nile Rodgers on new single, "Thrill Of The Night"](https://www.thelineofbestfit.com/news/sebastien-tellier-joins-forces-with-slayyyter-and-nile-rodgers-on-new-single-thrill-of-the-night) - Thelineofbestfit.com
+- [Ticketmaster caps resale prices for Olivia Dean at face value](http://musically.com/2025/11/24/ticketmaster-caps-resale-prices-for-olivia-dean-at-face-value/) - Music Ally
+- [Olivia Dean Calls Out Live Nation, Ticketmaster Over Resale Prices - Variety](https://variety.com/2025/music/news/olivia-dean-blasts-live-nation-ticketmaster-resale-prices-1236588706/) - Variety
+- [Olivia Dean Calls Out Ticketing Companies Over High Resale Prices - billboard.com](https://www.billboard.com/music/music-news/olivia-dean-criticizes-ticketing-companies-resale-prices-surge-1236120162/) - Billboard
+- [Olivia Dean Slams Ticketmaster, AEG Over Resale Prices: “A Disgusting Service” - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/olivia-dean-slams-ticketmaster-aeg-over-resale-prices-1236433232/) - Hollywoodreporter
+- [Olivia Dean Puts Ticketmaster on Blast for Her Tour’s Ticket Resale Prices: ‘You Are Providing a Disgusting Service’ - billboard.com](https://www.billboard.com/music/music-news/olivia-dean-slams-ticketmaster-tour-ticket-resale-prices-1236119772/) - Billboard
+- [Olivia Dean Blasts 'Disgusting' Ticketmaster, Live Nation and AEG Over Resale Ticket Prices - Rolling Stone](https://www.rollingstone.com/music/music-news/olivia-dean-ticketmaster-live-nation-aeg-ticket-prices-1235470855/) - Rollingstone
+- [Olivia Dean Blasts ‘Disgusting’ Ticketmaster, Live Nation and AEG Over Resale Ticket Prices - Yahoo](https://www.yahoo.com/entertainment/music/articles/olivia-dean-blasts-disgusting-ticketmaster-222841853.html) - Yahoo
+- [Could a New Ticketing Law in the U.K. Finally Curb Scalpers? - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/uk-ticket-law-scalping-1236429178/) - Hollywoodreporter
