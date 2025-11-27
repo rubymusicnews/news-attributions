@@ -1,0 +1,45 @@
+# Sources for 2025-11-27 News Episode 
+- [Major labels sign licensing agreement with AI start-up KLAY](https://djmag.com/news/major-labels-sign-licensing-agreement-ai-start-klay) - DJ Mag
+- [Major Music Labels Strike Deals With New AI Streaming Service - Insurance Journal](https://www.insurancejournal.com/news/national/2025/11/20/848425.htm) - Insurancejournal
+- [Major Labels Team Up on New AI Streamer Where Users Slop-ify Songs, Report Says - Gizmodo](https://gizmodo.com/major-labels-team-up-on-new-ai-streamer-where-users-slop-ify-songs-report-says-2000688676) - Gizmodo
+- [Major Music Labels Strike Deals With New AI Streaming Service - Bloomberg.com](https://www.bloomberg.com/news/articles/2025-11-20/major-music-labels-strike-deals-with-new-ai-streaming-service) - Bloomberg
+- [Major Labels Sign Licensing Deals With AI Music Company Klay - Pitchfork](https://pitchfork.com/news/warner-music-group-signs-licensing-deal-with-ai-music-company-klay/) - Pitchfork
+- [Taylor Swift Releases ‘The Fate of Ophelia’ Remix With the Chainsmokers: ‘We Love U T’](http://www.rollingstone.com/music/music-news/taylor-swift-the-fate-of-ophelia-chainsmokers-remix-1235473069/) - Rolling Stone
+- [Taylor Swift’s Current No. 1 Hit Ties One Of Her Most Famous Smashes](https://www.forbes.com/sites/hughmcintyre/2025/11/26/taylor-swifts-current-no-1-hit-ties-one-of-her-most-famous-smashes/) - Forbes
+- [Taylor Swift’s ‘The Fate of Ophelia’ Rules Hot 100 for Sixth Week, Sombr Scores First Top 10 With ‘Back to Friends’ - Billboard](https://www.billboard.com/lists/taylor-swift-hot-100-the-fate-of-ophelia-six-weeks/) - Billboard
+- [Taylor Swift on Ice: Olympic Figure Skaters Share Mesmerizing Routine Set to ‘Fate of Ophelia’ - billboard.com](https://www.billboard.com/music/music-news/taylor-swift-ophelia-olympic-ice-skating-routine-watch-1236119908/) - Billboard
+- [Taylor Swift Joins Katy Perry And The Beatles In A Major Chart Feat - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/08/taylor-swift-joins-katy-perry-and-the-beatles-in-a-major-chart-feat/) - Forbes
+- [Warner Music Makes Landmark AI Deal With Suno, Settling Copyright Claims](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Music Business Worldwide
+- [Warner Music Drops Lawsuit vs. Suno; AI Music Company Gets Licensing Deal Instead](https://www.ibtimes.com/warner-music-drops-lawsuit-vs-suno-ai-music-company-gets-licensing-deal-instead-3791322) - International Business Times
+- [AI music platform Suno unveils deal with Warner to compensate artists](https://economictimes.indiatimes.com/tech/artificial-intelligence/ai-music-platform-suno-unveils-deal-with-warner-to-compensate-artists/articleshow/125577840.cms) - The Times of India
+- [AI music platform Suno unveils deal with Warner to compensate artists](https://economictimes.indiatimes.com/tech/technology/ai-music-platform-suno-unveils-deal-with-warner-to-compensate-artists/articleshow/125578378.cms) - The Times of India
+- [The Weeknd’s label, Warner Music Group, inks deal with Suno](https://rollingout.com/2025/11/26/warner-music-group-signs-deal-with-suno/) - Rolling Out
+- [Warner Music partners with AI firm Suno, ensuring artist control over AI-generated content](https://nextbigwhat.com/warner-music-partners-with-ai-firm-suno-ensuring-artist-control-over-ai-generated-content/) - Nextbigwhat.com
+- [Warner Music inks Suno deal amid cooling tensions over AI-generated music](https://siliconangle.com/2025/11/25/warner-music-inks-suno-deal-amid-cooling-tensions-ai-generated-music/) - SiliconANGLE News
+- [Muziekfront tegen AI brokkelt verder af: Warner sluit deal met muziek-app Suno](https://www.standaard.be/media-en-cultuur/muziekfront-tegen-ai-brokkelt-verder-af-warner-sluit-deal-met-muziek-app-suno/107821569.html) - Standaard.be
+- [Stray Kids Announced As First K-Pop Headliner For Brazilian Festival Rock In Rio 2026](http://www.soompi.com/article/1800712wpp/stray-kids-announced-as-first-k-pop-headliner-for-brazilian-festival-rock-in-rio-2026) - soompi
+- [EX.785 Isabella Lovestory](https://soundcloud.com/resident-advisor/ex785-isabella-lovestory) - Soundcloud.com
+- [EX.785 Isabella Lovestory](https://shows.acast.com/raexchange/episodes/ex785-isabella-lovestory) - Acast.com
+- [Stray Kids Goes Platinum In U.S. For 1st Time + Becomes 1st K-Pop Act To Have 6 Albums Go Gold](http://www.soompi.com/article/1800936wpp/stray-kids-goes-platinum-in-u-s-for-1st-time-becomes-1st-k-pop-act-to-have-6-albums-go-gold) - soompi
+- [Pink Floyd Outpaces The Biggest Names In Rock As Multiple Albums Return](https://www.forbes.com/sites/hughmcintyre/2025/11/26/pink-floyd-outpaces-the-biggest-names-in-rock-as-multiple-albums-return/) - Forbes
+- [“We made bad albums. Two of them should be melted down into flowerpots. But how many great pieces of artwork are you going to create in your career?” What Carl Palmer really thinks of ELP - Louder](https://www.loudersound.com/bands-artists/carl-palmer-elp-legacy) - Loudersound
+- [Matteo Bocelli talks new album, collaborations and singing at weddings](https://www.cbsnews.com/video/matteo-bocelli-album-collaborations/) - CBS News
+- [My Chemical Romance Set Euro Support Lineup](https://www.spin.com/2025/11/my-chemical-romance-uk-openers/) - SPIN
+- [Rosalía inspiring the next generation in classical music](https://www.bbc.com/news/articles/ckgdmlwm1pmo) - BBC News
+- [Rosalia’s new album soars with Hebrew verses and sacred imagery - The Times of Israel](https://www.timesofisrael.com/rosalias-new-album-soars-with-hebrew-verses-and-sacred-imagery/) - Timesofisrael
+- [Rosalía’s style has always been lux - Vogue Australia](https://www.vogue.com.au/fashion/news/rosalia-style/image-gallery/ef7a5cc4960f0402e7a424725531cf6e) - Vogue
+- [Rosalía’s ‘Lux’ enraptures Vatican cardinal and bishops with its songs of faith - ABC News](https://abcnews.go.com/Entertainment/wireStory/rosalas-lux-enraptures-vatican-cardinal-bishops-songs-faith-127777301) - Go
+- [Rosalía in her own words : Alt.Latino - NPR](https://www.npr.org/2025/11/12/nx-s1-5606030/rosalia-in-her-own-words) - Npr
+- [Rosalía’s ‘Lux’ enraptures Vatican cardinal and bishops with its songs of faith - Houston Chronicle](https://www.houstonchronicle.com/entertainment/article/rosal-a-s-lux-enraptures-vatican-21202099.php) - Houstonchronicle
+- [How Was Rosalía’s ‘LUX’ Able to Score Easily Her Best Chart Debut? - Billboard](https://www.billboard.com/music/chart-beat/rosalia-lux-five-burning-questions-1236116105/) - Billboard
+- [“The magic has gone. I’m trying to find it in other places”: The Norwegians who abandoned black metal to re-enact the psychedelic era – covering songs that weren’t always their favourites](https://www.loudersound.com/music/albums/ulver-childhood-s-end) - Louder
+- [Earth – The Legendary Lost Tapes (2025)](https://exystence.net/blog/2025/11/26/earth-the-legendary-lost-tapes-2025/) - Exystence.net
+- [Convicted killer Bryan Kohberger must reimburse families for their daughters’ urns - AOL.com](https://www.aol.com/articles/convicted-killer-bryan-kohberger-must-173246330.html) - Aol
+- [DAVE ELLEFSON Says MEGADETH "Lost The Plot" During The Risk Era: "We Zigged And The Rest Of The World Zagged"](https://metalinjection.net/news/dave-ellefson-says-megadeth-lost-the-plot-during-the-risk-era-we-zigged-and-the-rest-of-the-world-zagged) - Metal Injection.net
+- [Why David Byrne Is Playing ‘Psycho Killer’ Again After 20 Years](http://www.vulture.com/article/david-byrne-playing-psycho-killer-tour.html) - Vulture
+- [David Byrne discusses his latest album, 'Who Is the Sky?' - NPR](https://www.npr.org/2025/11/15/nx-s1-5586113/david-byrne-discusses-his-latest-album-who-is-the-sky) - Npr
+- [David Byrne on his latest album, 'Who Is the Sky?' : World Cafe Words and Music Podcast - NPR](https://www.npr.org/2025/11/14/nx-s1-5609153/david-byrne-album-who-is-the-sky) - Npr
+- [David Byrne discusses his latest album, 'Who Is the Sky?' - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-15/david-byrne-discusses-his-latest-album-who-is-the-sky) - Vpm
+- [Doja Cat goes full Cyndi Lauper in a wild pink wig and neon makeup for Tour Ma Vie performance](https://pagesix.com/2025/11/26/style/doja-cat-channels-cyndi-lauper-in-pink-wig-for-tour-ma-vie-show/) - Page Six
+- [Doja Cat responds to Ma Vie World Tour complaints from fans - BBC](https://www.bbc.com/news/articles/cp8e8z38d2po) - Bbc
+- [Doja Cat Claps Back at Criticism of Her Tour Opener: ‘You Are Not the Artist, You Are the Watcher’ - billboard.com](https://www.billboard.com/music/rb-hip-hop/doja-cat-tour-criticism-response-1236117570/) - Billboard
