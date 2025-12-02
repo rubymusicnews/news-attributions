@@ -1,0 +1,53 @@
+# Sources for 2025-12-02 News Episode 
+- [When Is Apple Music Replay 2025 Coming Out? Here’s The Likely Release Date](https://www.forbes.com/sites/monicamercuri/2025/12/01/when-is-apple-music-replay-2025-coming-out-heres-the-likely-release-date/) - Forbes
+- [Spotify tells users to update app. Is Wrapped for 2025 out? - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/22/spotify-update-app-2025-wrapped/87423145007/) - Usatoday
+- [Spotify (SPOT) Stock on November 24, 2025: Jefferies’ $800 Target, Audiobook Push and New Institutional Buying - ts2.tech](https://ts2.tech/en/spotify-spot-stock-on-november-24-2025-jefferies-800-target-audiobook-push-and-new-institutional-buying/) - Ts2
+- [Will Spotify Wrapped come out soon? Time to update your app - The Leaf Chronicle \| Clarksville, TN](https://www.theleafchronicle.com/story/entertainment/music/2025/11/25/spotify-wrapped/87450145007/) - Theleafchronicle
+- [Taylor Swift Matches Adele With A New No. 1 Smash](https://www.forbes.com/sites/hughmcintyre/2025/12/01/taylor-swift-matches-adele-with-a-new-no-1-smash/) - Forbes
+- [Taylor Swift’s ‘The Fate of Ophelia’ Rules Hot 100 for Sixth Week, Sombr Scores First Top 10 With ‘Back to Friends’ - Billboard](https://www.billboard.com/lists/taylor-swift-hot-100-the-fate-of-ophelia-six-weeks/) - Billboard
+- [Taylor Swift on Ice: Olympic Figure Skaters Share Mesmerizing Routine Set to ‘Fate of Ophelia’ - billboard.com](https://www.billboard.com/music/music-news/taylor-swift-ophelia-olympic-ice-skating-routine-watch-1236119908/) - Billboard
+- [Taylor Swift Joins Katy Perry And The Beatles In A Major Chart Feat - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/08/taylor-swift-joins-katy-perry-and-the-beatles-in-a-major-chart-feat/) - Forbes
+- [Coco Jones To Perform "Lift Every Voice And Sing" Ahead Of 2026 Super Bowl Kickoff](https://www.rap-up.com/article/coco-jones-super-bowl-lx-pregame-performance) - Rap-Up.com
+- [Super Bowl LX: Charlie Puth, Brandi Carlile and Coco Jones to Perform on Pregame Show - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/super-bowl-performers-charlie-puth-brandi-carlile-coco-jones-1236438020/) - Hollywoodreporter
+- [Brandi Carlile, Charlie Puth, Coco Jones to Perform at Super Bowl LX Pregame - Variety](https://variety.com/2025/music/news/super-bowl-lx-pregame-brandi-carlile-charlie-puth-coco-jones-1236595905/) - Variety
+- [Super Bowl 2026: Pregame performers will include Charlie Puth, Brandi Carlile and Coco Jones - AP News](https://apnews.com/article/super-bowl-pregame-puth-carlile-jones-2fe31c829f1e7dbc14949c74c4076e96) - Apnews
+- [Super Bowl 2026 pregame performers include Charlie Puth, Brandi Carlile and Coco Jones - NBC New York](https://www.nbcnewyork.com/news/sports/nfl/super-bowl-2026-pregame-performers-charlie-puth-brandi-carlile-coco-jones/6424380/) - Nbcnewyork
+- [Super Bowl 2026 pregame performers revealed - Entertainment Weekly](https://ew.com/super-bowl-2026-pregame-performers-charlie-puth-brandi-carlile-coco-jones-11859313) - Ew
+- [Frank Sinatra’s Masterpiece Hits The Top 10 More Than Half A Century After Its Release](https://www.forbes.com/sites/hughmcintyre/2025/12/01/frank-sinatras-masterpiece-hits-the-top-10-more-than-half-a-century-after-its-release/) - Forbes
+- [Is art finally getting challenging again?](https://www.dazeddigital.com/music/article/69116/1/art-is-getting-weird-again-rosalia-berghain-lux-charli-xcx-ethel-cain?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=is-art-finally-getting-challenging-again) - Dazed
+- [Art is getting challenging again](https://www.dazeddigital.com/music/article/69116/1/art-is-getting-weird-again-rosalia-berghain-lux-charli-xcx-ethel-cain?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=art-is-getting-challenging-again) - Dazed
+- [Rosalia’s new album soars with Hebrew verses and sacred imagery - The Times of Israel](https://www.timesofisrael.com/rosalias-new-album-soars-with-hebrew-verses-and-sacred-imagery/) - Timesofisrael
+- [Rosalía’s style has always been lux - Vogue Australia](https://www.vogue.com.au/fashion/news/rosalia-style/image-gallery/ef7a5cc4960f0402e7a424725531cf6e) - Vogue
+- [Rosalía’s ‘Lux’ enraptures Vatican cardinal and bishops with its songs of faith - ABC News](https://abcnews.go.com/Entertainment/wireStory/rosalas-lux-enraptures-vatican-cardinal-bishops-songs-faith-127777301) - Go
+- [Rosalía in her own words : Alt.Latino - NPR](https://www.npr.org/2025/11/12/nx-s1-5606030/rosalia-in-her-own-words) - Npr
+- [Rosalía’s ‘Lux’ enraptures Vatican cardinal and bishops with its songs of faith - Houston Chronicle](https://www.houstonchronicle.com/entertainment/article/rosal-a-s-lux-enraptures-vatican-21202099.php) - Houstonchronicle
+- [How Was Rosalía’s ‘LUX’ Able to Score Easily Her Best Chart Debut? - Billboard](https://www.billboard.com/music/chart-beat/rosalia-lux-five-burning-questions-1236116105/) - Billboard
+- [A mysterious stranger rode into town and topped a country music chart. He might not be real. - NBC News](https://www.nbcnews.com/tech/tech-news/mysterious-stranger-rode-town-topped-country-music-chart-might-not-rea-rcna243098) - Nbcnews
+- [Japanese 'One Piece' singer stopped mid-show after China-Japan feud](https://www.bbc.com/news/articles/c997n2zlegzo) - BBC News
+- [China Rudely Canceling Concerts by Japanese Musicians Amid Diplomatic Tensions](https://news.sankakucomplex.com/2025/12/01/china-rudely-canceling-concerts-by-japanese-musicians-amid-diplomatic-tensions/) - Sankakucomplex.com
+- [Anime event in Shanghai canceled after singer's show interrupted - The Japan Times](https://www.japantimes.co.jp/news/2025/11/29/japan/shanghai-japan-anime-event-cancel/) - Japantimes
+- [Japanese Singer's Shanghai Performance Cut Short Amid Tensions - 조선일보](https://www.chosun.com/english/world-en/2025/11/30/5F44VNFHMNHZTFJU6VJQEXX6VA/) - Chosun
+- [Jorja Smith's label hits out at 'AI clone' song](https://www.bbc.com/news/articles/cwyvjye18e9o) - BBC News
+- [Legally embattled AI music startup Suno raises at $2.45B valuation on $200M revenue - TechCrunch](https://techcrunch.com/2025/11/19/legally-embattled-ai-music-startup-suno-raises-at-2-45b-valuation-on-200m-revenue/) - Techcrunch
+- [Warner Music Settles Lawsuit With Suno And Will Partner With AI Music Generator - Forbes](https://www.forbes.com/sites/conormurray/2025/11/25/warner-music-settles-lawsuit-with-suno-and-will-partner-with-ai-music-generator/) - Forbes
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Suno Raises $250 Million for $2.45 Billion Valuation - Billboard](https://www.billboard.com/pro/suno-raises-250-million-funding-menlo-ventures-valuation/) - Billboard
+- [AI music company Suno valued at $2.45 billion in latest funding round - Reuters](https://www.reuters.com/business/media-telecom/ai-music-company-suno-valued-245-billion-latest-funding-round-2025-11-19/) - Reuters
+- [FKA twigs Announces 2026 “Body High Tour”](https://consequence.net/2025/12/fka-twigs-2026-body-high-tour/) - Consequence.net
+- [FKA twigs Going To ‘High’ Places On 2026 Tour](https://www.spin.com/2025/12/fka-twigs-plots-2026-tour/) - SPIN
+- [FKA twigs’s 2026 Body High Tour: How to buy tickets, openers, dates](https://www.thefader.com/2025/12/01/fka-twigs-2026-body-high-tour-how-to-buy-tickets-openers-dates) - The FADER
+- [FKA twigs Confronts Herself on ‘EUSEXUA Afterglow’ - M-A Chronicle](https://machronicle.com/fka-twigs-confronts-herself-on-eusexua-afterglow/) - Machronicle
+- [How Thankful Are We for New Releases From So Many of Our Great Art-Pop Stars This Month? - Billboard](https://www.billboard.com/music/pop/greatest-pop-stars-podcast-thanks-rosalia-robyn-charli-xcx-1236124192/) - Billboard
+- [【U-NEXT】12月の音楽ライブ配信ラインナップを発表！Perfume 周年記念ライブや世界最大級のK-POP授賞式「MMA2025」を独占ライブ配信！](https://prtimes.jp/main/html/rd/p/000002514.000031998.html) - Prtimes.jp
+- [Doja Cat Reaches A Career Milestone For The First Time](https://www.forbes.com/sites/hughmcintyre/2025/12/01/doja-cat-reaches-a-career-milestone-for-the-first-time/) - Forbes
+- [Neko Case is a force of nature on her latest album](https://www.npr.org/sections/world-cafe/2025/12/01/nx-s1-5626914/neko-case-album-neon-grey-midnight-green) - NPR
+- [Nirvana’s Singles Continue To Reach New Peaks Decades After The Band’s Split](https://www.forbes.com/sites/hughmcintyre/2025/12/01/nirvanas-singles-continue-to-reach-new-peaks-decades-after-the-bands-split/) - Forbes
+- [Foo Fighters Extend Rock & Alternative Airplay No. 1 Record With ‘Asking for a Friend’ - billboard.com](https://www.billboard.com/music/chart-beat/foo-fighters-rock-alternative-airplay-asking-for-a-friend-1236120021/) - Billboard
+- [Perera Elsewhere – Just Wanna Live Some (2025)](https://exystence.net/blog/2025/12/01/perera-elsewhere-just-wanna-live-some-2025/) - Exystence.net
+- [Alanis Morissette Strips Down ‘You Oughta Know’ for MGM+’s ‘Words + Music’](http://www.rollingstone.com/music/music-news/alanis-morissette-you-oughta-know-mgm-words-music-1235474803/) - Rolling Stone
+- [David Byrne: Tiny Desk Concert](https://www.npr.org/2025/12/01/g-s1-93726/david-byrne-tiny-desk-concert) - NPR
+- [Tiny Desk Concert: David Byrne](https://ohnotheydidnt.livejournal.com/131560613.html) - Livejournal.com
+- [David Byrne and His Elaborate Band Play NPR Tiny Desk Concert While Dressed in Matching Blue Outfits](https://laughingsquid.com/david-byrne-npr-tiny-desk-concert/) - Laughingsquid.com
+- [David Byrne: Tiny Desk Concert](https://littlegreenfootballs.com/article/55105_David_Byrne-_Tiny_Desk_Concert) - Littlegreenfootballs.com
+- [David Byrne on his latest album, 'Who Is the Sky?' : World Cafe Words and Music Podcast - NPR](https://www.npr.org/2025/11/14/nx-s1-5609153/david-byrne-album-who-is-the-sky) - Npr
+- [David Byrne discusses his latest album, 'Who Is the Sky?' - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-15/david-byrne-discusses-his-latest-album-who-is-the-sky) - Vpm
