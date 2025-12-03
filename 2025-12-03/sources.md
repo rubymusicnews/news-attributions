@@ -1,0 +1,39 @@
+# Sources for 2025-12-03 News Episode 
+- [Apple Replay is here. What’s the No. 1 song on Apple Music’s 2025 songs chart?](https://financialpost.com/pmn/apple-replay-is-here-whats-the-no-1-song-on-apple-musics-2025-songs-chart) - Financial Post
+- [Drake Honored As Apple Music’s Most-Streamed Artist Of 2025](https://www.rap-up.com/article/drake-apple-most-streamed-artist-of-2025) - Rap-Up.com
+- [How To Get Your Apple Music Replay 2025 — And What’s New This Year](https://www.forbes.com/sites/monicamercuri/2025/12/02/when-is-apple-music-replay-2025-coming-out-heres-the-likely-release-date/) - Forbes
+- [Apple Music's Replay 2025: A Comprehensive Year in Review Explainer](https://screenrant.com/apple-music-replay-2025-comprehensive-year-in-review-explainer/) - Screen Rant
+- [Drake Crowned Apple Music’s Most-Streamed Artist Of 2025](http://hiphopdx.com/news/drake-most-streamed-artist-2025-apple-music/) - HipHopDX
+- [Apple Replay is here. What's the No. 1 song on Apple Music’s 2025 songs chart?](https://abcnews.go.com/Technology/wireStory/apple-replay-1-song-apple-musics-2025-songs-128033414) - ABC News
+- [The Beatles Chart Multiple New Top 10 Albums More Than 50 Years After Splitting](https://www.forbes.com/sites/hughmcintyre/2025/12/02/the-beatles-chart-multiple-new-top-10-albums-more-than-50-years-after-splitting/) - Forbes
+- [Warum man die neue Beatles-„Anthology“ nicht braucht [premium]](https://www.diepresse.com/20359907/warum-man-die-neue-beatles-anthology-nicht-braucht) - Diepresse.com
+- [Review: The Beatles Anthology - SuperDeluxeEdition](https://superdeluxeedition.com/reviews/review-the-beatles-anthology/) - Superdeluxeedition
+- [Key On Expectations And Bringing KEYLAND: Uncanny Valley To The U.S.](https://www.forbes.com/sites/laurasirikul/2025/12/02/key-on-expectations-and-bringing-keyland-uncanny-valley-to-the-us/) - Forbes
+- [When Is Spotify Wrapped 2025 Coming Out? Here’s The Likely Release Date](https://www.forbes.com/sites/monicamercuri/2025/12/02/when-is-spotify-wrapped-2025-coming-out-heres-the-likely-release-date/) - Forbes
+- [Spotify tells users to update app. Is Wrapped for 2025 out? - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/22/spotify-update-app-2025-wrapped/87423145007/) - Usatoday
+- [Spotify (SPOT) Stock on November 24, 2025: Jefferies’ $800 Target, Audiobook Push and New Institutional Buying - ts2.tech](https://ts2.tech/en/spotify-spot-stock-on-november-24-2025-jefferies-800-target-audiobook-push-and-new-institutional-buying/) - Ts2
+- [Will Spotify Wrapped come out soon? Time to update your app - The Leaf Chronicle \| Clarksville, TN](https://www.theleafchronicle.com/story/entertainment/music/2025/11/25/spotify-wrapped/87450145007/) - Theleafchronicle
+- [Apple Replay is here. What’s the No. 1 song on Apple Music’s 2025 songs chart?](https://www.bostonherald.com/2025/12/02/apple-replay-2025/) - Boston Herald
+- [Tyler, the Creator caps monumental year with Apple Music Artist of the Year award - USA Today](https://www.usatoday.com/story/entertainment/music/2025/11/20/tyler-the-creator-apple-music-2025-artist-of-the-year/87372615007/) - Usatoday
+- [Nick Cave & The Bad Seeds – Live God (2025)](https://exystence.net/blog/2025/12/02/nick-cave-the-bad-seeds-live-god-2025/) - Exystence.net
+- [Amazon Music and Deezer launch their annual year-end recaps](http://musically.com/2025/12/02/amazon-music-and-deezer-launch-their-annual-year-end-recaps/) - Music Ally
+- [Delivered und Replay 2025: Jahresrückblicke von Amazon und Apple Music](https://www.iphone-ticker.de/delivered-und-replay-2025-jahresrueckblicke-von-amazon-und-apple-music-269099/) - iphone-ticker.de › iPhone-News seit 2007
+- [Discover Your 2025 With Amazon Music ‘Delivered’ Year End Recap](https://www.iphoneincanada.ca/2025/12/02/amazon-music-2025-delivered-year-end-recap/) - iPhone in Canada
+- [Deezer rolls out ‘My Deezer Year 2025,’ its Spotify Wrapped clone - TechCrunch](https://techcrunch.com/2025/12/01/deezer-rolls-out-my-deezer-year-2025-its-spotify-wrapped-clone/) - Techcrunch
+- [Diddy hits out at 'shameful' and 'illegal' documentary](https://www.bbc.com/news/articles/cm28ejzlv9lo) - BBC News
+- [Curtis ’50 Cent’ Jackson Details Involvement In Making Of Sean Combs Doc & Potential Sequel As Diddy’s Legal Woes Continue To Unfold](http://deadline.com/2025/12/curtis-50-cent-jackson-interview-sean-combs-the-reckoning-1236632818/) - Deadline
+- [The biggest bombshells from 50 Cent’s Netflix doc ‘Sean Combs: The Reckoning’](https://nypost.com/2025/12/02/entertainment/the-biggest-bombshells-from-50-cents-netflix-doc-sean-combs-the-reckoning/) - New York Post
+- [Diddy Slams 50 Cent’s Netflix Documentary as Rapper Keeps Quiet on Rival’s Pre-Arrest Footage - The Hollywood Reporter](https://www.hollywoodreporter.com/news/general-news/sean-diddy-combs-slams-50-cent-netflix-documentary-illegal-1236438361/) - Hollywoodreporter
+- [Publicist For Sean Diddy Combs Claims Rights To Pre-Arrest Footage From Forthcoming Documentary Were Never ... - mxdwn Music](https://music.mxdwn.com/2025/12/01/news/publicist-for-sean-diddy-combs-claims-rights-to-pre-arrest-footage-from-forthcoming-documentary-were-never-transferred-to-netflix-or-any-third-party/) - Mxdwn
+- [Sean 'Diddy' Combs Accuses Netflix of Stealing Footage for 50 Cent's Docuseries - iHeartRadio Canada](https://www.iheartradio.ca/en/music-news/sean-diddy-combs-accuses-netflix-of-stealing-footage-for-50-cents-docuseries.html) - Iheartradio
+- [Sean ‘Diddy’ Combs’ lawyers send cease-and-desist to Netflix, claim docuseries produced by 50 Cent uses ‘stolen’ footage - CNN](https://www.cnn.com/2025/12/01/entertainment/sean-diddy-combs-netflix-50-cent-documentary) - Cnn
+- [Madonna Keeps Her Winning Streak Going With Another Brand New Hit Song](https://www.forbes.com/sites/hughmcintyre/2025/12/02/madonna-keeps-her-winning-streak-going-with-another-brand-new-hit-song/) - Forbes
+- [TURNSTILE, SUNAMI & MIKE PATTON's Favorite Band WOLFMOTHER Booked For Bonnaroo 2026](https://metalinjection.net/news/turnstile-sunami-mike-pattons-favorite-band-wolfmother-booked-for-bonnaroo-2026) - Metal Injection.net
+- [King Gizzard & the Lizard Wizard Announce 2026 U.S. Tour Dates](https://pitchfork.com/news/king-gizzard-and-the-lizard-wizard-announce-2026-us-tour-dates/) - Pitchfork
+- [Gorillaz Announce House of Kong Exhibition in Los Angeles](https://consequence.net/2025/12/gorillaz-house-of-kong-los-angeles/) - Consequence.net
+- [On The Pilot, MAVI chooses stardom over artistry](https://www.thefader.com/2025/12/02/mavi-the-pilot-album-review) - The FADER
+- [Drake Gives Tease of a Song He Previewed Before for Iceman Album](https://www.xxlmag.com/drake-iceman-album-song-preview/) - XXLMAG.COM
+- [Felix Cartal & Rêve’s Captivating Anthem, ‘Dancing in a Dream,’ Makes Billboard Canadian Hot 100 Debut - Billboard Canada](https://ca.billboard.com/music/chart-beat/felix-cartal-and-reve-billboard-canada-charts) - Billboard
+- [David Byrne’s Tiny Desk Concert](https://kottke.org/25/12/david-byrnes-tiny-desk-concert) - kottke.org
+- [David Byrne on his latest album, 'Who Is the Sky?' : World Cafe Words and Music Podcast - NPR](https://www.npr.org/2025/11/14/nx-s1-5609153/david-byrne-album-who-is-the-sky) - Npr
+- [David Byrne discusses his latest album, 'Who Is the Sky?' - VPM](https://www.vpm.org/npr-news/npr-news/2025-11-15/david-byrne-discusses-his-latest-album-who-is-the-sky) - Vpm
