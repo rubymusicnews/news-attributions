@@ -1,0 +1,34 @@
+# Sources for 2025-12-04 News Episode 
+- [Spotify Users of All Ages Love Bad Bunny](http://www.vulture.com/article/spotify-wrapped-2025.html) - Vulture
+- [Spotify Wrapped 2025 Is Out: Bad Bunny Is Top Global Artist, Top Album Stats Finally Added](https://www.forbes.com/sites/conormurray/2025/12/03/spotify-wrapped-2025-is-out-bad-bunny-is-top-global-artist-top-album-stats-finally-added/) - Forbes
+- [Spotify Wrapped: When will it launch, and other questions answered](https://www.bbc.com/news/articles/cg4nvle5y3vo) - BBC News
+- [Spotify Wrapped Release 2025: Company Teases Most Anticipated Playlists With Logos — Here Are The Possible Artists](https://www.ibtimes.com/spotify-wrapped-release-2025-company-teases-most-anticipated-playlists-logos-here-are-possible-3791835) - International Business Times
+- [Musik-Jahresliste: Bad Bunny und Taylor Swift in Spotify-Jahrescharts vorn](https://www.zeit.de/news/2025-12/03/bad-bunny-und-taylor-swift-in-spotify-jahrescharts-vorn) - Die Zeit
+- [Musik-Jahresliste: Bad Bunny und Taylor Swift in Spotify-Jahrescharts vorn](https://www.stern.de/lifestyle/musik-jahresliste--bad-bunny-und-taylor-swift-in-spotify-jahrescharts-vorn-36924404.html) - STERN.de
+- [Jahresrückblick: Rap regiert Spotify-Charts: Jazeek in Baden-Württemberg vorn](https://www.stern.de/gesellschaft/regional/baden-wuerttemberg/jahresrueckblick--rap-regiert-spotify-charts--jazeek-in-baden-wuerttemberg-vorn-36924436.html) - STERN.de
+- [Musik: Aachener Rapper Jazeek in Spotify-Jahrescharts vorne](https://www.stern.de/gesellschaft/regional/nordrhein-westfalen/musik--aachener-rapper-jazeek-in-spotify-jahrescharts-vorne-36924636.html) - STERN.de
+- ["Bowie was standing there and for a split second you could see the panic in his eyes": The story of David Bowie's Ziggy Stardust and the moments that made him a star](https://www.loudersound.com/bands-artists/david-bowie-ziggy-stardust-oral-history) - Louder
+- [Meet The Deep, K-pop’s antihero](https://www.dazeddigital.com/music/article/69150/1/the-deep-k-pop-antihero-south-korea-kpop-bitch-interview?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=meet-the-deep-k-pop-s-antihero) - Dazed
+- [Prostitute Sign to Mute for Worldwide Release of Debut Album](https://thequietus.com/news/prostitute-sign-to-mute-for-worldwide-release-of-debut-album/) - The Quietus
+- [Prostitute Sign to Mute, Announce 2026 European Tour](https://pitchfork.com/news/prostitute-sign-to-mute-announce-2026-european-tour/) - Pitchfork
+- [Asian Pop Music Awards 2025: Jennie, G-Dragon, Lay Zhang, Jackson Wang Lead Nominees](https://www.forbes.com/sites/jeffbenjamin/2025/12/02/asian-pop-music-awards-2025-jennie-g-dragon-lay-zhang-jackson-wang-lead-nominees/) - Forbes
+- [MAMA Awards' Live KPop Demon Hunters Tribute: BABYMONSTER, ZEROBASEONE & More Stars - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/11/26/members-of-babymonster-zerobaseone--more-join-live-kpop-demon-hunters-tribute/) - Forbes
+- [Rolling Loud India Wasn’t Just a Festival. It Was a Statement](https://consequence.net/2025/12/rolling-loud-india-2025-review/) - Consequence.net
+- [German electronic band Kraftwerk to hold Singapore concert in May 2026](https://cnalifestyle.channelnewsasia.com/entertainment/kraftwerk-singapore-concert-2026-476301) - CNA
+- ["Don't miss this chance to hang out with us one final time" One of hardcore's most influential and forward-thinking bands are about to play their last ever show, and you're going to be able to livestream every minute of the chaos](https://www.loudersound.com/bands-artists/refused-announce-last-ever-show-livestream-hardcore) - Louder
+- [Refused to livestream final show ever, and launch Kickstarter for new documentary](https://www.thelineofbestfit.com/news/refused-to-livestream-final-show-ever-and-launch-kickstarter-for-new-documentary) - Thelineofbestfit.com
+- [How does your Spotify Wrapped get made? 3 Spotify leaders break down the yearlong process.](https://www.businessinsider.com/inside-spotify-wrapped-team-creation-process-2025-12) - Business Insider
+- [Spotify Wrapped 2025 is Here and It's Now a Competition](https://www.androidheadlines.com/2025/12/spotify-wrapped-2025-is-here-and-its-now-a-competition.html) - Android Headlines
+- [Spotify amped up Wrapped 2025 with new features, Party mode](https://mobilesyrup.com/2025/12/03/spotify-wrapped-2025-new-features-party/) - MobileSyrup
+- [Spotify Wrapped 2025 is here to remind you how bad your music taste is](https://www.xda-developers.com/spotify-wrapped-2025-here-to-remind-you-how-bad-your-music-taste-is/) - XDA Developers
+- [Spotify Wrapped är här](https://feber.se/internet/spotify-wrapped-ar-har/486134/) - Feber.se
+- [‘Hamburg Days’: AGC Television, ZDF & BBC Team To Co-Finance Beatles Biopic Based On Klaus Voormann Autobiography](http://deadline.com/2025/12/hamburg-days-agc-television-zdf-bbc-klaus-voormann-1236634365/) - Deadline
+- [Beatles Biopic Series ‘Hamburg Days’ Set at BBC - Variety](https://variety.com/2025/tv/global/beatles-biopic-series-hamburg-days-bbc-1236598324/) - Variety
+- [Sátan Metal Festival 2026 Announces Final Wave Of Bands Feat. NERGAL & MISÞYRMING, MÚR, THE HAUNTED And More!](https://metalinjection.net/tour-dates/satan-metal-festival-2026-announces-final-wave-of-bands-feat-nergal-misthyrming-mur-the-haunted-and-more) - Metal Injection.net
+- ["I can't listen to any more of this, this is a f***ing disgrace" An AI song posing as a new Architects release was published under the band's name on streaming services, and it sets a worrying precedent for where things may be heading](https://www.loudersound.com/ai-generated-song-appears-on-architects-spotify-profile) - Louder
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
+- [iHeartRadio Exec Says Company Won’t ‘Play AI Music’ or Use ‘AI Generated Personalities’ in Staff Memo - billboard.com](https://www.billboard.com/pro/iheartradio-bans-ai-music-podcasts-radio-djs-new-program/) - Billboard
+- [Brits Critics' Choice nominees revealed](https://www.bbc.com/news/articles/cze8ldz9726o) - BBC News
+- [Sound of 2026: 10 acts you'll be obsessed with next year - BBC](https://www.bbc.com/news/articles/c2dzx76gr3yo) - Bbc
+- [The 10 Best Jazz Albums of 2025](https://slate.com/culture/2025/12/best-jazz-2025-albums-music-songs-youtube.html) - Slate Magazine
