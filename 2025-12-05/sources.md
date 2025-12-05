@@ -1,0 +1,43 @@
+# Sources for 2025-12-05 News Episode 
+- [Rosalía Readies Massive ‘LUX’ Arena Tour](https://www.spin.com/2025/12/rosalia-arena-tour/) - SPIN
+- [Rosalia’s new album soars with Hebrew verses and sacred imagery - The Times of Israel](https://www.timesofisrael.com/rosalias-new-album-soars-with-hebrew-verses-and-sacred-imagery/) - Timesofisrael
+- [Rosalía in her own words : Alt.Latino - NPR](https://www.npr.org/2025/11/12/nx-s1-5606030/rosalia-in-her-own-words) - Npr
+- [How Rosalía and other artists are embracing a pop-meets-classical sound - WKNO FM](https://www.wknofm.org/music-npr/2025-11-21/how-rosalia-and-other-artists-are-embracing-a-pop-meets-classical-sound?_amp=true) - Wknofm
+- [How does Spotify Wrapped work - and who are the top artists and tracks of 2025?](https://news.sky.com/story/spotify-wrapped-how-does-it-work-and-who-are-this-years-top-artists-13479145) - Sky.com
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/spotify-wrapped-2025-bad-bunny-dethroned-taylor-swift-streamed-artist-rcna247144) - Nbcnews
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/spotify-wrapped-2025-is-here-and-bad-bunny-has-21220476.php) - Sfchronicle
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - Greenwich Time](https://www.greenwichtime.com/entertainment/article/spotify-wrapped-2025-is-here-and-bad-bunny-has-21220476.php) - Greenwichtime
+- [Spotify Wrapped 2025: Bad Bunny dethrones Taylor Swift as most-streamed artist - NBC 4 New York](https://www.nbcnewyork.com/entertainment/entertainment-news/spotify-wrapped-2025-bad-bunny-dethrones-taylor-swift-most-streamed-artist/6425454/) - Nbcnewyork
+- [Spotify Wrapped 2025 adds its first multiplayer feature with ‘Wrapped Party’ - TechCrunch](https://techcrunch.com/2025/12/03/spotifys-2025-wrapped-becomes-a-multiplayer-experience/) - Techcrunch
+- [Spotify Wrapped 2025 turns listening into a competition - The Verge](https://www.theverge.com/news/837127/spotify-wrapped-party-2025-music-competition) - Theverge
+- [Guns N’ Roses Polish Off ‘Nothin” and ‘Atlas’ From ‘Chinese Democracy’ Sessions](http://www.rollingstone.com/music/music-news/guns-n-roses-nothin-atlas-new-songs-world-tour-1235477601/) - Rolling Stone
+- [See the Lyrics to Guns N' Roses' New Song 'Atlas''](https://loudwire.com/guns-n-roses-atlas-lyrics/) - Loudwire
+- [See the Lyrics to Guns N' Roses' New Song 'Nothin''](https://loudwire.com/guns-n-roses-nothin-lyrics/) - Loudwire
+- [Guns N' Roses Fans React to New Songs 'Nothin'' + 'Atlas'](https://loudwire.com/guns-n-roses-fans-reactions-new-songs-nothin-atlas/) - Loudwire
+- [Those Two Guns N’ Roses Tracks Came Out Later Than Originally Promised](https://www.metalsucks.net/2025/12/04/those-two-guns-n-roses-tracks-came-out-later-than-originally-promised/) - MetalSucks
+- [Steve Cropper, guitarist and member of Stax Records' Booker T and the M.G.'s, dies](https://www.npr.org/2025/12/03/g-s1-100557/steve-cropper-guitarist-stax-records-dead) - NPR
+- [Legendary guitarist and songwriter Steve Cropper dies aged 84](https://www.abc.net.au/news/2025-12-04/steve-cropper-dies-aged-84/106100460) - ABC News (AU)
+- [Steve Cropper, legendary soul music songwriter and guitarist, dead at 84](https://www.cbc.ca/news/entertainment/obit-soul-stax-cropper-9.7002584) - CBC News
+- [Steve Cropper, legendary guitarist on Memphis classics from ‘Green Onions’ to ‘In the Midnight Hour,’ dies at 84](https://fortune.com/2025/12/04/steve-cropper-obituary-guitarist-booker-t-mgs-blues-brothers-stax-soul-memphis/) - Fortune
+- [Morto Steve Cropper, chitarra della Stax alla corte dei Blues Brothers](https://www.ilsole24ore.com/art/morto-steve-cropper-chitarra-stax-corte-blues-brothers-AIe1kbE) - Il Sole 24 Ore
+- [Booker T. & the MG’s Guitarist Steve Cropper Dies at 84](http://www.vulture.com/article/steve-cropper-death-blues-brothers-booker-t.html) - Vulture
+- [Steve Cropper, Guitarist and Member of Stax Records’ Booker T and the M.G.'s, Dies at 84](https://www.breitbart.com/entertainment/2025/12/04/steve-cropper-guitarist-and-member-of-stax-records-booker-t-and-the-m-g-s-dies-at-84/) - Breitbart News
+- [Memphis soul guitarist Steve Cropper dead at 84](https://www.digitaljournal.com/entertainment/memphis-soul-guitarist-steve-cropper-dead-at-84/article) - Digital Journal
+- [Memphis soul guitarist Steve Cropper dead at 84](https://www.digitaljournal.com/world/memphis-soul-guitarist-steve-cropper-dead-at-84/article) - Digital Journal
+- [The 100 Best Songs of 2025](http://www.rollingstone.com/music/music-lists/best-songs-of-2025-1235468614/) - Rolling Stone
+- [Multiple Beatles Songs Return As The Band Scores New Top 10 Albums](https://www.forbes.com/sites/hughmcintyre/2025/12/04/multiple-beatles-songs-return-as-the-band-scores-new-top-10-albums/) - Forbes
+- [Post Malone Says He Will Have New Music Ready by Super Bowl](https://consequence.net/2025/12/post-malone-new-music-super-bowl/) - Consequence.net
+- [Post Malone Will Perform Super Bowl Weekend Concert With New Music ‘Allegedly’](http://www.rollingstone.com/music/music-news/post-malone-super-bowl-weekend-concert-1235477426/) - Rolling Stone
+- [Post Malone to host free Super Bowl concert in S.F. - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/post-malone-concert-san-francisco-21205594.php) - Sfchronicle
+- [JO1 Share ‘Unforgettable Experience’ Performing ‘Be Classic’ Live From Vevo Studios](https://www.forbes.com/sites/jeffbenjamin/2025/12/04/jo1-share-unforgettable-experience-performing-be-classic-live-from-vevo-studios/) - Forbes
+- [How cassettes have made a comeback with sales up 200% this year](https://www.the-independent.com/arts-entertainment/cassette-tape-sales-cds-streaming-taylor-swift-b2878215.html) - The-independent.com
+- [Cassette tapes are making a comeback. Yes, really](https://theconversation.com/cassette-tapes-are-making-a-comeback-yes-really-268108) - The Conversation Africa
+- [Retro Gadgets For Vintage Lovers: 5 Nostalgic Gifts That Actually Work In 2025 - Yanko Design](https://www.yankodesign.com/2025/11/22/retro-gadgets-for-vintage-lovers-5-nostalgic-gifts-that-actually-work-in-2025/) - Yankodesign
+- [Ski Aggu is taking his hedonistic ‘Atzenrap’ global](https://www.dazeddigital.com/music/article/69214/1/ski-aggu-is-taking-his-hedonistic-atzenrap-global-rapper?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=ski-aggu-is-taking-his-hedonistic-atzenrap-global) - Dazed
+- [Tune in to a mini-concert with Nation of Language](https://www.npr.org/sections/world-cafe/2025/12/04/nx-s1-5633229/nation-of-language-mini-concert) - NPR
+- [Stream It Or Skip It: ‘It’s Never Over, Jeff Buckley’ on HBO Max, A Documentary Love Letter To An Iconic Singer Taken Too Soon](https://decider.com/2025/12/04/its-never-over-jeff-buckley-hbo-max-review/) - Decider
+- [New movies and shows on Prime Video, Netflix and HBO Max - Axios](https://www.axios.com/2025/12/04/new-movies-tv-prime-video-netflix-hbo-max) - Axios
+- [Music Docs About BTS ARMY, Selena, Led Zeppelin & More on Oscar Longlist for Documentary Feature Film - billboard.com](https://www.billboard.com/music/awards/music-documentaries-oscar-longlist-documentary-feature-film-1236119831/) - Billboard
+- [Gwen Stefani Talks No Doubt’s ‘Really Nostalgic’ Sphere Residency on ‘Fallon’](http://www.rollingstone.com/music/music-news/gwen-stefani-talks-no-doubt-sphere-residency-fallon-1235477420/) - Rolling Stone
+- [Kiss Charts A New Bestselling Album — And More Success May Be On The Way](https://www.forbes.com/sites/hughmcintyre/2025/12/04/kiss-charts-a-new-bestselling-album---and-more-success-may-be-on-the-way/) - Forbes
+- [Founding Kiss guitarist Ace Frehley died from injuries suffered in fall, autopsy shows - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/founding-kiss-guitarist-ace-frehley-died-injuries-suffered-fall-autops-rcna243276) - Nbcnews
