@@ -1,0 +1,31 @@
+# Sources for 2025-12-06 News Episode 
+- [One of the greatest 'lost' grunge supergroups of the '90s are returning in 2026 with new music and a worldwide tour](https://www.loudersound.com/bands-artists/seattle-supergroup-announce-2026-return) - Louder
+- [Rihanna Makes History With Her Latest Album, Even As Fans Wait For New Music](https://www.forbes.com/sites/hughmcintyre/2025/12/05/rihanna-makes-history-with-her-latest-album-even-as-fans-wait-for-new-music/) - Forbes
+- ['Not Ü' Lyrics: Imanbek, Sofía Reyes & Luísa Sonza Unite for Dance Floor Collaboration!](https://www.justjared.com/2025/12/05/not-u-lyrics-imanbek-sofia-reyes-luisa-sonza-unite-for-dance-floor-collaboration/) - Just Jared
+- [8 New Albums You Should Listen to Now: Melody’s Echo Chamber, Redveil, and More](https://pitchfork.com/news/8-new-albums-you-should-listen-to-now-melodys-echo-chamber-redveil/) - Pitchfork
+- [Foo Fighters Pass Metallica And Make History With A New No. 1 Hit](https://www.forbes.com/sites/hughmcintyre/2025/12/05/foo-fighters-pass-metallica-and-make-history-with-a-new-no-1-hit/) - Forbes
+- ["We were stupid kids, just trying to survive, with this really weird music that we were so stubborn about." How five chaos-addicted Californian misfits helped pave the way for the 90s rock revolution with their fabulously freaky debut record](https://www.loudersound.com/music/albums/the-inside-story-on-faith-no-more-debut-album-we-care-a-lot) - Louder
+- [Pink Floyd to open pop-up stores across Europe and in LA in December](https://www.loudersound.com/bands-artists/pink-floyd-to-open-pop-up-stores-across-europe-and-in-la-in-december) - Louder
+- [See the 2025 Spotify Wrapped Stats for 9 Rock + Metal Bands](https://loudwire.com/2025-spotify-wrapped-stats-metallica-pantera-shinedown-more/) - Loudwire
+- [The 25 best songs of 2025](https://www.bostonherald.com/2025/12/05/25-best-songs/) - Boston Herald
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/spotify-wrapped-2025-bad-bunny-dethroned-taylor-swift-streamed-artist-rcna247144) - Nbcnews
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/spotify-wrapped-2025-is-here-and-bad-bunny-has-21220476.php) - Sfchronicle
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - Greenwich Time](https://www.greenwichtime.com/entertainment/article/spotify-wrapped-2025-is-here-and-bad-bunny-has-21220476.php) - Greenwichtime
+- [Spotify Wrapped 2025: Bad Bunny dethrones Taylor Swift as most-streamed artist - NBC 4 New York](https://www.nbcnewyork.com/entertainment/entertainment-news/spotify-wrapped-2025-bad-bunny-dethrones-taylor-swift-most-streamed-artist/6425454/) - Nbcnewyork
+- [Spotify Wrapped 2025 adds its first multiplayer feature with ‘Wrapped Party’ - TechCrunch](https://techcrunch.com/2025/12/03/spotifys-2025-wrapped-becomes-a-multiplayer-experience/) - Techcrunch
+- [Spotify Wrapped 2025 turns listening into a competition - The Verge](https://www.theverge.com/news/837127/spotify-wrapped-party-2025-music-competition) - Theverge
+- [Inside bachata's supernova night with Romeo Santos and Prince Royce](https://www.thelineofbestfit.com/features/articles/inside-bachatas-supernova-night-with-romeo-santos-and-prince-royce) - Thelineofbestfit.com
+- [Bachata Batman & Robin: How Romeo Santos & Prince Royce Made a Surprise Album Without Any Leaks - billboard.com](https://www.billboard.com/music/latin/romeo-santos-prince-royce-billboard-espanol-cover-story-1236121436/) - Billboard
+- [Romeo Santos & Prince Royce Reveal Their Best Kept Secret From Latin Music: Their Joint Album, 'Better Late Than Never' \| Billboard Presents - Yahoo](https://www.yahoo.com/entertainment/videos/romeo-santos-prince-royce-reveal-150000278.html) - Yahoo
+- [Romeo Santos & Prince Royce Reveal Joint Album, 'Better Late Than Never' - billboard.com](https://www.billboard.com/video/romeo-santos-prince-royce-reveal-better-late-than-never/) - Billboard
+- [How to get Pitbull tickets: US, UK, and Asia dates and prices compared](https://www.businessinsider.com/guides/tickets/how-to-get-pitbull-tickets-concert-tour) - Business Insider
+- [DJ Mustard And Sounwave Detail Kendrick Lamar’s ‘GNX’ Creative Process](https://www.rap-up.com/article/dj-mustard-and-sounwave-talk-kendrick-lamar-gnx) - Rap-Up.com
+- [ビルボードジャパンが2025年年間チャート発表！](https://prtimes.jp/main/html/rd/p/000002441.000005179.html) - Prtimes.jp
+- [Naoshi Fujikura on Mrs. GREEN APPLE, Exporting Japanese Music: Interview - Billboard](https://www.billboard.com/business/record-labels/universal-music-japan-naoshi-fujikura-interview-green-apple-1236121572/) - Billboard
+- [INI’s ‘Present’ Hits No. 1 as RADWIMPS Tributes Dominate Top 10 on Japan Hot 100 - Billboard](https://www.billboard.com/music/chart-beat/ini-present-radwimps-tributes-top-10-japan-hot-100-1236123747/) - Billboard
+- [Darlene Love reflects on her enduring holiday classic, ‘Christmas (Baby Please Come Home)’](https://www.bostonherald.com/2025/12/05/darlene-love-holiday-classic-christmas/) - Boston Herald
+- [Darlene Love reflects on her enduring holiday classic, 'Christmas (Baby Please Come Home)' - Greenwich Time](https://www.greenwichtime.com/entertainment/article/darlene-love-reflects-on-her-enduring-holiday-21225153.php) - Greenwichtime
+- [Mega new prog you must hear from Big Big Train, Karnivool, Textures, Les Penning & Robert Reed and more in Prog's brand new Tracks Of The Week](https://www.loudersound.com/bands-artists/prog-tracks-december-5) - Louder
+- [Idol Throne – Harbinger Of Light (Self-Released) - Dead Rhetoric](https://deadrhetoric.com/reviews/idol-throne-harbinger-of-light-self-released/) - Deadrhetoric
+- [Guns N’ Roses Dominates New Music Friday With A Pair Of Top 10 Bestsellers](https://www.forbes.com/sites/hughmcintyre/2025/12/05/guns-n-roses-dominates-new-music-friday-with-a-pair-of-top-10-bestsellers/) - Forbes
+- [Guns N’ Roses announce 2026 world tour, MetLife show. Get tickets today - New York Post](https://nypost.com/2025/11/24/ticket-sales/guns-n-roses-tour-2026-where-to-buy-tickets-schedule-dates/) - Nypost
