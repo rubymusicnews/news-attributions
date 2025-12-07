@@ -1,0 +1,41 @@
+# Sources for 2025-12-07 News Episode 
+- [Eurovision reels from boycotts over Israel](https://www.hurriyetdailynews.com/eurovision-reels-from-boycotts-over-israel-216516) - Hurriyet Daily News
+- [Eurovision unveils voting changes seemingly aimed at complaints over Israel - The Times of Israel](https://www.timesofisrael.com/eurovision-unveils-voting-changes-seemingly-aimed-at-complaints-over-israel/) - Timesofisrael
+- ['Inseparable part of the contest': Austrian broadcaster backs Israel’s place in Eurovision ahead of EBU talks - Ynetnews](https://www.ynetnews.com/culture/article/rysis5ajbg) - Ynetnews
+- [Eurovision tightens rules after Israel voting controversy - BBC](https://www.bbc.com/news/articles/cly2yey51wko) - Bbc
+- [Boycott threat looms over Israel’s Eurovision spot - The Jerusalem Post](https://www.jpost.com/international/article-879151) - Jpost
+- [At least four countries boycott 2026 Eurovision after EBU says Israel can take part - Euronews.com](https://www.euronews.com/2025/12/04/netherlands-and-spain-boycott-2026-eurovision-after-ebu-says-israel-can-take-part) - Euronews
+- [Israel to remain in Eurovision Song Contest - BBC](https://www.bbc.com/news/articles/cde6d8wyp79o) - Bbc
+- [At least 4 countries pull out of 2026 Eurovision contest over Israel's participation - Northern Public Radio](https://www.northernpublicradio.org/2025-12-05/at-least-4-countries-pull-out-of-2026-eurovision-contest-over-israels-participation) - Northernpublicradio
+- [Eurovision in turmoil as countries stage boycott over Israel’s place in contest - politico.eu](https://www.politico.eu/article/eurovision-boycott-crisis-israel-competition-war-gaza-human-rights/) - Politico
+- [Eurovision faces crucial decision over Israel - BBC](https://www.bbc.com/news/articles/cx2gq5q5p47o) - Bbc
+- [See Dua Lipa Pay Tribute to Selena With ‘Amor Prohibido’ Cover in Mexico City](http://www.rollingstone.com/music/music-news/dua-lipa-tribute-selena-amor-prohibido-mexico-city-1235479469/) - Rolling Stone
+- [A guide to Dua Lipa’s Latin American cover songs - Los Angeles Times](https://www.latimes.com/delos/story/2025-12-05/dua-lipa-covers-world-tour-latin-america-shakira-mana-mon-laferte-soda-stereo) - Latimes
+- [Phil Upchurch Death: Legendary Guitarist & Session Musician Dies at 84](http://www.billboard.com/music/music-news/phil-upchurch-death-guitarist-michael-jackson-dead-obituary-1236130053/) - Billboard
+- [Phil Upchurch](https://en.wikipedia.org/wiki/Phil_Upchurch) - Wikipedia
+- [Phil Upchurch Dead: Guitarist and Composer Was 84 - Variety](https://variety.com/2025/music/news/phil-upchurch-dead-guitarist-composer-1236599436/) - Variety
+- [Legendary musician dead at 84: ‘One of the all-time guitar greats’ - PennLive.com](https://www.pennlive.com/entertainment/2025/12/legendary-musician-dead-at-84-one-of-the-all-time-guitar-greats.html) - Pennlive
+- [Asia Artist Awards 2025 Winners List: IU, Stray Kids, And IVE Win Big At 10th Anniversary Ceremony](https://www.forbes.com/sites/hannahabraham/2025/12/06/asia-artist-awards-2025-winners-list-iu-stray-kids-and-ive-win-big-at-10th-anniversary-ceremony/) - Forbes
+- [AAA典禮／完整得獎名單出爐！IU橫掃5獎煙火狂放　Stray Kids奪年度歌手](https://tw.news.yahoo.com/aaa%E5%85%B8%E7%A6%AE-%E5%AE%8C%E6%95%B4%E5%BE%97%E7%8D%8E%E5%90%8D%E5%96%AE%E5%87%BA%E7%88%90-iu%E6%A9%AB%E6%8E%835%E7%8D%8E%E7%85%99%E7%81%AB%E7%8B%82%E6%94%BE-stray-kids%E5%A5%AA%E5%B9%B4%E5%BA%A6%E6%AD%8C%E6%89%8B-152600137.html) - Yahoo Entertainment
+- [AAA頒獎典禮／張員瑛、李俊昊雙人舞開場！表演舞台、得獎名單不斷更新](https://tw.news.yahoo.com/live/aaa%E9%A0%92%E7%8D%8E%E5%85%B8%E7%A6%AE%EF%BC%8F%E5%BC%B5%E5%93%A1%E7%91%9B%E3%80%81%E6%9D%8E%E4%BF%8A%E6%98%8A%E9%9B%99%E4%BA%BA%E8%88%9E%E9%96%8B%E5%A0%B4%EF%BC%81%E8%A1%A8%E6%BC%94%E8%88%9E%E5%8F%B0%E3%80%81%E5%BE%97%E7%8D%8E%E5%90%8D%E5%96%AE%E4%B8%8D%E6%96%B7%E6%9B%B4%E6%96%B0-083102156.html) - Yahoo Entertainment
+- [Winners Of 2025 Asia Artist Awards](http://www.soompi.com/article/1803464wpp/winners-of-2025-asia-artist-awards) - soompi
+- [Deftones Chart A Brand New Album — With A Decades-Old Release](https://www.forbes.com/sites/hughmcintyre/2025/12/06/deftones-chart-a-brand-new-album---with-a-decades-old-release/) - Forbes
+- [Hitmakers Repeat Offenders: How Smash Singles From Sabrina Carpenter, Shaboozey and Benson Boone Came Together](https://variety.com/2025/music/news/hitmakers-repeat-offenders-sabrina-carpenter-shaboozey-1236601773/) - Variety
+- [Sabrina Carpenter Tells Industry Insiders ‘Write the Music You Want to Listen to Yourself’ as She Receives Variety’s Hitmaker of the Year Honor](https://variety.com/2025/music/news/sabrina-carpenter-jack-antonoff-variety-hitmaker-award-1236601911/) - Variety
+- [30 Under 30 Music 2026: Meet The Viral Stars Turning Followers Into Fortune—Alex Warren, Doechii, Benson Boone Lead The Pack - Forbes](https://www.forbes.com/sites/zoyahasan/2025/12/02/30-under-30-music-2026-the-viral-stars-turning-followers-into-fortune-alex-warren-doechii-benson-boone-lead-the-pack/) - Forbes
+- [After you check out your Spotify Wrapped 2025, explore these copycats  \| TechCrunch](https://techcrunch.com/2025/12/06/spotify-wrapped-2024-is-almost-here-its-time-to-explore-all-the-copycats/) - TechCrunch
+- [How does your Spotify Wrapped get made? 3 Spotify leaders break down the yearlong process. - Business Insider](https://www.businessinsider.com/inside-spotify-wrapped-team-creation-process-2025-12) - Businessinsider
+- [It's time to unpack Spotify Wrapped. Here's how the music streamer compiled your 2025 recap - Greenwich Time](https://www.greenwichtime.com/business/article/it-s-time-to-unpack-spotify-wrapped-here-s-how-21220478.php) - Greenwichtime
+- [It's time to unpack Spotify Wrapped. Here's how the music streamer compiled your 2025 recap - ABC News](https://abcnews.go.com/Business/wireStory/time-unpack-spotify-wrapped-music-streamer-compiled-2025-128070281) - Go
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Rosé Lights Up the Grammy Museum With Intimate LA Performance](https://www.justjared.com/2025/12/06/rose-lights-up-the-grammy-museum-with-intimate-la-performance/) - Just Jared
+- [The Weeknd and Playboi Carti preview ‘Timeless’ early](https://rollingout.com/2025/12/06/the-weeknd-playboi-carti-timeless/) - Rolling Out
+- [Music Biz Headlines: The Weeknd Sets Record for Top-Earning Tour By a Male Artist, Joni Mitchell Comes to the Junos in Hamilton - Billboard Canada](https://ca.billboard.com/fyi/the-weeknd-touring-record-joni-mitchell-junos) - Billboard
+- [Hollywood Minute: Stryper’s first Christmas album \| CNN](https://www.cnn.com/2025/12/06/entertainment/video/hollywood-entertainment-christmas-music-stryper-the-greatest-gift-of-all) - CNN
+- [Tyler, the Creator Saluted for a Decade of ‘Super-Duper, Awesome S—‘ at Variety’s Hitmakers Event](https://variety.com/2025/music/news/tyler-the-creator-innovator-andre-3000-variety-hitmakers-1236601813/) - Variety
+- [The best moments from Camp Flog Gnaw 2025 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-11-24/best-moments-from-camp-flog-gnaw-2025) - Latimes
+- [JADE Drops 'That's Showbiz Baby!' Deluxe Album, Debuts 'Church' Music Video - Listen & Watch Now!](https://www.justjared.com/2025/12/06/jade-drops-thats-showbiz-baby-deluxe-album-debuts-church-music-video-listen-watch-now/) - Just Jared
+- [HERIOT Talk About Their Tour-Filled Year, While Also On A New Tour With TRIVIUM](https://metalinjection.net/interviews/heriot-talk-about-their-tour-filled-year-while-also-on-a-new-tour-with-trivium) - Metal Injection.net
+- [Amy Berg’s ‘It’s Never Over, Jeff Buckley,’ Becomes A Box Office Hit En Route To Oscar Contention](http://deadline.com/2025/12/its-never-over-jeff-buckley-interview-amy-berg-ryan-heller-1236638207/) - Deadline
+- [New movies and shows on Prime Video, Netflix and HBO Max - Axios](https://www.axios.com/2025/12/04/new-movies-tv-prime-video-netflix-hbo-max) - Axios
+- [Music Docs About BTS ARMY, Selena, Led Zeppelin & More on Oscar Longlist for Documentary Feature Film - billboard.com](https://www.billboard.com/music/awards/music-documentaries-oscar-longlist-documentary-feature-film-1236119831/) - Billboard
