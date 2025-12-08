@@ -1,0 +1,33 @@
+# Sources for 2025-12-08 News Episode 
+- [Billboard Magazine - 6 December 2025](https://post.rlsbb.to/billboard-magazine-6-december-2025/) - Rlsbb.to
+- [Essay: Remastered 'Beatles Anthology' is a reminder that the Fab Four will never fade - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-11-26/beatles-anthology-review-disney) - Latimes
+- [It’s a Love That Lasts Forever: How ‘Anthology’ Redefined The Beatles Story - Rolling Stone](https://www.rollingstone.com/music/music-features/beatles-anthology-documentary-interview-1235471257/) - Rollingstone
+- [Dijon Jams With Justin Vernon, Nick Hakim On ‘SNL’](https://www.spin.com/2025/12/dijon-saturday-night-live/) - SPIN
+- [Watch Dijon Perform “Higher!” and Baby Medley on Saturday Night Live - Pitchfork](https://pitchfork.com/news/watch-dijon-perform-higher-and-baby-medley-on-saturday-night-live/) - Pitchfork
+- [Dijon Makes SNL Debut With Huge Band Including Justin Vernon, Nick Hakim, & Amber Coffman - Stereogum](https://stereogum.com/2482166/dijon-makes-snl-debut-with-huge-band-including-justin-vernon-nick-hakim-amber-coffman/news) - Stereogum
+- [Stray Kids’ “DO IT” Remains In Top 4 Of Billboard 200 + Achieves Their Biggest 2nd Week Yet](http://www.soompi.com/article/1803767wpp/stray-kids-do-it-remains-in-top-4-of-billboard-200-achieves-their-biggest-2nd-week-yet) - soompi
+- [Stray Kids’ ‘DO IT’ Debuts at No. 1 on Billboard 200, Extending Their Historic Streak to Eight - allkpop](https://www.allkpop.com/article/2025/12/stray-kids-do-it-debuts-at-no-1-on-billboard-200-extending-their-historic-streak-to-eight) - Allkpop
+- [Stray Kids Extend Record-Breaking Billboard Streak With ‘DO IT’ - Forbes](https://www.forbes.com/sites/hannahabraham/2025/12/02/stray-kids-extend-record-breaking-billboard-streak-with-do-it/) - Forbes
+- [Will Stray Kids End Taylor Swift’s Run Atop the Billboard 200 — Or Will Swift End the Kids’ No. 1 Albums Streak? - Billboard](https://www.billboard.com/music/chart-beat/stray-kids-taylor-swift-billboard-200-do-it-number-one-1236123633/) - Billboard
+- [DAVE MUSTAINE Says MEGADETH Can't Do Full-Lineup Reunion Because "Of The Behavior Of One Of The Band Members In The Past"](https://metalinjection.net/news/dave-mustaine-says-megadeth-cant-do-full-lineup-reunion-because-of-the-behavior-of-one-of-the-band-members-in-the-past) - Metal Injection.net
+- [PRAED Orchestra! – The Dictionary of Lost Meanings (2025)](https://exystence.net/blog/2025/12/07/praed-orchestra-the-dictionary-of-lost-meanings-2025/) - Exystence.net
+- [He Did It: Fyre Fest’s Billy McFarland Actually Put On a Music Festival](https://consequence.net/2025/12/billy-mcfarland-fyre-fest-phnx/) - Consequence.net
+- [Slipknot-endorsed Mapuche metal champions Mawiza have recorded a live session in Gojira’s studio – and you really need to watch it](https://www.loudersound.com/news/mawiza-release-live-session-gojira-studio-silver-cord-2025) - Louder
+- ["It's a celebration of the common man and his extraordinary potential." The story behind the Foo Fighters classic that everyone assumed was about Kurt Cobain - but was actually about something a lot more simple](https://www.loudersound.com/bands-artists/foo-fighters-my-hero-the-story-of-the-song) - Louder
+- [What “2026” Could Feel Like For Music Marketing And Why You Should Care \| RAME](https://www.rameglobal.com/what-2026-could-feel-like-for-music-marketing-and-why-you-should-care/) - Rameglobal.com
+- [VaynerX CMO on 2026 social media trends and why the agency avoided an AI rebrand - Ad Age](https://adage.com/ad-age-video-podcast/marketers-brief/aa-avery-akkineni-vayner-cmo-social-trends-2026/) - Adage
+- [How Etaily Is Riding Southeast Asia’s Ecommerce Wave - Forbes](https://www.forbes.com/sites/davidprosser/2025/12/04/how-etaily-is-riding-southeast-asias-ecommerce-wave/) - Forbes
+- [Deezer rolls out ‘My Deezer Year 2025,’ its Spotify Wrapped clone - TechCrunch](https://techcrunch.com/2025/12/01/deezer-rolls-out-my-deezer-year-2025-its-spotify-wrapped-clone/) - Techcrunch
+- [Ferg on ‘Flip Phone Shorty’, Working With Lex Luger, and His New Life as a Visual Artist](http://www.rollingstone.com/music/music-features/ferg-flip-phone-shorty-interview-1235477667/) - Rolling Stone
+- [INTERVIEW: Shaun Morgan Looks Back at Earliest Days of Seether](https://loudwire.com/seether-shaun-morgan-early-days-new-music-interview/) - Loudwire
+- [WATCH: Trump presents medals to 2025 Kennedy Center honorees at the Oval Office](https://www.pbs.org/newshour/arts/watch-trump-presents-medals-to-2025-kennedy-center-honorees-at-the-oval-office) - PBS
+- [Trump’s Kennedy Center Honors overhaul delivers star-studded lineup, new medallion and historic hosting role](https://www.foxnews.com/entertainment/trumps-kennedy-center-honors-overhaul-delivers-star-studded-lineup-new-medallion-historic-hosting-role) - Fox News
+- [Trump Hosts Kennedy Center Honors Recognizing KISS, Stallone & Others](http://www.billboard.com/music/music-news/trump-kennedy-center-honors-host-2025-1236130130/) - Billboard
+- [Trump Awards Medals To Kennedy Center Honorees](https://dailycaller.com/2025/12/07/trump-kennedy-center-honorees-oval-office-sylvester-stallone-gene-simmons-gloria-gaynor-tiffany-medals/) - The Daily Caller
+- [Trump reveals beloved Kennedy Center honorees](https://rollingout.com/2025/12/07/trump-reveals-kennedy-center-honorees/) - Rolling Out
+- [Trump awards medals to the Kennedy Center honorees in an Oval Office ceremony](https://whdh.com/news/trump-awards-medals-to-the-kennedy-center-honorees-in-an-oval-office-ceremony/) - Boston News, Weather, Sports | WHDH 7News
+- [Kesha Has Learned to Love ‘Tik Tok’: ‘That Was Just Me!’](http://www.rollingstone.com/music/music-features/kesha-tik-tok-interview-animal-cannibal-1235478993/) - Rolling Stone
+- [Former Free and Faces bassist Tetsu Yamauchi dead at 79](https://www.loudersound.com/bands-artists/former-free-and-faces-bassist-tetsu-yamauchi-dead-at-79) - Louder
+- [Fragile, inconvenient and low quality: Why are cassettes back in vogue?](https://www.abc.net.au/news/2025-12-07/cassette-tapes-are-making-a-comeback/106102136) - ABC News (AU)
+- [Why do Gen Z have a growing appetite for retro tech? - BBC](https://www.bbc.com/news/articles/ckgl8nj8nvzo) - Bbc
+- [Retro Gadgets For Vintage Lovers: 5 Nostalgic Gifts That Actually Work In 2025 - Yanko Design](https://www.yankodesign.com/2025/11/22/retro-gadgets-for-vintage-lovers-5-nostalgic-gifts-that-actually-work-in-2025/) - Yankodesign
