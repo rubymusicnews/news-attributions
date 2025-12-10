@@ -1,0 +1,47 @@
+# Sources for 2025-12-10 News Episode 
+- [TikTok’s Top Global Song of the Year Is a 63-Year-Old Hit Single From Connie Francis](http://www.rollingstone.com/music/music-news/tiktok-connie-francis-2025-top-global-song-1235480832/) - Rolling Stone
+- [KATSEYE, a Sixty-Year-Old Hit, and the New Global Music Map](http://www.rollingstone.com/music/music-news/katseye-tiktok-1235480090/) - Rolling Stone
+- [Katseye Is TikTok’s Top Artist Of 2025, 63-Year-Old ‘Pretty Little Baby’ Is No. 1 Song - Forbes](https://www.forbes.com/sites/conormurray/2025/12/09/katseye-is-tiktoks-top-artist-of-2025-63-year-old-pretty-little-baby-is-no-1-song/) - Forbes
+- [Jess Glynne: Singer secures TikTok's UK song of 2025 - BBC](https://www.bbc.com/news/articles/cg4nrrxrprvo) - Bbc
+- [Katseye Named TikTok’s Global Artist of the Year - Variety](https://variety.com/2025/music/news/katseye-named-tiktok-global-artist-of-the-year-1236603939/) - Variety
+- [TikTok Anoints KATSEYE as Global Artist of 2025 - Billboard](https://www.billboard.com/music/music-news/tiktok-katseye-global-artist-2025-1236132159/) - Billboard
+- [Joe Satriani and Steve Vai Announce 2026 North American SATCHVAI Band Tour](https://consequence.net/2025/12/joe-satriani-steve-vai-2026-north-american-satchvai-band-tour/) - Consequence.net
+- [Post Malone Barely Misses Out On A Brand New No. 1 Album](https://www.forbes.com/sites/hughmcintyre/2025/12/09/post-malone-barely-misses-out-on-a-brand-new-no-1-album/) - Forbes
+- [Post Malone to host free Super Bowl concert in S.F. - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/post-malone-concert-san-francisco-21205594.php) - Sfchronicle
+- [The Beatles Chart A Brand New Top 10 Hit With A Modern Classic](https://www.forbes.com/sites/hughmcintyre/2025/12/09/the-beatles-chart-a-brand-new-top-10-hit-with-a-modern-classic/) - Forbes
+- [Essay: Remastered 'Beatles Anthology' is a reminder that the Fab Four will never fade - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-11-26/beatles-anthology-review-disney) - Latimes
+- [It’s a Love That Lasts Forever: How ‘Anthology’ Redefined The Beatles Story - Rolling Stone](https://www.rollingstone.com/music/music-features/beatles-anthology-documentary-interview-1235471257/) - Rollingstone
+- [TikTok Top Trending Songs of 2025: Top 20 Songs & Artists Revealed - No. 1 Song Is From 1962!](https://www.justjared.com/2025/12/09/tiktok-top-trending-songs-of-2025-top-20-songs-artists-revealed-no-1-song-is-from-1962/) - Just Jared
+- [Entertainment: KATSEYE Breaks TikTok: When Viral Views Become Grammy Nods - InsightTrendsWorld](https://www.insighttrendsworld.com/post/entertainment-katseye-breaks-tiktok-when-viral-views-become-grammy-nods) - Insighttrendsworld
+- [TikTok Anoints KATSEYE as Global Artist of 2025 - Billboard](https://www.billboard.com/music/music-news/tiktok-katseye-global-artist-2025-1236132159/) - Billboard
+- [Katseye Named TikTok’s Global Artist of the Year - Variety](https://variety.com/2025/music/news/katseye-named-tiktok-global-artist-of-the-year-1236603939/) - Variety
+- [Jess Glynne: Singer secures TikTok's UK song of 2025 - BBC](https://www.bbc.com/news/articles/cg4nrrxrprvo) - Bbc
+- [Mariah Carey's 'Here For It All Holiday Special' to Stream Live: How to Watch at Home](https://www.justjared.com/2025/12/09/mariah-carey-teams-up-with-tiktok-apple-music-to-stream-final-vegas-holiday-show/) - Just Jared
+- [Spotify Launches Music Videos For U.S. Subscribers](http://deadline.com/2025/12/spotify-lauches-music-videos-us-canada-subscribers-1236642702/) - Deadline
+- [Spotify rolls out music videos to Premium subscribers, challenging YouTube Music [U]](http://9to5google.com/2025/12/09/spotify-music-videos-beta/) - 9to5google.com
+- [Canadians can now watch music videos on Spotify](https://mobilesyrup.com/2025/12/09/spotify-music-videos-canada/) - MobileSyrup
+- [Spotify Music Videos Now in Beta in Canada and the US](https://www.iphoneincanada.ca/2025/12/09/spotify-music-videos-beta-canada-us/) - iPhone in Canada
+- [Spotify launches music videos in the U.S. and Canada for Premium subscribers - TechCrunch](https://techcrunch.com/2025/12/09/spotify-launches-music-videos-in-the-u-s-and-canada-for-premium-subscribers/) - Techcrunch
+- [Spotify expands music videos access to premium users in U.S., Canada to take on YouTube - CNBC](https://www.cnbc.com/2025/12/09/spotify-music-videos-youtube.html) - Cnbc
+- [‘KPop Demon Hunters’ Are Slaying The iHeartRadio’s Jingle Ball Circuit](https://www.forbes.com/sites/laurasirikul/2025/12/08/kpop-demon-hunters-are-slaying-the-iheartradios-jingle-ball-circuit/) - Forbes
+- [‘KPop Demon Hunters’ Singers, Zara Larsson, Conan Gray, Leon Thomas & More Light Up 2025 Jingle Ball LA: Exclusive Photos On & Offstage - Billboard](https://www.billboard.com/photos/jingle-ball-la-2025-photos-huntrx-zara-larsson-conan-gray-1236131486/) - Billboard
+- ["We knew there was still a chapter left to write": Triumph announce first tour in more than three decades](https://www.loudersound.com/bands-artists/triumph-50th-anniversary-tour) - Louder
+- [Legendary Rockers Triumph Announce First Tour in Over 30 Years](https://consequence.net/2025/12/triumph-first-tour-30-years/) - Consequence.net
+- [Triumph Announce 50th Anniversary North American Tour Featuring 10 Canadian Arena Shows - Billboard Canada](https://ca.billboard.com/music/rock/triumph-50th-anniversary-tour) - Billboard
+- [An AI copycat of King Gizzard & the Lizard Wizard went unnoticed on Spotify for weeks](https://www.madshrimps.be/news/an-ai-copycat-of-king-gizzard-the-lizard-wizard-went-unnoticed-on-spotify-for-weeks/) - Madshrimps.be
+- [AI-Music Heavyweight Suno Partners With Warner Music Group After Lawsuit Settlement - Rolling Stone](https://www.rollingstone.com/music/music-features/suno-warner-music-group-ai-music-settlement-lawsuit-1235472868/) - Rollingstone
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Warner Music Group settles lawsuit with AI firm Suno - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-11-25/warner-music-group-suno-ai-lawsuit-settlement) - Latimes
+- [How can you tell if your new favourite artist is a real person? - BBC](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - Bbc
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
+- [Iron Maiden Hits No. 1 For The First Time With A Decades-Old Album](https://www.forbes.com/sites/hughmcintyre/2025/12/09/iron-maiden-hits-no-1-for-the-first-time-with-a-decades-old-album/) - Forbes
+- [Christina Aguilera Teases Her Upcoming Album & Explains How She's Very Intentional With Her Music](https://www.justjared.com/2025/12/09/christina-aguilera-teases-her-upcoming-album-explains-how-shes-very-intentional-with-her-music/) - Just Jared
+- [An Evening With PinkPantheress Extends Into 2026](https://pitchfork.com/news/pinkpantheress-announces-2026-tour-dates/) - Pitchfork
+- [PinkPantheress Announces 2026 North American Tour](https://consequence.net/2025/12/pinkpantheress-2026-north-american-tour/) - Consequence.net
+- [Devo Add One More Tour to Their 2026](https://pitchfork.com/news/devo-2026-tour-dates/) - Pitchfork
+- [Self Esteem Confirms Summer UK Shows At Outdoor Venues - Stereoboard.com](https://www.stereoboard.com/content/view/249890/9) - Stereoboard
+- [Nick Mason Will Never Mope About Pink Floyd](http://www.vulture.com/article/nick-mason-wish-you-were-here-david-gilmour-roger-waters.html) - Vulture
+- [Pink Floyd Launches Pop-Up Stores to Celebrate 50 Years ...](https://axs.tv/news-story/pink-floyd-launches-pop-up-stores-to-celebrate-50-years-of-wish-you-were-here/) - Axs
+- [Pink Floyd's 'Wish You Were Here' Turns 50 With Global Pop-Up ...](https://parade.com/news/pink-floyds-wish-you-were-here-turns-50-with-global-pop-up-stores) - Parade
+- [Pink Floyd to open Wish You Were Here pop-up stores across ...](https://www.loudersound.com/bands-artists/pink-floyd-to-open-pop-up-stores-across-europe-and-in-la-in-december) - Loudersound
