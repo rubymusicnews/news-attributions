@@ -1,0 +1,31 @@
+# Sources for 2025-12-11 News Episode 
+- [Why the music industry is changing its tune on AI](https://www.businessinsider.com/why-the-music-industry-is-changing-its-tune-on-ai-2025-12) - Business Insider
+- [AI-Music Heavyweight Suno Partners With Warner Music Group After Lawsuit Settlement - Rolling Stone](https://www.rollingstone.com/music/music-features/suno-warner-music-group-ai-music-settlement-lawsuit-1235472868/) - Rollingstone
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Warner Music Group settles lawsuit with AI firm Suno - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-11-25/warner-music-group-suno-ai-lawsuit-settlement) - Latimes
+- [How can you tell if your new favourite artist is a real person? - BBC](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - Bbc
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
+- [Hybe chairman Bang Si-Hyuk: “Our role is to translate India’s talent for the world”](http://musically.com/2025/12/10/hybe-chairman-bang-si-hyuk-our-role-is-to-translate-indias-talent-for-the-world/) - Music Ally
+- [Watch Avicii tribute concert, Together For A Better Day 2025, filmed live in Stockholm](https://djmag.com/news/watch-avicii-tribute-concert-together-better-day-2025-filmed-live-stockholm) - DJ Mag
+- [Charli XCX’s ‘The Moment,’ Courtney Love Documentary to Premiere at Sundance 2026](http://www.rollingstone.com/music/music-news/sundance-2026-charli-xcx-courtney-love-premiere-1235481569/) - Rolling Stone
+- [Boxscore chart reveals five tours grossed over $300m in last year](http://musically.com/2025/12/10/boxscore-chart-reveals-five-tours-grossed-over-300m-in-last-year/) - Music Ally
+- [Pollstar’s most popular touring artists of the new millennium](https://www.hurriyetdailynews.com/pollstars-most-popular-touring-artists-of-the-new-millennium-216627) - Hurriyet Daily News
+- [Coldplay, U2 and Ed Sheeran top Pollstar's most popular touring artists of the new millennium - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/coldplay-u2-and-ed-sheeran-top-pollstar-s-most-21230230.php) - Sfchronicle
+- [Coldplay, U2 and Ed Sheeran top Pollstar's most popular touring artists of the new millennium - Greenwich Time](https://www.greenwichtime.com/entertainment/article/coldplay-u2-and-ed-sheeran-top-pollstar-s-most-21230230.php) - Greenwichtime
+- [Rock Isn’t Dead — But Younger Competition Is Closing In On Tour - Billboard](https://www.billboard.com/pro/rock-isnt-dead-on-tour/) - Billboard
+- [Coldplay, U2 and Ed Sheeran top Pollstar's most popular touring artists of the new millennium - The Sun Chronicle](https://www.thesunchronicle.com/business/coldplay-u2-and-ed-sheeran-top-pollstars-most-popular-touring-artists-of-the-new-millennium/article_56b179fa-3509-58e9-96f3-7afbeedc93ae.html) - Thesunchronicle
+- [Fleetwood Mac Charts Another New Bestseller, Months After The Band’s Latest Hit](https://www.forbes.com/sites/hughmcintyre/2025/12/10/fleetwood-mac-charts-another-new-bestseller-months-after-the-bands-latest-hit/) - Forbes
+- [Sombr talks about writing music from childhood bedroom and rise to fame](https://www.cbsnews.com/video/sombr-talks-about-writing-music-from-childhood-bedroom-and-rise-to-fame/) - CBS News
+- [How to Get Tickets to Brandi Carlile’s Girls Just Wanna Weekend Destination Festival](https://consequence.net/2025/12/brandi-carlile-girls-just-wanna-weekend-how-to-get-tickets/) - Consequence.net
+- [JOE SATRIANI & STEVE VAI Announce North American Tour With ANIMALS AS LEADERS](https://metalinjection.net/tour-dates/joe-satriani-steve-vai-announce-north-american-tour-with-animals-as-leaders) - Metal Injection.net
+- ["This is worshipping Satan!" Country music superstar horrifies shocked fans with "demon ritual" at Las Vegas shows, amused metalheads suggest further listening for next steps into hell](https://www.loudersound.com/bands-artists/country-music-superstar-horrifies-fans-with-demon-ritual) - Louder
+- [Fans Freak Out at Zac Brown's 'Demon Ritual' with 'Hellish Scenes' at Las Vegas Concert](https://www.breitbart.com/entertainment/2025/12/10/zac-brown-shocks-fans-with-hell-themed-ritual-demons-devil-horns-fans-say/) - Breitbart News
+- [“We got back together after 25 years and people came from all around the world, saying how important that album had been”: The Dutch quartet inspired by just five minutes of Soft Machine music](https://www.loudersound.com/music/albums/supersister-present-from-nancy) - Louder
+- [DAVE MUSTAINE Reveals Why MEGADETH Is Calling It Quits](https://metalinjection.net/news/dave-mustaine-reveals-why-megadeth-is-calling-it-quits) - Metal Injection.net
+- [Testament's 'Para Bellum' - 2025 Metal Album of the Year](https://loudwire.com/testament-parabellum-best-metal-album-2025/) - Loudwire
+- [Deafheaven Tease New Music for 2026](https://consequence.net/2025/12/deafheaven-new-music-2026/) - Consequence.net
+- [Spotify has music videos now (for Premium subscribers)](https://www.tubefilter.com/2025/12/10/spotify-premium-us-canada-music-videos/) - Tubefilter
+- [Spotify expands music videos access to premium users in U.S., Canada to take on YouTube - CNBC](https://www.cnbc.com/2025/12/09/spotify-music-videos-youtube.html) - Cnbc
+- [Spotify Expands Music Videos in Beta to Premium Users in the US and Canada - Spotify — For the Record](https://newsroom.spotify.com/2025-12-09/music-videos-beta-premium-us-canada/) - Spotify
+- [Spotify launches music videos in the U.S. and Canada for Premium subscribers - TechCrunch](https://techcrunch.com/2025/12/09/spotify-launches-music-videos-in-the-u-s-and-canada-for-premium-subscribers/) - Techcrunch
