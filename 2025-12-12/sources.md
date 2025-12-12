@@ -1,0 +1,36 @@
+# Sources for 2025-12-12 News Episode 
+- [Rap superstars Public Enemy and Ice Cube to support Guns N' Roses on 2026 US tour](https://www.loudersound.com/bands-artists/public-enemy-and-ice-cube-to-support-guns-n-roses) - Louder
+- [New Orleans Jazz Fest Reveals 2026 Lineup](https://consequence.net/2025/12/new-orleans-jazz-fest-2026-lineup/) - Consequence.net
+- [Jazz Fest 2026 lineup: The Eagles, Stevie Nicks, Rod Stewart, David Byrne - Axios](https://www.axios.com/local/new-orleans/2025/12/11/new-orleans-jazz-fest-2026-full-lineup) - Axios
+- [How to get Linkin Park tickets: Remaining 2025 and 2026 dates and prices](https://www.businessinsider.com/guides/tickets/how-much-are-linkin-park-tickets-concert-tour) - Business Insider
+- [Rolling Stones finally approve Fatboy Slim sample after 25 years](https://www.bbc.com/news/articles/c2dzre3z96go) - BBC News
+- [Paul Simon Announces 2026 European Tour](https://pitchfork.com/news/paul-simon-announces-2026-european-tour/) - Pitchfork
+- [Rodney Carmichael's Top 10 Albums of 2025](https://www.npr.org/2025/12/11/g-s1-99989/best-albums-of-2025-rodney-carmichael) - NPR
+- [Inside AFKAP’s trilogy: chaos, self-discovery, and the art of change - Indulgexpress](https://www.indulgexpress.com/culture/music/2025/Nov/29/inside-afkaps-trilogy-chaos-self-discovery-and-the-art-of-change) - Indulgexpress
+- [Born in Belfast: How identity influences NI's rising hip hop stars - BBC](https://www.bbc.com/news/articles/cy079dppn15o) - Bbc
+- [The 25 Best Hip-Hop Albums of 2025 - Rolling Stone](https://www.rollingstone.com/music/music-lists/best-hip-hop-albums-of-2025-1235479623/) - Rollingstone
+- [Robbie Williams, David Byrne, Lily Allen lead line-up for Bilbao BBK Live 2026](https://www.thelineofbestfit.com/news/robbie-williams-david-byrne-lily-allen-lead-line-up-for-bilbao-bbk-live-2026) - Thelineofbestfit.com
+- [Charli XCX Contemplates the Future of Brat Summer in Latest ‘The Moment’ Trailer](http://www.rollingstone.com/music/music-news/charli-xcx-the-moment-trailer-brat-summer-1235482401/) - Rolling Stone
+- [Full Trailer for Charli XCX's 'The Moment' Meta Mockumentary Film](https://www.firstshowing.net/2025/full-trailer-for-charli-xcxs-the-moment-meta-mockumentary-film/) - First Showing
+- [Kylie Jenner makes acting debut in Charli XCX’s new movie ‘The Moment’](https://pagesix.com/2025/12/11/entertainment/kylie-jenner-makes-acting-debut-in-charli-xcxs-new-movie-the-moment/) - Page Six
+- [Charli XCX Sends Up Brat Summer in the Latest Trailer for ‘The Moment’ - Vogue](https://www.vogue.com/article/the-moment-charli-xcx-cast-plot-release) - Vogue
+- [Watch Charli XCX Hide Inside a Giant Lighter in New The Moment Trailer - Pitchfork](https://pitchfork.com/news/watch-charli-xcx-hide-inside-a-giant-lighter-in-new-the-moment-trailer/) - Pitchfork
+- [Charli XCX’s The Moment, Courtney Love Doc to Premiere at Sundance 2026 - Pitchfork](https://pitchfork.com/news/charli-xcx-the-moment-courtney-love-sundance-2026/) - Pitchfork
+- [Coldplay Immersive Concert Coming to Quest Soon, Music Pack Lands on ‘Beat Saber’ Next Week](https://www.roadtovr.com/coldplay-quest-concert-music-pack-beat-saber/) - Road to VR
+- [Music x metaverse: Coldplay x Meta, Yeat x Roblox, OZworld…](http://musically.com/2025/12/11/music-x-metaverse-coldplay-x-meta-yeat-x-roblox-ozworld/) - Music Ally
+- [Coldplay Gets Beat Saber DLC & Free Meta Horizon Concert This Month - UploadVR](https://www.uploadvr.com/coldplay-meta-horizon-vr-concert/) - Uploadvr
+- [New Pink Floyd Box Set Finally Reveals Which One’s ‘Pink’](http://www.rollingstone.com/music/music-album-reviews/pink-floyd-wish-you-were-here-50th-anniversary-box-review-1235482511/) - Rolling Stone
+- [Pink Floyd Launches Pop-Up Stores to Celebrate 50 Years ...](https://axs.tv/news-story/pink-floyd-launches-pop-up-stores-to-celebrate-50-years-of-wish-you-were-here/) - Axs
+- [Pink Floyd's 'Wish You Were Here' Turns 50 With Global Pop-Up ...](https://parade.com/news/pink-floyds-wish-you-were-here-turns-50-with-global-pop-up-stores) - Parade
+- [Pink Floyd to open Wish You Were Here pop-up stores across ...](https://www.loudersound.com/bands-artists/pink-floyd-to-open-pop-up-stores-across-europe-and-in-la-in-december) - Loudersound
+- [Ariana Grande Scores A New Hit Alongside One Of Pop’s Leading Ladies](https://www.forbes.com/sites/hughmcintyre/2025/12/11/ariana-grande-scores-a-new-hit-alongside-one-of-pops-leading-ladies/) - Forbes
+- [WizTheMC says “yes” to a new era: Inside the world of 'YEBO' [Interview]](https://earmilk.com/2025/12/11/wizthemc-says-yes-to-a-new-era-inside-the-world-of-yebo-interview/) - Earmilk.com
+- [Queen star Brian May’s wife sheds light on band’s future after guitarist’s stroke](https://www.the-independent.com/arts-entertainment/music/news/queen-brian-may-tour-health-b2882390.html) - The-independent.com
+- [Cameron Winter Makes Lucas Hedges Direct Traffic in New “Love Takes Miles” Video](https://pitchfork.com/news/cameron-winter-makes-lucas-hedges-direct-traffic-in-new-love-takes-miles-video/) - Pitchfork
+- [Connect Chats: Tomas Luyke – ‘Focus on finding your people’](http://musically.com/2025/12/11/connect-chats-tomas-luyke-focus-on-finding-your-people/) - Music Ally
+- [AI-Music Heavyweight Suno Partners With Warner Music Group After Lawsuit Settlement - Rolling Stone](https://www.rollingstone.com/music/music-features/suno-warner-music-group-ai-music-settlement-lawsuit-1235472868/) - Rollingstone
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Warner Music Group settles lawsuit with AI firm Suno - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-11-25/warner-music-group-suno-ai-lawsuit-settlement) - Latimes
+- [How can you tell if your new favourite artist is a real person? - BBC](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - Bbc
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
