@@ -1,0 +1,52 @@
+# Sources for 2025-12-13 News Episode 
+- [What we learned in the first two episodes of Taylor Swift’s Disney+ Eras Tour docuseries](https://www.bostonherald.com/2025/12/12/taylor-swift-disney-eras-tour-docuseries/) - Boston Herald
+- [Taylor Swift ‘The End Of An Era’ Release Schedule—When Do New Episodes Drop?](https://www.forbes.com/sites/monicamercuri/2025/12/12/taylor-swift-the-end-of-an-era-release-schedule-when-do-new-episodes-drop/) - Forbes
+- [Taylor Swift reveals moment she broke down over Southport attack in new documentary](https://www.bbc.com/news/articles/czxgnqx1yplo) - BBC News
+- [13 Biggest Taylor Swift Reveals In Episodes 1 & 2 Of The End Of An Era Docuseries](https://screenrant.com/taylor-swift-eras-tour-documentary-episodes-1-2-reveals/) - Screen Rant
+- [Read the Emotional Speech Taylor Swift Gave Her Dancers Before Their Final Show](https://www.cosmopolitan.com/entertainment/celebs/a69676506/taylor-swift-final-show-huddle-speech/) - Cosmopolitan.com
+- ['It was little kids' - Taylor Swift breaks down in tears over Southport attacks](https://news.sky.com/story/it-was-little-kids-taylor-swift-breaks-down-in-tears-over-southport-attacks-13482502) - Sky.com
+- [“A vicious takedown of the record industry and the dreams it nurtures then exploits – in many ways a dry run for The Wall”: Pink Floyd’s Wish You Were Here remains mysterious at 50](https://www.loudersound.com/music/albums/pink-floyd-wish-you-were-here-50) - Louder
+- [Pink Floyd Launches Pop-Up Stores to Celebrate 50 Years ...](https://axs.tv/news-story/pink-floyd-launches-pop-up-stores-to-celebrate-50-years-of-wish-you-were-here/) - Axs
+- [Pink Floyd's 'Wish You Were Here' Turns 50 With Global Pop-Up ...](https://parade.com/news/pink-floyds-wish-you-were-here-turns-50-with-global-pop-up-stores) - Parade
+- [Pink Floyd to open Wish You Were Here pop-up stores across ...](https://www.loudersound.com/bands-artists/pink-floyd-to-open-pop-up-stores-across-europe-and-in-la-in-december) - Loudersound
+- [I migliori album stranieri del 2025](https://www.internazionale.it/opinione/giovanni-ansaldo/2025/12/12/migliori-album-2025) - Internazionale.it
+- [AI-Music Heavyweight Suno Partners With Warner Music Group After Lawsuit Settlement - Rolling Stone](https://www.rollingstone.com/music/music-features/suno-warner-music-group-ai-music-settlement-lawsuit-1235472868/) - Rollingstone
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Warner Music Group settles lawsuit with AI firm Suno - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-11-25/warner-music-group-suno-ai-lawsuit-settlement) - Latimes
+- [How can you tell if your new favourite artist is a real person? - BBC](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - Bbc
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
+- [TikTok's 2025 Global Song of the Year Is 63 Years Old](https://www.jezebel.com/tiktoks-2025-global-song-of-the-year-is-63-years-old) - Jezebel
+- [Katseye Is TikTok’s Top Artist Of 2025, 63-Year-Old ‘Pretty Little Baby’ Is No. 1 Song - Forbes](https://www.forbes.com/sites/conormurray/2025/12/09/katseye-is-tiktoks-top-artist-of-2025-63-year-old-pretty-little-baby-is-no-1-song/) - Forbes
+- [Jess Glynne: Singer secures TikTok's UK song of 2025 - BBC](https://www.bbc.com/news/articles/cg4nrrxrprvo) - Bbc
+- [Katseye Named TikTok’s Global Artist of the Year - Variety](https://variety.com/2025/music/news/katseye-named-tiktok-global-artist-of-the-year-1236603939/) - Variety
+- [TikTok Anoints KATSEYE as Global Artist of 2025 - Billboard](https://www.billboard.com/music/music-news/tiktok-katseye-global-artist-2025-1236132159/) - Billboard
+- [Taylor Swift 2025: Die Meilensteine ihres glanzvollen Jahres](https://www.stern.de/lifestyle/leute/taylor-swift-2025--die-meilensteine-ihres-glanzvollen-jahres-36956722.html) - STERN.de
+- [Taylor Swift Reveals Emma Stone Played a Key Part in ‘The Eras Tour’ Success](https://www.thewrap.com/taylor-swift-emma-stone-eras-tour-key-part/) - TheWrap
+- [Taylor Swift’s ‘The Life of a Showgirl’ Is the Top Billboard 200 Album of 2025 - Billboard](https://www.billboard.com/music/chart-beat/taylor-swift-showgirl-2025-year-end-billboard-200-album-1236130192/) - Billboard
+- [Taylor Swift’s Album Sales Explode, With Some Titles Doubling Week-Over-Week - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/12/12/taylor-swifts-album-sales-explode-with-some-titles-doubling-week-over-week/) - Forbes
+- [Taylor Swift went to great lengths to keep Eras Tour surprises under wraps](https://pagesix.com/2025/12/12/entertainment/taylor-swift-went-to-great-lengths-to-keep-eras-tour-surprises-under-wraps/) - Page Six
+- [Taylor Swift Reveals How She Spent Her 'Eras Tour' Money](https://www.justjared.com/2025/12/12/taylor-swift-reveals-how-she-spent-her-eras-tour-money/) - Just Jared
+- [6 New Details From Taylor Swift’s ‘The Tortured Poets Department’ Eras Set From ‘The Final Show’ - Billboard](https://www.billboard.com/lists/taylor-swift-tortured-poets-department-era-details-final-show/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Taylor Swift 'End of an Era' docuseries biggest moments - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/taylor-swift-end-of-an-era-documentary-disney-highlights/87701381007/) - Usatoday
+- [Taylor Swift Shares Anxieties Over Thwarted Attack in 'End of an Era' Ep 1 - Variety](https://variety.com/2025/music/news/taylor-swift-anxieties-end-of-an-era-first-episode-1236607358/) - Variety
+- [Taylor Swift shares trailer of ‘Eras Tour: The Final Show’ concert film - Siasat.com](https://www.siasat.com/taylor-swift-shares-trailer-of-eras-tour-the-final-show-concert-film-3307422/) - Siasat
+- [Kehlani’s Biggest Hit Came a Decade Into Her Career. It’s Right on Time](http://www.rollingstone.com/music/music-features/kehlani-folded-grammys-biggest-year-yet-1235482740/) - Rolling Stone
+- [Kehlani Says Their 10-Year Run In R&B Often Gets “Overlooked”: “I Contributed A Lot”](https://www.rap-up.com/article/kehlani-rnb-contributions-overlooked) - Rap-Up.com
+- [Kehlani Doesn’t Want to Throw a Relationship ‘Out the Window’ on New Single: Stream It Now - ca.billboard.com](https://ca.billboard.com/music/rb-hip-hop/kehlani-out-the-window-single-1236106752/?bil=554&debugld=stickybtest) - Billboard
+- [Grammy Awards 2026: See the list of nominees in the main categories - BBC](https://www.bbc.com/news/articles/c0l7jl7yee4o) - Bbc
+- [Kehlani Is ‘Manifesting’ for Bad Bunny to Not Say ‘a Single Word in English’ at Super Bowl Halftime Show - Billboard](https://www.billboard.com/music/latin/kehlani-bad-bunny-dont-speak-spanish-super-bowl-halftime-1236132491/) - Billboard
+- [The Best Albums of 2025](https://www.theatlantic.com/culture/2025/12/best-albums-2025/685008/) - The Atlantic
+- [The 25 best albums of 2025 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2025-12-05/25-best-albums-of-2025) - Latimes
+- [Bobby Carter's Top 10 Albums of 2025 - NPR Illinois](https://www.nprillinois.org/2025-12-11/bobby-carters-top-10-albums-of-2025) - Nprillinois
+- [New Music Friday: 21 Savage, Nas & DJ Premier, Latto, and Ella Langley's Viral Mashup](https://screenrant.com/new-music-friday-21-savage-nas-dj-premier-latto-viral-ella-langley-mashup/) - Screen Rant
+- [21 Savage’s ‘What Happened to the Streets?’ Album: All 14 Tracks Ranked - Billboard](https://www.billboard.com/lists/21-savage-what-happened-to-the-streets-album-tracks-ranked/) - Billboard
+- [Dancing Astronaut’s New Music Friday: Adam Sellouk & Y do I, Mary Droppinz, LUSU, ROSSY, Fred again.., and more (December 12, 2025)](https://dancingastronaut.com/2025/12/dancing-astronauts-new-music-friday-adam-sellouk-y-do-i-mary-droppinz-lusu-rossy-fred-again-and-more-december-12-2025/) - Dancing Astronaut
+- [Justin Vernon’s Eaux Claires Fest Returning In ’26](https://www.spin.com/2025/12/justin-vernon-eaux-claires/) - SPIN
+- [Brian Wilson – Live at the Roxy Theatre (2000, Remastered 2025)](https://exystence.net/blog/2025/12/12/brian-wilson-live-at-the-roxy-theatre-2000-remastered-2025/) - Exystence.net
+- [Everybody’s Album wants to scheme a Billboard No. 1. Could it work?](https://www.thefader.com/2025/12/12/everybodys-album-danny-cole-anthpo-billboard-1) - The FADER
+- [Pooh Shiesty Drops First Single Since Prison Release](https://pitchfork.com/news/pooh-shiesty-drops-first-single-since-prison-release/) - Pitchfork
+- [Deftones Score A Brand New Hit With One Of The Band’s Oldest Songs](https://www.forbes.com/sites/hughmcintyre/2025/12/12/deftones-score-a-brand-new-hit-with-one-of-the-bands-oldest-songs/) - Forbes
+- [Deftones Chart A Brand New Album — With A Decades-Old Release - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/12/06/deftones-chart-a-brand-new-album---with-a-decades-old-release/) - Forbes
