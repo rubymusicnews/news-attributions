@@ -1,0 +1,58 @@
+# Sources for 2025-12-14 News Episode 
+- [Jimi Hendrix’s Most Famous Albums Advance Again With New Awards](https://www.forbes.com/sites/hughmcintyre/2025/12/13/jimi-hendrixs-most-famous-albums-advance-again-with-new-awards/) - Forbes
+- [9 Takeaways From ‘Taylor Swift: The End of an Era’](https://www.thewrap.com/takeaways-from-taylor-swift-the-end-of-an-era-disney-plus/) - TheWrap
+- [7 Things We Learned From Episodes One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episodes-one-and-two-of-the-end-of-an-era) - Vogue
+- [7 Things We Learned From Episode One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episode-one-and-two-of-the-end-of-an-era) - Vogue
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - Greenwich Time](https://www.greenwichtime.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Greenwichtime
+- [Taylor Swift’s ‘Eras Tour’ Documentary and ‘Final Show’ Concert to Stream on Disney+ Tonight - Variety](https://variety.com/2025/shopping/news/taylor-swift-eras-tour-documentary-streaming-online-1236606945/) - Variety
+- [Taylor Swift's Eras Tour docuseries is here. See episode schedule. - USA Today](https://www.usatoday.com/story/entertainment/movies/2025/12/12/taylor-swifts-eras-tour-docuseries-episode-schedule/87740028007/) - Usatoday
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Taylor Swift Was ‘Afraid’ for Fans Following Eras Tour Terror Plot, Had to ‘Calm Down’ Backstage - Yahoo](https://www.yahoo.com/entertainment/music/articles/taylor-swift-afraid-fans-following-155649981.html) - Yahoo
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Nas and DJ Premier Are Elder Statesmen With Gifts Left to Share](http://www.rollingstone.com/music/music-album-reviews/nas-and-dj-premier-light-years-review-1235483755/) - Rolling Stone
+- [Nas and DJ Premier Finally Locked In for a Full Album - GQ](https://www.gq.com/story/nas-and-dj-premier-finally-locked-in-for-a-full-album) - Gq
+- [Nas & DJ Premier’s ‘Light-Years’: All 15 Tracks Ranked - Billboard](https://www.billboard.com/lists/nas-dj-premier-light-years-tracks-ranked-best-songs/) - Billboard
+- [The ‘Tap In’ 20 for ’25 List Is Here - GQ](https://www.gq.com/story/the-tap-in-25-for-25-list-is-here) - Gq
+- [Nas to Headline Amazon Music’s ‘In the Paint’ Series During NBA Cup 2025 Semifinals - Billboard](https://www.billboard.com/music/rb-hip-hop/nas-headline-amazon-music-show-nba-cup-semifinals-1236132324/) - Billboard
+- [Inside the Eras Tour windfall: One team member’s reaction to Taylor Swift’s $197 million bonus goes viral](https://economictimes.indiatimes.com/news/international/us/inside-the-eras-tour-windfall-one-team-members-reaction-to-taylor-swifts-197-million-bonus-goes-viral/articleshow/125949948.cms) - The Times of India
+- [6 New Details From Taylor Swift’s ‘The Tortured Poets Department’ Eras Set From ‘The Final Show’ - Billboard](https://www.billboard.com/lists/taylor-swift-tortured-poets-department-era-details-final-show/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Sfchronicle
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Taylor Swift 'End of an Era' docuseries biggest moments - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/taylor-swift-end-of-an-era-documentary-disney-highlights/87701381007/) - Usatoday
+- [Taylor Swift Shares Anxieties Over Thwarted Attack in 'End of an Era' Ep 1 - Variety](https://variety.com/2025/music/news/taylor-swift-anxieties-end-of-an-era-first-episode-1236607358/) - Variety
+- [Taylor Swift shares trailer of ‘Eras Tour: The Final Show’ concert film - Siasat.com](https://www.siasat.com/taylor-swift-shares-trailer-of-eras-tour-the-final-show-concert-film-3307422/) - Siasat
+- [“I wanted to write the most ridiculous pop song I had ever written”: the Nirvana B-side that paved the way for Nevermind’s all-conquering success](https://www.loudersound.com/bands-artists/the-nirvana-b-side-that-paved-the-way-for-neverminds-all-conquering-success) - Louder
+- [These 36 Taylor Swift Facts Prove She Knows the Life of a Showgirl](https://www.eonline.com/news/1425929/taylor-swift-facts-trivia) - Eonline.com
+- [36 Taylor Swift Songs Defining Her Life on 36th Birthday](https://screenrant.com/36-taylor-swift-songs-define-her-life-36th-birthday/) - Screen Rant
+- [Taylor Swift’s ‘The Life of a Showgirl’ Is the Top Billboard 200 Album of 2025 - Billboard](https://www.billboard.com/music/chart-beat/taylor-swift-showgirl-2025-year-end-billboard-200-album-1236130192/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Taylor Swift’s Album Sales Explode, With Some Titles Doubling Week-Over-Week - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/12/12/taylor-swifts-album-sales-explode-with-some-titles-doubling-week-over-week/) - Forbes
+- [Top 25 rap albums of 2025](https://rollingout.com/2025/12/13/top-25-rap-albums-of-2025/) - Rolling Out
+- [Rodney Carmichael's Top 10 Albums of 2025 - NPR](https://www.npr.org/2025/12/11/g-s1-99989/best-albums-of-2025-rodney-carmichael) - Npr
+- [Year-End Roundup: The Biggest Music Business Stories of 2025 - Billboard](https://www.billboard.com/pro/biggest-music-industry-stories-2025-labels-ai-politics-more/) - Billboard
+- [The 25 Best Hip-Hop Albums of 2025 - Rolling Stone](https://www.rollingstone.com/music/music-lists/best-hip-hop-albums-of-2025-1235479623/) - Rollingstone
+- [Kylie Minogue astonished to end 2025 with No 1 album](https://www.rte.ie/entertainment/2025/1213/1548848-kylie-minogue-astonished-to-end-2025-with-no-1-album/) - RTE
+- [How Did the Greatest Pop Stars Fare on Our Staff’s Year-End Songs and Albums Lists? - Billboard](https://www.billboard.com/music/pop/billboard-year-end-lists-greatest-pop-stars-podcast-1236134729/) - Billboard
+- [Wham-ageddon: Can a new song really become Christmas number one? - BBC](https://www.bbc.com/news/articles/cd9z7j57qnjo) - Bbc
+- ["I was like, ‘Stop the show! I’ve been stabbed!’ Our bassist’s poor wife had to nurse this wound at the top of my bum.” As they prepare to split, this is the full, chaotic story of one of Britain's most influential metal bands](https://www.loudersound.com/bands-artists/farewell-to-orange-goblin-britains-most-underrated-heavy-metal-heroes) - Louder
+- [Pink Floyd’s Blockbuster Earns Its First New Certification In A Quarter-Century](https://www.forbes.com/sites/hughmcintyre/2025/12/13/pink-floyds-blockbuster-earns-its-first-new-certification-in-a-quarter-century/) - Forbes
+- [Pink Floyd Launches Pop-Up Stores to Celebrate 50 Years ...](https://axs.tv/news-story/pink-floyd-launches-pop-up-stores-to-celebrate-50-years-of-wish-you-were-here/) - Axs
+- [Pink Floyd's 'Wish You Were Here' Turns 50 With Global Pop-Up ...](https://parade.com/news/pink-floyds-wish-you-were-here-turns-50-with-global-pop-up-stores) - Parade
+- [Pink Floyd to open Wish You Were Here pop-up stores across ...](https://www.loudersound.com/bands-artists/pink-floyd-to-open-pop-up-stores-across-europe-and-in-la-in-december) - Loudersound
+- [Joseph Byrd, Who Led Pioneering Psych Rock Band the United States of America, Dead at 87](http://www.rollingstone.com/music/music-news/joseph-byrd-united-states-of-america-band-leader-dead-obit-1235483707/) - Rolling Stone
+- [Joseph Byrd, Who Shook Up Psychedelic Rock, Dies at 87 - The New York Times](https://www.nytimes.com/2025/12/12/arts/music/joseph-byrd-dead.html) - Nytimes
+- [Abraham Quintanilla Jr. Death: Selena Quintanilla's Dad Dies at 86](http://www.billboard.com/music/latin/abraham-quintanilla-jr-death-selena-quintanilla-dad-dies-1236136784/) - Billboard
+- [Abraham Quintanilla, Father and Manager of Music Icon Selena, Dies at 86](https://variety.com/2025/film/news/abraham-quintanilla-dead-selena-father-1236608094/) - Variety
+- [Selena Quintanilla's dad, Abraham Quintanilla, dies at age 86](https://www.statesman.com/entertainment/article/selena-quintanilla-dad-abraham-quintanilla-dead-21240686.php) - Austin American-Statesman
+- [Abraham Quintanilla, father of late Tejano singer Selena, dead at 86 - Los Angeles Times](https://www.latimes.com/delos/story/2025-12-13/abraham-quintanilla-father-of-selena-dead-at-86) - Latimes
+- [Abraham Quintanilla, father of late musical legend Selena, has died - Texas Public Radio \| TPR](https://www.tpr.org/news/2025-12-13/abraham-quintanilla-father-of-late-musical-legend-selena-has-died) - Tpr
+- [Selena Quintanilla’s Father Abraham Quintanilla Jr. Has Died, Family Says - WOAI](https://news4sanantonio.com/news/local/selena-quintanillas-father-abraham-quintanilla-jr-has-died-family-says-tejano-icon-faily) - News4sanantonio
+- [Abraham Quintanilla, Music Legend Selena’s Father, Dead at 86 - Newsweek](https://www.newsweek.com/entertainment/abraham-quintanilla-music-legend-selenas-father-dead-at-86-11207729) - Newsweek
+- [Abraham Quintanilla, father of Tejano legend Selena Quintanilla, dies at 86 - USA Today](https://www.usatoday.com/story/entertainment/celebrities/2025/12/13/abraham-quintanilla-dead-selena-father/87750377007/) - Usatoday
+- [Scottish rock band airs antisemitic video of Netanyahu and this US official — with swastikas over their eyes](https://nypost.com/2025/12/13/us-news/scottish-rock-band-airs-antisemitic-video-of-netanyahu-and-this-us-official-with-swastikas-over-their-eyes/) - New York Post
+- [Primal Scream projects Benjamin Netanyahu with swastika eyes - The Jerusalem Post](https://www.jpost.com/diaspora/antisemitism/article-880200) - Jpost
+- [Primal Scream denies antisemitism after showing swastika within Star of David during show - Haaretz](https://www.haaretz.com/world-news/europe/2025-12-13/ty-article/.premium/primal-scream-denies-antisemitism-after-showing-swastika-within-star-of-david-during-show/0000019b-173c-dda6-a7fb-377da4c40000) - Haaretz
+- [UK rock band under fire for swastika-Star of David imagery at London show - ynetnews.com](https://www.ynetnews.com/health_science/article/sjdokzym11l) - Ynetnews
+- [Venue apology in Primal Scream antisemitic image row - BBC](https://www.bbc.com/news/articles/czxggy06y7do) - Bbc
+- [Why The Hell Would Any Rock Or Metal Act Play At A Corporate Christmas Party?](https://metalinjection.net/editorials/bro/yungblud-performs-at-a-corporate-christmas-party-for-billionaire) - Metal Injection.net
