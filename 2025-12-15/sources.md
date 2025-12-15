@@ -1,0 +1,38 @@
+# Sources for 2025-12-15 News Episode 
+- [Cardi B, Davido perform at Saudi Arabia’s Soundstorm festival](https://punchng.com/cardi-b-davido-perform-at-saudi-arabias-soundstorm-festival/) - The Punch
+- [Taylor Swift's crew break down in tears as they find out she is giving them '$197million' in bonuses](https://freerepublic.com/focus/f-chat/4357345/posts) - Freerepublic.com
+- [6 New Details From Taylor Swift’s ‘The Tortured Poets Department’ Eras Set From ‘The Final Show’ - Billboard](https://www.billboard.com/lists/taylor-swift-tortured-poets-department-era-details-final-show/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Sfchronicle
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Taylor Swift 'End of an Era' docuseries biggest moments - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/taylor-swift-end-of-an-era-documentary-disney-highlights/87701381007/) - Usatoday
+- [Taylor Swift Shares Anxieties Over Thwarted Attack in 'End of an Era' Ep 1 - Variety](https://variety.com/2025/music/news/taylor-swift-anxieties-end-of-an-era-first-episode-1236607358/) - Variety
+- [Taylor Swift shares trailer of ‘Eras Tour: The Final Show’ concert film - Siasat.com](https://www.siasat.com/taylor-swift-shares-trailer-of-eras-tour-the-final-show-concert-film-3307422/) - Siasat
+- [Kendrick Lamar serenades 9yo superfan at Spilt Milk festival](https://www.abc.net.au/news/2025-12-15/kendrick-lamar-serenades-young-fan-at-canberra-spilt-milk/106142574) - ABC News (AU)
+- [The Weeknd Closes Catalog Partnership With Lyric Capital Said to Be in $1 Billion Range, ‘Unique’ Deal ‘Sets New Standard for Artist Equity and Control’](https://variety.com/2025/music/news/the-weeknd-closes-catalog-partnership-with-lyric-capital-1-billion-1236608271/) - Variety
+- [The Weeknd Closes Catalog Partnership With Lyric Capital Said to Be in $1 Billion Range, 'Unique' Deal 'Sets New Standard for Artist Equity and Control' - Variety](https://au.variety.com/2025/music/news/the-weeknd-closes-catalog-partnership-with-lyric-capital-1-billion-31071/) - Variety
+- [Stray Kids’ “DO IT” Achieves Their Biggest 3rd Week Yet In Top 10 Of Billboard 200](http://www.soompi.com/article/1805370wpp/stray-kids-do-it-achieves-their-biggest-3rd-week-yet-in-top-10-of-billboard-200) - soompi
+- [Stray Kids Extend Record-Breaking Billboard Streak With ‘DO IT’ - Forbes](https://www.forbes.com/sites/hannahabraham/2025/12/02/stray-kids-extend-record-breaking-billboard-streak-with-do-it/) - Forbes
+- [Stray Kids’ ‘DO IT’ Debuts at No. 1 on Billboard 200, Extending Their Historic Streak to Eight - allkpop](https://www.allkpop.com/article/2025/12/stray-kids-do-it-debuts-at-no-1-on-billboard-200-extending-their-historic-streak-to-eight) - Allkpop
+- [Will Stray Kids End Taylor Swift’s Run Atop the Billboard 200 — Or Will Swift End the Kids’ No. 1 Albums Streak? - Billboard](https://www.billboard.com/music/chart-beat/stray-kids-taylor-swift-billboard-200-do-it-number-one-1236123633/) - Billboard
+- [Beastie Boys: Hip-Hop Innovators And Hanukkah Heroes](https://screenrant.com/beastie-boys-hip-hop-innovators-hanukkah-heroes/) - Screen Rant
+- [Josh Freese Still Doesn't Know Why He Was Fired From Foo Fighters](https://loudwire.com/josh-freese-doesnt-know-why-fired-foo-fighters/) - Loudwire
+- [Here's what it would take for concert tickets to be accessible again](https://www.cbc.ca/news/entertainment/ticketmaster-livenation-accessible-tickets-9.7014950) - CBC News
+- [Olivia Dean Calls Out Live Nation, Ticketmaster Over Resale Prices - Variety](https://variety.com/2025/music/news/olivia-dean-blasts-live-nation-ticketmaster-resale-prices-1236588706/) - Variety
+- [Olivia Dean Blasts 'Disgusting' Ticketmaster, Live Nation and AEG Over Resale Ticket Prices - Rolling Stone](https://www.rollingstone.com/music/music-news/olivia-dean-ticketmaster-live-nation-aeg-ticket-prices-1235470855/) - Rollingstone
+- [The 10 Biggest Live Music Stories of 2025: Live Nation Lawsuits, Ticket Prices & More - Billboard](https://www.billboard.com/lists/10-biggest-live-music-stories-2025-live-nation-pricing/) - Billboard
+- [Live Nation, Ticketmaster must face sprawling class action over prices - Reuters](https://www.reuters.com/sustainability/boards-policy-regulation/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-2025-12-12/) - Reuters
+- [Ticketmaster to face class action lawsuit that alleges overcharging - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/ticketmaster-live-nation-class-action-lawsuit/87741825007/) - Usatoday
+- [Live Nation, Ticketmaster must face sprawling class action over prices - CNBC](https://www.cnbc.com/2025/12/12/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-.html) - Cnbc
+- [The Best TV Needle Drops of 2025](http://www.rollingstone.com/tv-movies/tv-movie-lists/best-tv-music-moments-needle-drops-2025-1235483002/) - Rolling Stone
+- [Fergie Reunites With Black Eyed Peas for Birthday Celebration](http://www.billboard.com/music/music-news/fergie-black-eyed-peas-birthday-celebration-1236136833/) - Billboard
+- [Lady Gaga Pauses Sydney Show After Mayhem Ball Dancer Falls Off Stage](https://variety.com/2025/music/news/lady-gaga-pauses-show-dancer-falls-off-stage-1236608428/) - Variety
+- [Dancer Falls In Lady Gaga's Sydney Concert! - alaraentertainment.com](https://alaraentertainment.com/lady-gaga-dancer-falls-sydney-concert/) - Alaraentertainment
+- [Genesis – Abacab (Atlantic 75 Audiophile Series) (2025)](https://exystence.net/blog/2025/12/14/genesis-abacab-atlantic-75-audiophile-series-2025/) - Exystence.net
+- [Our Lady Peace Announce 2026 US Tour Dates Celebrating 30th Anniversary](https://consequence.net/2025/12/our-lady-peace-30th-anniversary-tour-us/) - Consequence.net
+- [Olivia Dean, Lily Allen, Charli XCX and More: The Brit Girls Are It Girls](https://www.usmagazine.com/celebrity-news/news/it-girls-olivia-dean-and-lily-allen-lead-the-brit-girls-pop-invasion/#article) - Us Weekly
+- [The 20 best albums of 2025, from Rosalía’s Lux to Lily Allen’s West End Girl - The Independent](https://www.independent.co.uk/arts-entertainment/music/features/2025-best-albums-rosalia-lily-allen-addison-rae-b2877177.html) - Independent
+- [The Best Albums of 2025 - Variety](https://variety.com/lists/best-albums-2025/) - Variety
+- [Billie Eilish Blocked From A New No. 1 By Two Rising Superstars - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/12/10/billie-eilish-blocked-from-a-new-no-1-by-two-rising-superstars/) - Forbes
+- [Sound of 2026: 10 acts you'll be obsessed with next year - BBC](https://www.bbc.com/news/articles/c2dzx76gr3yo) - Bbc
+- [Tschö mit Ö! Warum ich keinen Bock mehr auf Spotify habe](https://www.giga.de/entertainment/tschoe-mit-oe-warum-ich-keinen-bock-mehr-auf-spotify-habe--01KC6QJMFXT5RWT5K81BX55V45) - Giga
