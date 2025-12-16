@@ -1,0 +1,49 @@
+# Sources for 2025-12-16 News Episode 
+- [K-POP史上初、国立競技場で開催！「2025 MUSIC BANK GLOBAL FESTIVAL IN JAPAN」に25組の豪華アーティストが集結　熱狂の2日間を最速レポート！](https://prtimes.jp/main/html/rd/p/000000109.000058351.html) - Prtimes.jp
+- [2025 MBC Music Festival Announces Artist Lineup](http://www.soompi.com/article/1805402wpp/2025-mbc-music-festival-announces-artist-lineup) - soompi
+- [Musicians are getting really tired of this AI clone ‘bullshit’](https://www.theverge.com/report/844454/musicians-tired-of-ai-clones) - The Verge
+- [The A to Z of AI Music in 2025, Part 1: AI Technologies to Fair Use](http://musically.com/2025/12/15/the-a-to-z-of-ai-music-in-2025-part-1-ai-technologies-to-fair-use/) - Music Ally
+- [The A to Z of AI Music in 2025, Part 3: Newton-Rex to Spotify](http://musically.com/2025/12/15/the-a-to-z-of-ai-music-in-2025-part-3-newton-rex-to-spotify/) - Music Ally
+- [AI-Music Heavyweight Suno Partners With Warner Music Group After Lawsuit Settlement - Rolling Stone](https://www.rollingstone.com/music/music-features/suno-warner-music-group-ai-music-settlement-lawsuit-1235472868/) - Rollingstone
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Warner Music Group settles lawsuit with AI firm Suno - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-11-25/warner-music-group-suno-ai-lawsuit-settlement) - Latimes
+- [How can you tell if your new favourite artist is a real person? - BBC](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - Bbc
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
+- [iHeartRadio Exec Says Company Won’t ‘Play AI Music’ or Use ‘AI Generated Personalities’ in Staff Memo - billboard.com](https://www.billboard.com/pro/iheartradio-bans-ai-music-podcasts-radio-djs-new-program/) - Billboard
+- [Spotify names Davido, Omah Lay’s hit most shared Nigerian song of 2025](https://punchng.com/spotify-names-davido-omah-lays-hit-most-shared-nigerian-song-of-2025/) - The Punch
+- [It's time to unpack Spotify Wrapped. Here's how the music streamer compiled your 2025 recap - ABC News](https://abcnews.go.com/Business/wireStory/time-unpack-spotify-wrapped-music-streamer-compiled-2025-128070281) - Go
+- [11 Songs Where Rappers And Afrobeats Stars Came Together And Made Magic](https://www.rap-up.com/article/best-rap-afrobeats-crossovers) - Rap-Up.com
+- ['Shake It to the Max (Fly)' Tops U.S. Afrobeats Year-End 2025 Chart - billboard.com](https://www.billboard.com/lists/shake-it-to-the-max-fly-2025-year-end-us-afrobeats-chart/) - Billboard
+- [HYBE’s African Music Push Begins With Tyla as First Artist Supported: ‘Unlimited Potential’ - Billboard](https://www.billboard.com/pro/hybe-africa-expansion-tyla-global-music-strategy/) - Billboard
+- [Taylor Swift's New Documentary Is Reigniting the Magic of the Eras Tour for Me](https://www.cnet.com/tech/services-and-software/im-watching-the-new-taylor-swift-doc-its-reigniting-the-magic-of-the-eras-tour-for-me/) - CNET
+- [Taylor Swift: The End Of An Era, Like Its Titular Tour, Prioritizes Maximalism and Joy](https://www.jezebel.com/taylor-swift-the-end-of-an-era-review-tv-disney-plus) - Jezebel
+- [7 Things We Learned From Episodes One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episodes-one-and-two-of-the-end-of-an-era) - Vogue
+- [7 Things We Learned From Episode One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episode-one-and-two-of-the-end-of-an-era) - Vogue
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - Greenwich Time](https://www.greenwichtime.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Greenwichtime
+- [Taylor Swift's Eras Tour docuseries is here. See episode schedule. - USA Today](https://www.usatoday.com/story/entertainment/movies/2025/12/12/taylor-swifts-eras-tour-docuseries-episode-schedule/87740028007/) - Usatoday
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [What Billie Eilish And Taylor Swift’s Success Says About Rock Music In 2025](https://www.forbes.com/sites/hughmcintyre/2025/12/15/what-billie-eilish-and-taylor-swifts-success-says-about-rock-music-in-2025/) - Forbes
+- [Billie Eilish’s Star-Making Smash Debuts On Multiple Billboard Charts - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/11/15/billie-eilishs-star-making-smash-debuts-on-multiple-billboard-charts/) - Forbes
+- [Taylor Swift’s ‘The Life of a Showgirl’ Is the Top Billboard 200 Album of 2025 - Billboard](https://www.billboard.com/music/chart-beat/taylor-swift-showgirl-2025-year-end-billboard-200-album-1236130192/) - Billboard
+- [REPUBLIC Collective Dominates 2025 Year-End Label Charts - Billboard](https://www.billboard.com/pro/republic-collective-2025-year-end-charts/) - Billboard
+- [Why concert tickets are so expensive — and who's to blame](https://www.businessinsider.com/why-concert-tickets-are-so-expensive-and-whos-to-blame-2025-12) - Business Insider
+- [Live Nation, Ticketmaster must face sprawling class action over prices - Reuters](https://www.reuters.com/sustainability/boards-policy-regulation/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-2025-12-12/) - Reuters
+- [Live Nation, Ticketmaster must face sprawling class action over prices - CNBC](https://www.cnbc.com/2025/12/12/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-.html) - Cnbc
+- [[PDF] Ticket Pricing in the Primary and Secondary Concert Marketplace](https://musicbusinessresearch.wordpress.com/wp-content/uploads/2019/04/volume-8-no-1-april-2019-tompkins_end.pdf) - Wordpress
+- [The Impact of President Trump's Live Entertainment ...](https://www.hklaw.com/en/insights/publications/2025/04/the-impact-of-president-trumps-live-entertainment-industry) - Hklaw
+- [Odeal: Tiny Desk Concert](https://www.npr.org/2025/12/15/g-s1-101175/odeal-tiny-desk-concert) - NPR
+- [Odeal: Tiny Desk Concert - WFAE](https://www.wfae.org/united-states-world/2025-12-15/odeal-tiny-desk-concert) - Wfae
+- [Odeal: Tiny Desk Concert - WRKF](https://www.wrkf.org/npr-news/2025-12-15/odeal-tiny-desk-concert) - Wrkf
+- [Fleetwood Mac’s Live Album Spikes 19,000% In Sales](https://www.forbes.com/sites/hughmcintyre/2025/12/15/fleetwood-macs-live-album-spikes-19000-in-sales/) - Forbes
+- [Soompi’s K-Pop Music Chart 2025, December Week 2](http://www.soompi.com/article/1805621wpp/soompis-k-pop-music-chart-2025-december-week-2) - soompi
+- [Inside singer Sigrid’s intimate walks through nature with her fans](https://www.dazeddigital.com/music/article/69247/1/inside-singer-sigrids-intimate-walks-through-nature-with-her-fans?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=inside-singer-sigrid-s-intimate-walks-through-nature-with-her-fans) - Dazed
+- [Larcenia Roe Roll Out “Lean” as They Prep for EU/UK Tour Supporting Born of Osiris](https://www.metalsucks.net/2025/12/15/larcenia-roe-roll-out-lean-as-they-prep-for-eu-uk-tour-supporting-born-of-osiris/) - MetalSucks
+- [ELTON JOHN Says TURNSTILE Is Constantly In His Rotation](https://metalinjection.net/news/elton-john-says-turnstile-is-constantly-in-his-rotation) - Metal Injection.net
+- [Elton John lobt Turnstile: »›Never Enough‹ ist eines meiner Lieblingsalben des Jahres«](https://www.visions.de/news/elton-john-lobt-brendan-yates-turnstile/) - Visions.de
+- [The Daily’s Sunday Special: The Best Music of 2025 - The New York Times](https://www.nytimes.com/2025/12/14/podcasts/the-daily/sunday-special-the-best-music-of-2025.html) - Nytimes
+- [How Run-DMC Made Christmas Cool for Hip-Hop](https://www.spin.com/2025/12/how-run-dmc-made-christmas-cool-for-hip-hop/) - SPIN
+- [Joseph Byrd, United States of America Bandleader, Dies at 87](https://pitchfork.com/news/joseph-byrd-united-states-of-america-bandleader-dies-at-87/) - Pitchfork
+- [Joseph Byrd, Who Shook Up Psychedelic Rock, Dies at 87 - The New York Times](https://www.nytimes.com/2025/12/12/arts/music/joseph-byrd-dead.html) - Nytimes
+- [Joseph Byrd, Who Led Pioneering Psych Rock Band the United States of America, Dead at 87 - Rolling Stone](https://www.rollingstone.com/music/music-news/joseph-byrd-united-states-of-america-band-leader-dead-obit-1235483707/) - Rollingstone
