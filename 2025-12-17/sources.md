@@ -1,0 +1,51 @@
+# Sources for 2025-12-17 News Episode 
+- [The Weeknd Strikes Landmark Catalog Partnership Valued Near $1 Billion While Retaining Full Creative Control](https://www.ibtimes.com/weeknd-strikes-landmark-catalog-partnership-valued-near-1-billion-while-retaining-full-creative-3792747) - International Business Times
+- [The Weeknd Closes Catalog Partnership With Lyric Capital Said to Be in $1 Billion Range, 'Unique' Deal 'Sets New Standard for Artist Equity and Control' - Variety](https://au.variety.com/2025/music/news/the-weeknd-closes-catalog-partnership-with-lyric-capital-1-billion-31071/) - Variety
+- [The Weeknd Closes Catalog Partnership With Lyric Said to Be $1 Billion - Variety](https://variety.com/2025/music/news/the-weeknd-closes-catalog-partnership-with-lyric-capital-1-billion-1236608271/) - Variety
+- [Eurovision makes fresh decision on Israel ahead of 2026 song contest](https://www.the-independent.com/arts-entertainment/eurovision/eurovision-israel-boycott-2026-song-contest-b2885533.html) - The-independent.com
+- [Eurovision unveils voting changes seemingly aimed at complaints over Israel - The Times of Israel](https://www.timesofisrael.com/eurovision-unveils-voting-changes-seemingly-aimed-at-complaints-over-israel/) - Timesofisrael
+- ['Inseparable part of the contest': Austrian broadcaster backs Israel’s place in Eurovision ahead of EBU talks - Ynetnews](https://www.ynetnews.com/culture/article/rysis5ajbg) - Ynetnews
+- [Eurovision tightens rules after Israel voting controversy - BBC](https://www.bbc.com/news/articles/cly2yey51wko) - Bbc
+- [Israel allowed to participate in Eurovision 2026 event - CNN](https://www.cnn.com/2025/12/04/europe/eurovision-israel-participation-vote-intl) - Cnn
+- [Boycott threat looms over Israel’s Eurovision spot - The Jerusalem Post](https://www.jpost.com/international/article-879151) - Jpost
+- [What to know about the Eurovision Song Contest as Israel’s participation sparks walkouts - AP News](https://apnews.com/article/eurovision-song-contest-israel-what-to-know-b13dcea24fbbd28e73fa79e9a45977d7) - Apnews
+- [Eurovision chiefs face thorny question of whether Israel should take part in the 2026 song contest - AP News](https://apnews.com/article/eurovision-israel-gaza-european-broadcasting-union-7c32ff44f0107aa7ffdcde8f670b6744) - Apnews
+- [Four nations pull out of Eurovision in protest of Israel’s inclusion - Sky News Australia](https://www.skynews.com.au/world-news/global-affairs/spain-ireland-the-netherlands-and-slovenia-withdraw-from-eurovision-after-israel-cleared-to-compete-in-song-contest/news-story/090842ed074acc79b4568b64775110b7) - Skynews
+- [Rezension: Pink Floyds „Wish You Were Here 50“ in Dolby Atmos](https://www.heise.de/hintergrund/Rezension-Pink-Floyds-Wish-You-Were-Here-50-in-Dolby-Atmos-11115778.html?wt_mc=rss.red.ho.ho.atom.beitrag.beitrag) - heise online
+- [Rezension: Pink Floyds „Wish You Were Here 50“ in Dolby Atmos](https://www.heise.de/hintergrund/Rezension-Pink-Floyds-Wish-You-Were-Here-50-in-Dolby-Atmos-11115778.html) - heise online
+- [Pink Floyd Launches Pop-Up Stores to Celebrate 50 Years ...](https://axs.tv/news-story/pink-floyd-launches-pop-up-stores-to-celebrate-50-years-of-wish-you-were-here/) - Axs
+- [Pink Floyd's 'Wish You Were Here' Turns 50 With Global Pop-Up ...](https://parade.com/news/pink-floyds-wish-you-were-here-turns-50-with-global-pop-up-stores) - Parade
+- [Pink Floyd to open Wish You Were Here pop-up stores across ...](https://www.loudersound.com/bands-artists/pink-floyd-to-open-pop-up-stores-across-europe-and-in-la-in-december) - Loudersound
+- [Ditching music algorithms? Here are 12 streaming alternatives to explore](https://www.npr.org/sections/world-cafe/2025/12/16/nx-s1-5628939/music-streaming-alternatives-without-algorithms) - NPR
+- [It’s Time to Give MP3 Players a Second Chance - Gizmodo](https://gizmodo.com/its-time-to-give-mp3-players-a-second-chance-2000699677) - Gizmodo
+- [A Digital Audio Player Renewed My Love Of Music - aftermath.site](https://aftermath.site/digita-audio-player-snowsky-echo-mini-fiio-hyby/) - Aftermath
+- [Becky G Music Documentary ‘Rebecca’ Sets Netflix Premiere in US](https://www.whats-on-netflix.com/news/becky-g-music-documentary-rebecca-sets-netflix-premiere-in-us/) - What's on Netflix
+- [Quote of the day from Queen's Freddie Mercury: 'If it is planned, it's boring. The best things happen when....'](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-from-queens-freddie-mercury-if-it-is-planned-its-boring-the-best-things-happen-when-/articleshow/125996806.cms) - The Times of India
+- [Rolling Stones Ready New Album, Won’t Tour In ’26](https://www.spin.com/2025/12/rolling-stones-new-album-tour/) - SPIN
+- [Rolling Stones Call Off 2026 Tour - Variety](https://variety.com/2025/music/news/rolling-stones-cancel-2026-tour-1236609841/) - Variety
+- [‘Easiest scam in the world’: Musicians sound alarm over AI impersonators](https://www.digitaljournal.com/world/easiest-scam-in-the-world-musicians-sound-alarm-over-ai-impersonators/article) - Digital Journal
+- ['Easiest scam in the world': Musicians sound alarm over AI impersonators](https://economictimes.indiatimes.com/tech/artificial-intelligence/easiest-scam-in-the-world-musicians-sound-alarm-over-ai-impersonators/articleshow/125995581.cms) - The Times of India
+- [‘Easiest scam in the world’: Musicians sound alarm over AI impersonators](https://www.euractiv.com/news/easiest-scam-in-the-world-musicians-sound-alarm-over-ai-impersonators/) - EURACTIV
+- [Artists raise the alarm over AI-generated songs impersonating real musicians](https://punchng.com/?p=2011452) - The Punch
+- [Merriam-Webster declares 'slop' its word of the year in nod to growth of AI - CNBC](https://www.cnbc.com/2025/12/15/merriam-webster-declares-slop-word-of-the-year-nod-to-growth-of-ai.html) - Cnbc
+- [From girl groups to Olivia Dean, music insiders make their predictions for 2026's hits - Axios](https://www.axios.com/2025/12/15/music-industry-trends-2026-ai-y2k-nostalgia) - Axios
+- [Why the Music Industry Is Changing Its Tune on AI - Business Insider](https://www.businessinsider.com/why-the-music-industry-is-changing-its-tune-on-ai-2025-12) - Businessinsider
+- [Cybersecurity startup imper.ai launches with $28M to combat AI-powered impersonation threats - Ynetnews](https://www.ynetnews.com/tech-and-digital/article/sykm5eym11e) - Ynetnews
+- [Rolling Stones Call Off 2026 Tour](https://freerepublic.com/focus/f-chat/4357704/posts) - Freerepublic.com
+- [The Rolling Stones Cancel Stadium Tour Plans for 2026: See the Reported Reason Why](https://www.justjared.com/2025/12/16/the-rolling-stones-cancel-stadium-tour-plans-for-2026-see-reported-reason-why/) - Just Jared
+- [The Rolling Stones Cancel Stadium Tour Plans for 2026: See the Reported Reason Why](https://www.justjared.com/2025/12/16/the-rolling-stones-cancel-stadium-tour-plans-for-2026-see-the-reported-reason-why/) - Just Jared
+- [Rolling Stones Call Off 2026 Tour - Variety](https://variety.com/2025/music/news/rolling-stones-cancel-2026-tour-1236609841/) - Variety
+- [15 Best Non-English Albums of 2025: CORTIS, Bad Bunny, Rosalía, & More](https://www.teenvogue.com/story/best-non-english-albums-of-2025) - Teen Vogue
+- [Spotify Wrapped 2025: Bad Bunny dethrones Taylor Swift as most-streamed artist - NBC 4 New York](https://www.nbcnewyork.com/entertainment/entertainment-news/spotify-wrapped-2025-bad-bunny-dethrones-taylor-swift-most-streamed-artist/6425454/) - Nbcnewyork
+- [Spotify Wrapped 2025 is here and Bad Bunny has dethroned Taylor Swift as most-streamed artist - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/spotify-wrapped-2025-bad-bunny-dethroned-taylor-swift-streamed-artist-rcna247144) - Nbcnews
+- [Spotify Wepa’d: Bad Bunny reclaims title of most-streamed artist globally - Los Angeles Times](https://www.latimes.com/delos/story/2025-12-03/bad-bunny-spotify-most-streamed-artist-wrapped-2025-taylor-swift-the-weeknd-drake) - Latimes
+- [Bad Bunny and Karol G Are Simply Gateway Drugs to a Vast World of Latin Music - HuffPost](https://www.huffpost.com/entry/pitchfork-album-of-the-year-latin-music_n_69306a9be4b02cf3b175a851?origin=home-voices-feed-unit) - Huffpost
+- [Finse superster Käärijä houdt volgend jaar halt in Antwerpse Trix](https://www.gva.be/regio/antwerpen/regio-antwerpen/antwerpen/finse-superster-kaarija-houdt-volgend-jaar-halt-in-antwerpse-trix/114225839.html) - Www.gva.be
+- [New Evanescence Album to Arrive in 2026, Says Amy Lee](https://loudwire.com/amy-lee-new-evanescence-album-out-2026/) - Loudwire
+- [Spotify Wrapped reminds us even our leisure time is being surveilled and sold](https://theconversation.com/spotify-wrapped-reminds-us-even-our-leisure-time-is-being-surveilled-and-sold-270119) - The Conversation Africa
+- [It's time to unpack Spotify Wrapped. Here's how the music streamer compiled your 2025 recap - ABC News](https://abcnews.go.com/Business/wireStory/time-unpack-spotify-wrapped-music-streamer-compiled-2025-128070281) - Go
+- [It's time to unpack Spotify Wrapped. Here's how the music streamer compiled your 2025 recap - Greenwich Time](https://www.greenwichtime.com/business/article/it-s-time-to-unpack-spotify-wrapped-here-s-how-21220478.php) - Greenwichtime
+- [Spotify "Wrapped 2025” by Curly Media - Campaign](https://www.campaignlive.co.uk/article/spotify-wrapped-2025%E2%80%9D-curly-media/1942055) - Campaignlive
+- ['SNL' Knows Everything You’ve Been Up to This Year. Do You? - The Atlantic](https://www.theatlantic.com/culture/2025/12/saturday-night-live-spotify-wrapped-uber-eats-sketch/685255/) - Theatlantic
+- [Billy Joel’s Carnegie Hall Tribute to Feature Rob Thomas, Pat Monahan, and Rufus Wainwright](http://www.rollingstone.com/music/music-news/billy-joels-carnegie-hall-rob-thomas-rufus-wainwright-1235484854/) - Rolling Stone
+- [Kirsten Agresta-Copely talks about her Grammy nod for ‘Best New Age, Ambient, or Chant Album’](https://www.digitaljournal.com/entertainment/kirsten-agresta-copely-talks-about-her-grammy-nod-for-best-new-age-ambient-or-chant-album/article) - Digital Journal
