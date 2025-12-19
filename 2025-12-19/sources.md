@@ -1,0 +1,54 @@
+# Sources for 2025-12-19 News Episode 
+- [Davido names Asake, Rema, Omah Lay as next Afrobeats GOATs](https://punchng.com/davido-names-asake-rema-omah-lay-as-next-afrobeats-goats/) - The Punch
+- [Tiwa Savage on This One Is Personal, Afrobeats and Beyonce's Lion King - Variety](https://variety.com/2025/music/news/tiwa-savage-this-one-is-personal-afrobeats-beyonce-lion-king-1236610761/) - Variety
+- ['Shake It to the Max (Fly)' Tops U.S. Afrobeats Year-End 2025 Chart - billboard.com](https://www.billboard.com/lists/shake-it-to-the-max-fly-2025-year-end-us-afrobeats-chart/) - Billboard
+- [HYBE’s African Music Push Begins With Tyla as First Artist Supported: ‘Unlimited Potential’ - Billboard](https://www.billboard.com/pro/hybe-africa-expansion-tyla-global-music-strategy/) - Billboard
+- [A Taylor Swift Lyric Was One of the Most-Viewed on Genius. Guessing the Song Won’t Be Hard](http://www.rollingstone.com/music/music-news/taylor-swift-genius-lyrics-life-of-showgirl-1235486535/) - Rolling Stone
+- [Taylor Swift’s ‘The Life of a Showgirl’ Is the Top Billboard 200 Album of 2025 - Billboard](https://www.billboard.com/music/chart-beat/taylor-swift-showgirl-2025-year-end-billboard-200-album-1236130192/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Taylor Swift Shakes Up Her Style in Bold $1,695 Velvet Minidress for The Late Show with Stephen Colbert - People.com](https://people.com/taylor-swift-shakes-up-her-style-in-bold-usd1-695-velvet-minidress-for-the-late-show-with-stephen-colbert-11866567) - People
+- [Taylor Swift’s Album Sales Explode, With Some Titles Doubling Week-Over-Week - Forbes](https://www.forbes.com/sites/hughmcintyre/2025/12/12/taylor-swifts-album-sales-explode-with-some-titles-doubling-week-over-week/) - Forbes
+- [YouTube Streams Will No Longer Count Towards Billboard Charts](https://pitchfork.com/news/youtube-streams-will-no-longer-count-towards-billboard-charts/) - Pitchfork
+- [YouTube to pull music data from Billboard’s charts because it doesn’t like its ranking formula - TechCrunch](https://techcrunch.com/2025/12/17/youtube-to-pull-music-data-from-billboards-charts-because-it-doesnt-like-its-ranking-formula/) - Techcrunch
+- [YouTube Will Stop Submitting Data to U.S. Billboard Charts in 2026 - Variety](https://variety.com/2025/digital/news/youtube-will-stop-submitting-data-to-billboard-charts-1236611347/) - Variety
+- [I tried the Apple Music app for ChatGPT, and it felt like talking to a music‑obsessed friend](https://www.techradar.com/ai-platforms-assistants/chatgpt/i-tried-the-apple-music-app-for-chatgpt-and-it-felt-like-talking-to-a-music-obsessed-friend) - TechRadar
+- [AI-Music Heavyweight Suno Partners With Warner Music Group After Lawsuit Settlement - Rolling Stone](https://www.rollingstone.com/music/music-features/suno-warner-music-group-ai-music-settlement-lawsuit-1235472868/) - Rollingstone
+- [Warner strikes ‘landmark’ deal with Suno; settles copyright litigation with AI music generator - Music Business Worldwide](https://www.musicbusinessworldwide.com/warner-music-group-settles-with-suno-strikes-first-of-its-kind-deal-with-ai-song-generator/) - Musicbusinessworldwide
+- [Warner Music Group settles lawsuit with AI firm Suno - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-11-25/warner-music-group-suno-ai-lawsuit-settlement) - Latimes
+- [How can you tell if your new favourite artist is a real person? - BBC](https://www.bbc.com/news/articles/c5ylzjj5wzwo) - Bbc
+- [After an AI Backlash, Spotify Wrapped Returns With a More Human Touch for 2025 - ADWEEK](https://www.adweek.com/creativity/after-an-ai-backlash-spotify-wrapped-returns-with-a-more-human-touch-for-2025/) - Adweek
+- [Inside the Rise of AI Music: How Imogen Heap Is Shaping the Future - Billboard](https://www.billboard.com/video/rise-ai-how-imogen-heap-shaping-future/) - Billboard
+- [iHeartRadio Exec Says Company Won’t ‘Play AI Music’ or Use ‘AI Generated Personalities’ in Staff Memo - billboard.com](https://www.billboard.com/pro/iheartradio-bans-ai-music-podcasts-radio-djs-new-program/) - Billboard
+- [2026 music marketing trends: World-building, mystery campaigns, IRL activations and more](http://musically.com/2025/12/18/2026-music-marketing-trends-world-building-mystery-campaigns-irl-activations-more/) - Music Ally
+- [Entertainment: KATSEYE Breaks TikTok: When Viral Views Become Grammy Nods - InsightTrendsWorld](https://www.insighttrendsworld.com/post/entertainment-katseye-breaks-tiktok-when-viral-views-become-grammy-nods) - Insighttrendsworld
+- [From girl groups to Olivia Dean, music insiders make their predictions for 2026's hits - Axios](https://www.axios.com/2025/12/15/music-industry-trends-2026-ai-y2k-nostalgia) - Axios
+- [From FunHaus to Glitchy Glam: the 2026 Trends Brands Should Watch, Per Pinterest - ADWEEK](https://www.adweek.com/brand-marketing/from-funhaus-to-glitchy-glam-the-2026-trends-brands-should-watch-per-pinterest/?itm_source=homepage&itm_medium=the-latest-left&itm_campaign=1) - Adweek
+- [Mariah Carey’s All I Want for Christmas Is You dethroned on the charts by this ‘80s classic](https://www.the-independent.com/arts-entertainment/music/news/mariah-carey-christmas-song-billboard-wham-b2887139.html) - The-independent.com
+- ['Last Christmas' by Wham! tops Billboard Global 200 for first time - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/18/last-christmas-wham-tops-billboard-global-200/87828718007/) - Usatoday
+- [Wham!’s ‘Last Christmas’ Hits No. 1 on Billboard Global 200 for First Time - Billboard](https://www.billboard.com/music/chart-beat/wham-last-christmas-global-200-number-one-1236137915/) - Billboard
+- [HUNTR/X's 'Golden' No. 1 on Global Charts for 19th Week - Billboard](https://www.billboard.com/music/chart-beat/huntr-x-golden-number-1-global-charts-19th-week-1236137981/) - Billboard
+- [QUEENS OF THE STONE AGE Now Streaming Live In The Catacombs For Free](https://metalinjection.net/video/queens-of-the-stone-age-now-streaming-live-in-the-catacombs-for-free) - Metal Injection.net
+- [Les 20 musiques les plus populaires de 2025 sur TikTok](https://www.blogdumoderateur.com/20-musiques-plus-populaires-annee-2025-tiktok/) - Blogdumoderateur.com
+- [Entertainment: KATSEYE Breaks TikTok: When Viral Views Become Grammy Nods - InsightTrendsWorld](https://www.insighttrendsworld.com/post/entertainment-katseye-breaks-tiktok-when-viral-views-become-grammy-nods) - Insighttrendsworld
+- [TikTok reveals the Top Artists and Songs of 2025 - Newsroom](https://newsroom.tiktok.com/tiktok-reveals-the-top-artists-and-songs-of-2025?lang=en) - Tiktok
+- [The 25 biggest music moments from 2025](https://www.yardbarker.com/entertainment/articles/the_25_biggest_music_moments_from_2025/s1__43213426) - Yardbarker
+- [13 Trending Songs on TikTok in Dec 2025 (+ How to Use ...](https://buffer.com/resources/trending-songs-tiktok/) - Buffer
+- [Katseye, Taylor Swift, Connie Francis get top TikTok music awards - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/14/taylor-swift-katseye-connie-francis-tiktok-music-awards/87713751007/) - Usatoday
+- [TikTok Anoints KATSEYE as Global Artist of 2025 - Billboard](https://www.billboard.com/music/music-news/tiktok-katseye-global-artist-2025-1236132159/) - Billboard
+- [“Cliff Richard was trying to dance along, only to realise the song was in 5/4 time and his left foot was where his right foot should be!”: Jethro Tull’s manager asked Ian Anderson to write a hit. He tried not to, but failed](https://www.loudersound.com/music/tracks-singles/jethro-tull-living-in-the-past) - Louder
+- [Here's Why Concert Tickets Are So Expensive](https://metalinjection.net/video/heres-why-concert-tickets-are-so-expensive) - Metal Injection.net
+- [Why Concert Tickets Are so Expensive — and Who's to Blame - Business Insider](https://www.businessinsider.com/why-concert-tickets-are-so-expensive-and-whos-to-blame-2025-12) - Businessinsider
+- [Ticketmaster to face class action lawsuit that alleges overcharging - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/ticketmaster-live-nation-class-action-lawsuit/87741825007/) - Usatoday
+- [Live Nation, Ticketmaster must face sprawling class action over prices - Reuters](https://www.reuters.com/sustainability/boards-policy-regulation/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-2025-12-12/) - Reuters
+- [Live Nation, Ticketmaster must face sprawling class action over prices - CNBC](https://www.cnbc.com/2025/12/12/live-nation-ticketmaster-must-face-sprawling-class-action-over-prices-.html) - Cnbc
+- [[PDF] Ticket Pricing in the Primary and Secondary Concert Marketplace](https://musicbusinessresearch.wordpress.com/wp-content/uploads/2019/04/volume-8-no-1-april-2019-tompkins_end.pdf) - Wordpress
+- [The Impact of President Trump's Live Entertainment ...](https://www.hklaw.com/en/insights/publications/2025/04/the-impact-of-president-trumps-live-entertainment-industry) - Hklaw
+- [A Year of Listening Beyond the Algorithm](https://www.newyorker.com/culture/2025-in-review/a-year-of-listening-beyond-the-algorithm) - The New Yorker
+- [The 10 Biggest AI Music Stories of 2025: Suno & Udio Settlements, AI on the Charts & More - Billboard](https://www.billboard.com/lists/biggest-ai-music-stories-2025-suno-udio-charts-more/) - Billboard
+- [Android music apps are an embarrassment - Android Police](https://www.androidpolice.com/android-music-apps-are-an-embarrassment/) - Androidpolice
+- [Spotify tests more personalized, AI-powered ‘Prompted Playlists’ - TechCrunch](https://techcrunch.com/2025/12/10/spotify-tests-more-personalized-ai-powered-prompted-playlists/) - Techcrunch
+- [The Best Albums of 2025 - The Atlantic](https://www.theatlantic.com/culture/2025/12/best-albums-2025/685008/) - Theatlantic
+- [Improve your music streaming quality in minutes](https://www.foxnews.com/tech/improve-your-music-streaming-quality-minutes) - Fox News
+- [Improve your music streaming quality in minutes - Kurt the CyberGuy](https://cyberguy.com/tech-tips-tricks/improve-music-streaming-quality-minutes/) - Cyberguy
+- ["I sent that song to Elton and asked him to play piano on it...it meant the world to us." How Elton John and Dave Grohl helped one of the grunge era's greatest bands heal from an unimaginable loss](https://www.loudersound.com/bands-artists/interviews/alice-in-chains-black-gives-way-to-blue-story-meaning) - Louder
+- [Davido, French Montana to light up AFCON 2025 opening concert](https://punchng.com/davido-french-montana-to-light-up-afcon-2025-opening-concert/) - The Punch
