@@ -1,0 +1,52 @@
+# Sources for 2025-12-20 News Episode 
+- [Kylie beats Wham! to Christmas number one](https://www.bbc.com/news/articles/c3w7290wl5xo) - BBC News
+- [Pop icon secures UK Christmas No 1 with ‘genuine festive banger’](https://www.the-independent.com/arts-entertainment/music/news/kylie-minogue-xmas-christmas-number-one-b2887984.html) - The-independent.com
+- [Kylie Minogue takes Christmas number one slot](https://news.sky.com/story/kylie-minogue-takes-christmas-number-one-spot-13485669) - Sky.com
+- [Kylie Minogue secures her first Christmas number one in UK](https://news.sky.com/story/kylie-minogue-secures-her-first-christmas-number-one-in-uk-13485669) - Sky.com
+- [How Did the Greatest Pop Stars Fare on Our Staff’s Year-End Songs and Albums Lists? - Billboard](https://www.billboard.com/music/pop/billboard-year-end-lists-greatest-pop-stars-podcast-1236134729/) - Billboard
+- [Wham-ageddon: Can a new song really become Christmas number one? - BBC](https://www.bbc.com/news/articles/cd9z7j57qnjo) - Bbc
+- [Taylor Swift’s dancer Whyley Yoshimura opens up about LGBTQ+ representation on the Eras tour](https://www.thepinknews.com/2025/12/19/taylor-swifts-dancer-whyley-yoshimura-eras-tour/) - Thepinknews.com
+- [Mama Swift Is the Mastermind](https://www.jezebel.com/mama-swift-is-the-mastermind) - Jezebel
+- [7 Things We Learned From Episodes One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episodes-one-and-two-of-the-end-of-an-era) - Vogue
+- [7 Things We Learned From Episode One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episode-one-and-two-of-the-end-of-an-era) - Vogue
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - Greenwich Time](https://www.greenwichtime.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Greenwichtime
+- [Taylor Swift's Eras Tour docuseries is here. See episode schedule. - USA Today](https://www.usatoday.com/story/entertainment/movies/2025/12/12/taylor-swifts-eras-tour-docuseries-episode-schedule/87740028007/) - Usatoday
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Megadeth Unleash “Let There Be Shred!” from Upcoming Final Album: Stream](https://consequence.net/2025/12/megadeth-let-there-be-shred-song/) - Consequence.net
+- [Megadeth Premiere New Single & Music Video "Let There Be Shred" From Upcoming Self-Titled Farewell Album](http://www.metalunderground.com/news/details.cfm?newsid=160585) - Metalunderground.com
+- [Megadeth’s “Let There Be Shred” is a Nostalgic Thrash Ripper](https://www.metalsucks.net/2025/12/19/megadeths-let-there-be-shred-is-a-nostalgic-thrash-ripper/) - MetalSucks
+- [Megadeth To Bow Out With Self-Titled Final Album Featuring A New Edition Of His Metallica Song ‘Ride The Lightning - Noise11.com](https://www.noise11.com/news/megadeth-final-album-metallica-ride-the-lightning-20251104) - Noise11
+- [JACK WHITE Says DEATH, THE MISFITS, FUGAZI & More Should Be In The Rock Hall - Metal Injection](https://metalinjection.net/news/jack-white-says-death-the-misfits-fugazi-more-should-be-in-the-rock-hall) - Metalinjection
+- [Taylor Swift shares exactly how she pulled off those 60-second outfit changes during the Eras Tour](https://pagesix.com/2025/12/19/style/taylor-swift-shares-exactly-how-she-pulled-off-those-60-second-outfit-changes-during-the-eras-tour/) - Page Six
+- [6 New Details From Taylor Swift’s ‘The Tortured Poets Department’ Eras Set From ‘The Final Show’ - Billboard](https://www.billboard.com/lists/taylor-swift-tortured-poets-department-era-details-final-show/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Sfchronicle
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Taylor Swift 'End of an Era' docuseries biggest moments - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/taylor-swift-end-of-an-era-documentary-disney-highlights/87701381007/) - Usatoday
+- [Taylor Swift Shares Anxieties Over Thwarted Attack in 'End of an Era' Ep 1 - Variety](https://variety.com/2025/music/news/taylor-swift-anxieties-end-of-an-era-first-episode-1236607358/) - Variety
+- [Taylor Swift shares trailer of ‘Eras Tour: The Final Show’ concert film - Siasat.com](https://www.siasat.com/taylor-swift-shares-trailer-of-eras-tour-the-final-show-concert-film-3307422/) - Siasat
+- [Interviews: Mark Mothersbaugh on the new Devo doc, Grammys, and creating Art](https://www.punknews.org/article/87228/interviews-mark-mothersbaugh-on-the-new-devo-doc-grammys-and-creating-art) - Punknews.org
+- [Beats Launches Travis Scott Partnership Featuring New 'DARE TO DREAM' Ad Campaign](https://www.macrumors.com/2025/12/19/beats-travis-scott-campaign/) - MacRumors
+- [Beats and Travis Scott launch ‘DARE TO DREAM’ campaign celebrating self-belief and creative manifestation - MediaNews4U](https://www.medianews4u.com/beats-and-travis-scott-launch-dare-to-dream-campaign-celebrating-self-belief-and-creative-manifestation/) - Medianews4u
+- [Timothée Chalamet and EsDeeKid Put the Rumors to Rest With New ‘4 Raws’ Remix](http://www.rollingstone.com/music/music-news/timothee-chalamet-esdeekid-4-raws-remix-1235488158/) - Rolling Stone
+- [Timothée Chalamet teams up with EsDeeKid to quash alter-ego rumours](https://www.bbc.com/news/articles/c79x4yqx0ngo) - BBC News
+- [EsDeeKid, Timothée Chalamet Squash Rumors With Remix Collab](https://www.spin.com/2025/12/esdeekid-timothee-chalamet-remix/) - SPIN
+- [Timothée Chalamet Debunks the Rumors by Joining EsDeeKid for ‘4 Raws’ Remix: Watch - Billboard](https://www.billboard.com/music/rb-hip-hop/timothee-chalamet-esdeekid-4-raws-remix-video-1236143654/) - Billboard
+- [Is Timothée Chalamet UK rapper EsDeeKid? ‘All will be revealed,’ actor says - New York Post](https://nypost.com/2025/12/12/entertainment/is-timothee-chalamet-uk-rapper-esdeekid-all-will-be-revealed-actor-says/) - Nypost
+- [Timothée Chalamet won’t confirm or deny rumors he’s mysterious British rapper EsDeeKid - CNN](https://www.cnn.com/2025/12/12/entertainment/timothee-chalamet-esdeekid-rumors-intl-scli) - Cnn
+- [Gen Z Life Is Messy. Annie DiRusso Sings About How to Survive It](http://www.rollingstone.com/music/music-features/annie-dirusso-super-pedestrian-album-interview-1235485837/) - Rolling Stone
+- [Tiny Desk Radio: Khruangbin, Charley Crockett, Leon Bridges](https://www.npr.org/2025/12/19/g-s1-102645/tiny-desk-radio) - NPR
+- [Tiny Desk Radio: dodie, Steve Martin, Natalia Lafourcade](https://www.npr.org/2025/12/19/g-s1-102670/tiny-desk-radio-dodie-steve-martin-natalia-lafourcade) - NPR
+- [Tiny Desk Radio: boygenius, Helado Negro, Coldplay](https://www.npr.org/2025/12/19/g-s1-102671/tiny-desk-radio-boygenius-helado-negro-coldplay) - NPR
+- [Tiny Desk Radio: dodie, Steve Martin, Natalia Lafourcade - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-19/tiny-desk-radio-dodie-steve-martin-natalia-lafourcade) - Iowapublicradio
+- [Korean Entertainment Pioneer Lee Soo-Man Wants Korea To Become “A Nation Of Producers”](http://deadline.com/2025/12/korea-lee-soo-man-korea-nation-of-producers-1236646799/) - Deadline
+- [The 10 Biggest AI Music Stories of 2025: Suno & Udio Settlements, AI on the Charts & More - Billboard](https://www.billboard.com/lists/biggest-ai-music-stories-2025-suno-udio-charts-more/) - Billboard
+- [In Flames Announce Latin American Tour](https://www.metalsucks.net/2025/12/19/in-flames-announce-latin-american-tour/) - MetalSucks
+- ["The Prime Ministers of Canada and France were there in the front row. It was pretty stressful": The Trews on their most significant gig, kitchen parties and Prince William](https://www.loudersound.com/bands-artists/the-trews-the-bloody-light-interview) - Louder
+- [Obama lists Olamide’s ‘99’, Burna Boy’s ‘TaTaTa’ among 2025 favourite songs](https://punchng.com/obama-lists-olamides-99-burna-boys-tatata-among-2025-favourite-songs/) - The Punch
+- [Tiwa Savage on This One Is Personal, Afrobeats and Beyonce's Lion King - Variety](https://variety.com/2025/music/news/tiwa-savage-this-one-is-personal-afrobeats-beyonce-lion-king-1236610761/) - Variety
+- ['Shake It to the Max (Fly)' Tops U.S. Afrobeats Year-End 2025 Chart - billboard.com](https://www.billboard.com/lists/shake-it-to-the-max-fly-2025-year-end-us-afrobeats-chart/) - Billboard
+- [HYBE’s African Music Push Begins With Tyla as First Artist Supported: ‘Unlimited Potential’ - Billboard](https://www.billboard.com/pro/hybe-africa-expansion-tyla-global-music-strategy/) - Billboard
+- [ OneFootball x Sampa the Great: AFCON is like African Christmas](https://consent.yahoo.com/v2/collectConsent?sessionId=1_cc-session_e9bb5f39-5205-4246-afd8-67c80d634b85) - Yahoo Entertainment
+- [Everything you need to know about AFCON 2025 in Morocco - ESPN](https://www.espn.com/espn/story/_/id/46867627/2025-africa-cup-nations-groups-teams-venues-format-news-how-watch-tickets) - Espn
