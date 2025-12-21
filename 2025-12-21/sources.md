@@ -1,0 +1,35 @@
+# Sources for 2025-12-21 News Episode 
+- [Rauw Alejandro Closes 2025 With a Free Show in Dominican Republic](http://www.billboard.com/music/latin/rauw-alejandro-free-concert-latin-music-uplifting-moments-1236142467/) - Billboard
+- [Rauw Alejandro’s Free Concert in Dominican Republic & More Uplifting Moments in Latin Music - Billboard](https://www.billboard.com/music/latin/rauw-alejandro-free-concert-latin-music-uplifting-moments-1236142467/) - Billboard
+- [9 Rock + Metal Bands Who Removed Their Music From Spotify In 2025](https://loudwire.com/bands-who-removed-music-from-spotify/) - Loudwire
+- [Beyonce Preparing To Release NEW Music For ACT III … Here’s The DETAILS!](https://www.cheatsheet.com/news/beyonce-fans-think-getting-act-iii-instagram-clue.html/#article) - Showbiz Cheat Sheet
+- [Winners Of Melon Music Awards 2025](http://www.soompi.com/article/1806799wpp/winners-of-melon-music-awards-2025) - soompi
+- [KPop Demon Hunters' song given classical makeover by Katherine Jenkins](https://www.bbc.com/news/articles/c4g5v7507vqo) - BBC News
+- [Katherine Jenkins gives KPop Demon Hunters' Golden a makeover - BBC](https://www.bbc.com/news/articles/c4g5v7507vqo.amp) - Bbc
+- [Unexpected comebacks and operatic pop: The best albums and songs of 2025 - BBC](https://www.bbc.com/news/articles/c9w7qgpnv14o) - Bbc
+- [“Once people were talking about us as the No.1 band in the world, some people took that as the sign that they could do anything they wanted”: The apocalyptic 1969 hit that marked the beginning of the end for one of America’s greatest rock’n’roll bands](https://www.loudersound.com/bands-artists/creedence-clearwater-revival-bad-moon-rising-the-story-behind-the-song) - Louder
+- [Conviction overturned in murder of rap star Jam Master Jay, Run-DMC member](https://www.aljazeera.com/news/2025/12/20/conviction-overturned-in-murder-of-rap-star-jam-master-jay-run-dmc-member) - Al Jazeera English
+- [Judge voids conviction for one of two men found guilty of killing Run-DMC's Jam Master Jay - NBC New York](https://www.nbcnewyork.com/news/local/judge-voids-conviction-guilty-killing-run-dmc-jam-master-jay/6433392/) - Nbcnewyork
+- [Judge overturns murder conviction in killing of Run-DMC’s Jam Master Jay - CNN](https://www.cnn.com/2025/12/20/us/jam-master-jay-murder-conviction-overturned) - Cnn
+- [Federal Judge Overturns Conviction in Killing of D.J. Jam Master Jay - The New York Times](https://www.nytimes.com/2025/12/19/nyregion/jam-master-jay-conviction-overturned.html) - Nytimes
+- [Judge overturns Run-DMC’s Jam Master Jay murder suspect’s conviction - Chicago Tribune](https://www.chicagotribune.com/2025/12/19/judge-overturns-conviction-suspect-run-dmcs-jam-master-jay-murder/) - Chicagotribune
+- [Conviction tossed in Jam Master J murder case, as judge finds prosecutors didn't establish motive - New York Post](https://nypost.com/2025/12/19/us-news/conviction-tossed-in-jam-master-j-murder-case-as-judge-finds-prosecutors-didnt-establish-motive/) - Nypost
+- [Kylie Minogue scores her first UK Christmas number one](https://www.rte.ie/entertainment/2025/1220/1549961-kylie-minogue-scores-her-first-uk-christmas-number-one/) - RTE
+- [Kylie Minogue (57) på juletoppen](https://www.vg.no/rampelys/i/JOoJA8/kylie-minogue-tar-julenummer-en-i-storbritannia) - Www.vg.no
+- [Kylie Minogue Hits UK Christmas Number One And Sets New Record](https://www.starobserver.com.au/news/kylie-minogue-hits-uk-christmas-number-one-and-sets-new-record/240251) - Starobserver.com.au
+- [Kylie beats Wham! to UK Christmas number one - she'll do a jigsaw to celebrate - BBC](https://www.bbc.com/news/articles/c3w7290wl5xo) - Bbc
+- [How Did the Greatest Pop Stars Fare on Our Staff’s Year-End Songs and Albums Lists? - Billboard](https://www.billboard.com/music/pop/billboard-year-end-lists-greatest-pop-stars-podcast-1236134729/) - Billboard
+- [Wham-ageddon: Can a new song really become Christmas number one? - BBC](https://www.bbc.com/news/articles/cd9z7j57qnjo) - Bbc
+- [Your chance to vote for Florence Road at Eurosonic](https://www.rte.ie/entertainment/2025/1220/1549683-your-chance-to-vote-for-florence-road-at-eurosonic/) - RTE
+- ['80s Rock Band Announces Comeback Tour After Several Health Scares - NewsBreak](https://www.newsbreak.com/share/4404980111684-80s-rock-band-announces-comeback-tour-after-several-health-scares?_f=app_share&amp;pd=07YG9rlK&amp;lang=en_US&amp;send_time=1766237979&amp;trans_data=%7B%22platform%22%3A0%2C%22cv%22%3A%2225.50.0.31%22%2C%22languages%22%3A%22en%22%7D&amp;s=i2) - Newsbreak.com
+- [Original Jethro Tull guitarist Mick Abrahams dead at 82](https://www.loudersound.com/bands-artists/original-jethro-tull-guitarist-mick-abrahams-dead-at-82) - Louder
+- [I Was a King – Until the End (2025)](https://exystence.net/blog/2025/12/20/i-was-a-king-until-the-end-2025/) - Exystence.net
+- [Promoters who book me as closing act will pay $2 million henceforth – Shatta Wale](https://www.ghanaweb.com/GhanaHomePage/entertainment/Promoters-who-book-me-as-closing-act-will-pay-2-million-henceforth-Shatta-Wale-2014609) - GhanaWeb
+- [Show HN: Waves – A terminal music player with library browsing and radio mode](https://github.com/llehouerou/waves) - Github.com
+- [Timothée Chalamet Raps With EsDeeKid After Rumors That He's the Mysterious Rapper](https://www.today.com/popculture/music/timothee-chalamet-esdeekid-4-raws-remix-rcna250168) - TODAY
+- [Timothee Chalamet & EsDeeKid Squash Alter-Ego Rumors on New Rap, 'Marty Supreme' Actor References Girlfriend Kylie Jenner - Listen Now!](https://www.justjared.com/2025/12/19/timothee-chalamet-esdeekid-squash-alter-ego-rumors-on-new-rap-marty-supreme-actor-references-girlfriend-kylie-jenner-listen-now/) - Just Jared
+- [Timothée Chalamet Raps With EsDeeKid on ‘4 Raws Remix,’ Nodding to Rumors the Rapper Is His Alter Ego - Variety](https://variety.com/2025/music/news/timothee-chalamet-raps-esdeekid-4-raws-remix-alter-ego-1236613046/) - Variety
+- [Timothée Chalamet teams up with EsDeeKid to quash alter-ego rumours - BBC](https://www.bbc.com/news/articles/c79x4yqx0ngo) - Bbc
+- [Timothée Chalamet Debunks the Rumors by Joining EsDeeKid for ‘4 Raws’ Remix: Watch - Billboard](https://www.billboard.com/music/rb-hip-hop/timothee-chalamet-esdeekid-4-raws-remix-video-1236143654/) - Billboard
+- [Is Timothée Chalamet UK rapper EsDeeKid? ‘All will be revealed,’ actor says - New York Post](https://nypost.com/2025/12/12/entertainment/is-timothee-chalamet-uk-rapper-esdeekid-all-will-be-revealed-actor-says/) - Nypost
+- [Timothée Chalamet won’t confirm or deny rumors he’s mysterious British rapper EsDeeKid - CNN](https://www.cnn.com/2025/12/12/entertainment/timothee-chalamet-esdeekid-rumors-intl-scli) - Cnn
