@@ -1,0 +1,25 @@
+# Sources for 2025-12-22 News Episode 
+- ['It's so painful': Shane MacGowan's sister on the struggle to avoid his music](https://news.sky.com/story/shane-macgowans-sister-on-the-struggle-to-avoid-his-music-13484497) - Sky.com
+- [Davido Thrills Fans at AFCON 2025 Kick-Off Concert in Morocco Ahead of Opening Ceremony, Clip Trends](https://www.legit.ng/entertainment/celebrities/1689116-davido-thrills-fans-afcon-2025-kick-concert-morocco-opening-ceremony-clip-trends/) - Latest News in Nigeria & Breaking Naija News 24/7 | LEGIT.NG
+- [Everything you need to know about AFCON 2025 in Morocco - ESPN](https://www.espn.com/espn/story/_/id/46867627/2025-africa-cup-nations-groups-teams-venues-format-news-how-watch-tickets) - Espn
+- [Multiple Idols Flamed For “Shocking” Reactions To BLACKPINK Jennie’s Performance](https://www.koreaboo.com/news/multiple-idols-flamed-shocking-reactions-blackpink-jennies-performance/) - Koreaboo.com
+- [Jennie Takes Home Melon Music Award in Structural Tulle Gown](http://wwd.com/pop-culture/celebrity-news/jennie-gown-melon-music-awards-red-carpet-1238431118/) - WWD
+- [Melon Music Awards 2025: G-Dragon, Jennie, IVE, PLAVE Lead Nominations & Performers - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/12/12/melon-music-awards-2025-g-dragon-jennie-ive-plave-lead-nominations--performers/) - Forbes
+- [Pentatonix: Friendships and harmonies](https://www.cbsnews.com/news/pentatonix-friendships-and-harmonies/) - CBS News
+- [Pentatonix sings "Christmas Time Is Here" - CBS News](https://www.cbsnews.com/video/pentatonix-sings-christmas-time-is-here/) - Cbsnews
+- [Pentatonix: Friendships and harmonies - CBS News](https://www.cbsnews.com/video/pentatonix-friendships-and-harmonies/) - Cbsnews
+- [“It was like a demonic, otherworldly séance going on in there with one person”: A Perfect Circle have made four albums. These are the stories behind them all](https://www.loudersound.com/bands-artists/a-perfect-circle-every-album-in-their-own-words) - Louder
+- [“When we did Top Of The Pops we were introduced as being avant-garde. It would have been closer to call us ‘aven’t-a-clue!” Fired from his own band Blodwyn Pig, Jethro Tull co-founder Mick Abrahams could only regret the wasted potential](https://www.loudersound.com/bands-artists/interviews/mick-abrahams-blodwyn-pig) - Louder
+- [WORM Goes Full On '80s Horror With New Single & Video "Blackheart"](https://metalinjection.net/video/worm-goes-full-on-80s-horror-with-new-single-video-blackheart) - Metal Injection.net
+- [VLURE – Escalate (2025)](https://exystence.net/blog/2025/12/22/vlure-escalate-2025/) - Exystence.net
+- [The Avalanches – Wildflower album art](https://fontsinuse.com/uses/73714/the-avalanches-wildflower-album-art) - Fontsinuse.com
+- [Supergroup Axe Dagger to Release Debut Album in March](https://www.metalsucks.net/2025/12/21/supergroup-axe-dagger-to-release-debut-album-in-march/) - MetalSucks
+- [New Orleans musicians share their favorite Christmas songs, from bounce to blues](https://www.npr.org/2025/12/20/nx-s1-5633218/new-orleans-musicians-share-their-favorite-christmas-songs) - NPR
+- [New Orleans musicians share their favorite Christmas songs, from bounce to blues - WCBU Peoria](https://www.wcbu.org/npr-news/2025-12-21/new-orleans-musicians-share-their-favorite-christmas-songs-from-bounce-to-blues) - Wcbu
+- [New Orleans musicians share their favorite Christmas songs, from bounce to blues - WBHM 90.3](https://wbhm.org/npr-story/new-orleans-musicians-share-their-favorite-christmas-songs-from-bounce-to-blues/) - Wbhm
+- [setting sun，extract from official biography《paused in cosmic reflection》 (评论: Dig Your Own Hole)](https://music.douban.com/review/17352545/) - Douban.com
+- [My Money: ‘I lived on fruit for weeks after spending all my money on Manolo Blahniks and a ticket to the Royal Opera’](https://www.independent.ie/business/money/my-money-i-lived-on-fruit-for-weeks-after-spending-all-my-money-on-manolo-blahniks-and-a-ticket-to-the-royal-opera/a785720478.html) - Independent.ie
+- [How the Nelson twins went from packing arenas to being 'f---ing broke' despite making millions](https://www.foxnews.com/entertainment/how-nelson-twins-went-from-packing-arenas-being-f-ing-broke-despite-making-millions) - Fox News
+- [Cómo los gemelos Nelson pasaron de llenar estadios a estar «jodidamente arruinados» a pesar de ganar millones. - Fox News](https://noticias.foxnews.com/entertainment/how-nelson-twins-went-from-packing-arenas-being-f-ing-broke-despite-making-millions) - Foxnews
+- [Music Notes](https://www.lawyersgunsmoneyblog.com/2025/12/music-notes-231) - Lawyersgunsmoneyblog.com
+- [From FunHaus to Glitchy Glam: the 2026 Trends Brands Should Watch, Per Pinterest - ADWEEK](https://www.adweek.com/brand-marketing/from-funhaus-to-glitchy-glam-the-2026-trends-brands-should-watch-per-pinterest/?itm_source=homepage&itm_medium=the-latest-left&itm_campaign=1) - Adweek
