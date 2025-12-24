@@ -1,0 +1,57 @@
+# Sources for 2025-12-24 News Episode 
+- [Pirate Group Anna’s Archive Copies 256M Spotify Songs in Data Scrape](https://hackread.com/annas-archive-pirate-spotify-songs-data-scrape/) - HackRead
+- [World’s largest shadow library made a 300TB copy of Spotify’s most streamed songs - Ars Technica](https://arstechnica.com/tech-policy/2025/12/worlds-largest-shadow-library-brags-it-scraped-300tb-of-spotify-music-metadata/) - Arstechnica
+- [The internet just made a 300TB copy of Spotify! (Updated: Spotify reaction) - Android Authority](https://www.androidauthority.com/spotify-annas-archive-3627023/) - Androidauthority
+- [Pirate group Anna's Archive says it has scraped Spotify in its entirety - Engadget](https://www.engadget.com/entertainment/streaming/pirate-group-annas-archive-says-it-has-scraped-spotify-in-its-entirety-211914755.html) - Engadget
+- [Pirate activists have copied Spotify’s entire music library - csoonline.com](https://www.csoonline.com/article/4110569/pirate-activists-have-copied-spotifys-entire-music-library.html) - Csoonline
+- [Canadian Music Sales Report: Week Ending December 18, 2025 - Billboard Canada](https://ca.billboard.com/fyi/canadian-music-sales-report-week-ending-december-18-2025) - Billboard
+- [Barbra Streisand Celebrates Years-Long Friendship With Ariana Grande: ‘I’m Very Proud of You’](http://www.rollingstone.com/music/music-news/barbra-streisand-praises-ariana-grande-album-collaboration-1235489904/) - Rolling Stone
+- [Barbra Streisand Praises Ariana Grande ‘SNL’ Christmas Episode: ‘I’m Very Proud of You’ - Billboard](https://www.billboard.com/music/music-news/barbra-streisand-praises-ariana-grandes-snl-christmas-music-1236145352/) - Billboard
+- [YouTube won't share streaming data with Billboard in 2026 and it's going to change how your favorite artists perform on the top charts](https://www.androidcentral.com/apps-software/youtube/youtube-wont-share-streaming-data-with-billboard-in-2026) - Android Central
+- [YouTube to pull music data from Billboard’s charts because it doesn’t like its ranking formula - TechCrunch](https://techcrunch.com/2025/12/17/youtube-to-pull-music-data-from-billboards-charts-because-it-doesnt-like-its-ranking-formula/) - Techcrunch
+- [YouTube Will Stop Submitting Data to U.S. Billboard Charts in 2026 - Variety](https://variety.com/2025/digital/news/youtube-will-stop-submitting-data-to-billboard-charts-1236611347/) - Variety
+- [Anna’s Archive Claims it Copied Nearly All of Spotify And The Platform Has Pushed Back](https://www.talkandroid.com/519815-annas-archive-spotify-piracy/) - TalkAndroid
+- [The internet just made a 300TB copy of Spotify! (Updated: Spotify reaction) - Android Authority](https://www.androidauthority.com/spotify-annas-archive-3627023/) - Androidauthority
+- [Hacktivists scrape 86M Spotify tracks, claim their aim is to preserve culture - theregister.com](https://www.theregister.com/2025/12/22/hacktivists_scrape_songs_spotify/) - Theregister
+- [Activists Announce They’ve to Scrape All of Spotify in Massive 300 Terabyte Archive - Gizmodo](https://gizmodo.com/activists-announce-theyve-to-scrape-all-of-spotify-in-massive-300-terabyte-archive-2000702508) - Gizmodo
+- [A Pirate Group Says It Copied Nearly All of Spotify’s Music Catalog - PCMag](https://www.pcmag.com/news/spotify-confirms-someone-scraped-its-library-to-get-up-to-300tb-of-data) - Pcmag
+- [Pirate group Anna's Archive says it has scraped Spotify in its entirety - Engadget](https://www.engadget.com/entertainment/streaming/pirate-group-annas-archive-says-it-has-scraped-spotify-in-its-entirety-211914755.html) - Engadget
+- [Pirate library rips 86 million of the most popular songs on Spotify - The Verge](https://www.theverge.com/news/849141/spotify-scrape-attack-breach-annas-archive-music-300tb-download) - Theverge
+- [Spotify says ‘anti-copyright extremists’ scraped its library - Music Ally](https://musically.com/2025/12/22/spotify-says-anti-copyright-extremists-scraped-its-library/) - Musically
+- [UN Chamber Music Society celebrates 80 years with new orchestral electronic album, 'HARMONY'](https://djmag.com/news/un-chamber-music-society-celebrates-80-years-new-orchestral-electronic-album-harmony) - DJ Mag
+- [Taylor Swift once said women in pop are discarded in their 30s. Now she's 36 and bigger than ever.](https://www.businessinsider.com/taylor-swift-success-young-women-music-industry-double-standards-2025-12) - Business Insider
+- [6 New Details From Taylor Swift’s ‘The Tortured Poets Department’ Eras Set From ‘The Final Show’ - Billboard](https://www.billboard.com/lists/taylor-swift-tortured-poets-department-era-details-final-show/) - Billboard
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Sfchronicle
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Taylor Swift 'End of an Era' docuseries biggest moments - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/12/taylor-swift-end-of-an-era-documentary-disney-highlights/87701381007/) - Usatoday
+- [Taylor Swift Shares Anxieties Over Thwarted Attack in 'End of an Era' Ep 1 - Variety](https://variety.com/2025/music/news/taylor-swift-anxieties-end-of-an-era-first-episode-1236607358/) - Variety
+- [Taylor Swift shares trailer of ‘Eras Tour: The Final Show’ concert film - Siasat.com](https://www.siasat.com/taylor-swift-shares-trailer-of-eras-tour-the-final-show-concert-film-3307422/) - Siasat
+- [Everything We Wish We Learned From Taylor Swift’s ‘The End of an Era’](http://www.rollingstone.com/music/music-features/taylor-swift-the-end-of-an-era-questions-1235488071/) - Rolling Stone
+- [The Taylor Swift Surprise Song Mashup That Made Her Whole Family Cry](https://www.elitedaily.com/entertainment/taylor-swift-surprise-song-mashup-family-cry) - Elite Daily
+- [Taylor Swift Shares Love Letter from Travis Kelce on ‘End of an Era’ Finale](https://extratv.com/2025/12/23/taylor-swift-shares-love-letter-from-travis-kelce-on-end-of-an-era-finale/) - Extra
+- [7 Things We Learned From Episodes One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episodes-one-and-two-of-the-end-of-an-era) - Vogue
+- [7 Things We Learned From Episode One and Two of Taylor Swift’s New Docuseries, ‘The End of an Era’ - Vogue](https://www.vogue.com/article/7-things-we-learned-from-episode-one-and-two-of-the-end-of-an-era) - Vogue
+- [Every major update from the first two episodes of Taylor Swift's Disney+ Eras Tour docuseries - Greenwich Time](https://www.greenwichtime.com/entertainment/article/every-major-update-from-the-first-two-episodes-of-21238495.php) - Greenwichtime
+- [Taylor Swift's Eras Tour docuseries is here. See episode schedule. - USA Today](https://www.usatoday.com/story/entertainment/movies/2025/12/12/taylor-swifts-eras-tour-docuseries-episode-schedule/87740028007/) - Usatoday
+- [Another Taylor Swift documentary? For fans who spent thousands on Eras, reliving it is priceless - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2025-12-12/taylor-swifts-eras-tour-documentary-disney-overexposure) - Latimes
+- [‘The End of an Era,’ and 7 Other Things to Watch on TV This Week - The New York Times](https://www.nytimes.com/2025/12/08/arts/television/the-end-of-an-era-and-7-other-things-to-watch-on-tv-this-week.html) - Nytimes
+- [Bad Bunny, Shakira, Karol G: and more: 5 Latin Moments of 2025](http://www.billboard.com/lists/bad-bunny-shakira-karol-g-mana-latin-music-moments-2025/) - Billboard
+- [Anamaria Sayre's Top 10 Albums of 2025 - NPR Illinois](https://www.nprillinois.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Nprillinois
+- [Anamaria Sayre's Top 10 Albums of 2025 - KGOU](https://www.kgou.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Kgou
+- [Anamaria Sayre's Top 10 Albums of 2025 - Northern Public Radio](https://www.northernpublicradio.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Northernpublicradio
+- [Anamaria Sayre's Top 10 Albums of 2025 - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Iowapublicradio
+- [2025’s Top Artists Didn’t Rely On Releases Alone](https://uproxx.com/insights/warner-music-group-top-artists-2025/) - UPROXX
+- [The Deals: Saudi Arabia Partners With Legends Global for New Venues in the Country - Billboard](https://www.billboard.com/lists/saudi-arabia-partners-legends-new-venues-more-music-deals/) - Billboard
+- [HYDE to Livestream Birthday Concert Worldwide January 29](https://www.animenewsnetwork.com/press-release/2025-12-23/hyde-to-livestream-birthday-concert-worldwide-january-29/.232439) - Anime News Network
+- [VITRIOL Will Continue As A Band, Starting With Their 2026 European Tour](https://metalinjection.net/news/vitriol-will-continue-as-a-band) - Metal Injection.net
+- ["We often felt like the strange duck on the festival bill because there was a woman in the band." How two modern metal icons united for a collaboration over a decade in the making](https://www.loudersound.com/bands-artists/biographies/the-story-behind-within-temptation-paradise-tarja-turunen) - Louder
+- [R&B's next vibe shift is here. These 2025 albums are proof](https://www.npr.org/2025/12/23/nx-s1-5539543/rnb-vibe-shift-2025-albums) - NPR
+- [Driving Home for Christmas singer Chris Rea dies](https://www.rt.com/pop-culture/629897-driving-home-for-christmas-singer-dies/) - RT
+- [Chris Rea, British singer of "Driving Home for Christmas," dies at 74 - CBS News](https://www.cbsnews.com/news/chris-rea-dies-age-74-british-singer-driving-home-for-christmas/) - Cbsnews
+- [Chris Rea, Grammy-Nominated Singer of ‘Driving Home for Christmas,’ Dies at 74 - The New York Times](https://www.nytimes.com/2025/12/22/arts/music/chris-rea-dead-driving-home-christmas.html) - Nytimes
+- [Chris Rea obituary: A life on the road - BBC](https://www.bbc.com/news/articles/c51y93wqv5po) - Bbc
+- [Chris Rea, 'Fool' and 'Driving Home for Christmas' singer, dies at 74 - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/22/chris-rea-dead-driving-home-for-christmas/87882231007/) - Usatoday
+- [‘Driving Home for Christmas’ singer Chris Rea dead at 74 - nypost.com](https://nypost.com/2025/12/22/entertainment/driving-home-for-christmas-singer-chris-rea-dead-at-74/) - Nypost
+- [Queen's Brian May unveils lost Christmas song by the band from 1974](https://cnalifestyle.channelnewsasia.com/entertainment/queen-brian-may-christmas-song-563696) - CNA
+- [Iconic rock band unveils never-heard song cut from 1974 album - Syracuse.com](https://www.syracuse.com/entertainment/2025/12/iconic-rock-band-unveils-never-heard-song-cut-from-1974-album.html) - Syracuse
