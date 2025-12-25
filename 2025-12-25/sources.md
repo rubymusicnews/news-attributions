@@ -1,0 +1,43 @@
+# Sources for 2025-12-25 News Episode 
+- [The Best Moments From Bad Bunny’s Global Tour](http://www.rollingstone.com/music/music-lists/bad-bunny-tour-dates-best-moments-highlights-1235489060/) - Rolling Stone
+- [Top 10 Highest Grossing Latin Tours of the Year - Billboard](https://www.billboard.com/lists/top-latin-tours-2025/) - Billboard
+- [Anamaria Sayre's Top 10 Albums of 2025 - NPR Illinois](https://www.nprillinois.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Nprillinois
+- [Anamaria Sayre's Top 10 Albums of 2025 - KGOU](https://www.kgou.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Kgou
+- [Anamaria Sayre's Top 10 Albums of 2025 - Northern Public Radio](https://www.northernpublicradio.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Northernpublicradio
+- [Anamaria Sayre's Top 10 Albums of 2025 - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Iowapublicradio
+- [After 50 years, Pink Floyd have released an official music video for one of their greatest and best-loved songs](https://www.loudersound.com/bands-artists/pink-floyd-wish-you-were-here-official-video) - Louder
+- [Pink Floyd’s Mesmerizing ‘Wish You Were Here’ Video Arrives 50 Years After Song’s Release](http://www.rollingstone.com/music/music-news/pink-floyd-wish-you-were-here-video-1235490181/) - Rolling Stone
+- [Pink Floyd's Mesmerizing 'Wish You Were Here' Video Arrives 50 Years After Song's Release - Rolling Stone](https://www.rollingstone.com/music/music-news/pink-floyd-wish-you-were-here-video-1235490181/) - Rollingstone
+- [Lady Gaga announces release of Harlequin Live concert film on YouTube](https://cnalifestyle.channelnewsasia.com/entertainment/lady-gaga-harlequin-live-concert-film-youtube-568446) - CNA
+- [Lady Gaga’s ‘Harlequin Live: One Night Only’ Special Will Be Available to Stream Very Soon - Billboard](https://www.billboard.com/culture/tv-film/lady-gaga-harlequin-live-one-night-only-stream-how-to-watch-1236144610/) - Billboard
+- [Lady Gaga Discusses 'Harlequin Live' Film, Being Released Christmas Eve - Variety](https://variety.com/2025/music/news/lady-gaga-harlequin-live-film-christmas-eve-grammy-museum-1236612793/) - Variety
+- [Mariah Carey almost didn't record 'All I Want for Christmas', the most listened to and profitable song](https://www.marca.com/en/lifestyle/music/2025/12/24/694bccd522601d7f0e8b45d0.html) - Marca
+- [Why do we hear the same Christmas songs year after year?](https://www.npr.org/2025/12/24/nx-s1-5637477/christmas-songs-year-after-year) - NPR
+- ['Last Christmas' by Wham! tops Billboard Global 200 for first time - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/18/last-christmas-wham-tops-billboard-global-200/87828718007/) - Usatoday
+- [Wham!’s ‘Last Christmas’ Hits No. 1 on Billboard Global 200 for First Time - Billboard](https://www.billboard.com/music/chart-beat/wham-last-christmas-global-200-number-one-1236137915/) - Billboard
+- [HUNTR/X's 'Golden' No. 1 on Global Charts for 19th Week - Billboard](https://www.billboard.com/music/chart-beat/huntr-x-golden-number-1-global-charts-19th-week-1236137981/) - Billboard
+- [Obrovský únik dat ze Spotify, co vše víme?](https://zdrojak.cz/clanky/obrovsky-unik-dat-ze-spotify-co-vse-vime/) - Zdrojak.cz
+- [The internet just made a 300TB copy of Spotify! (Updated: Spotify reaction) - Android Authority](https://www.androidauthority.com/spotify-annas-archive-3627023/) - Androidauthority
+- [World’s largest shadow library made a 300TB copy of Spotify’s most streamed songs - Ars Technica](https://arstechnica.com/tech-policy/2025/12/worlds-largest-shadow-library-brags-it-scraped-300tb-of-spotify-music-metadata/) - Arstechnica
+- [Activists Announce They’ve to Scrape All of Spotify in Massive 300 Terabyte Archive - Gizmodo](https://gizmodo.com/activists-announce-theyve-to-scrape-all-of-spotify-in-massive-300-terabyte-archive-2000702508) - Gizmodo
+- [Pirate group Anna's Archive says it has scraped Spotify in its entirety - Engadget](https://www.engadget.com/entertainment/streaming/pirate-group-annas-archive-says-it-has-scraped-spotify-in-its-entirety-211914755.html) - Engadget
+- [Pirate activists have copied Spotify’s entire music library - csoonline.com](https://www.csoonline.com/article/4110569/pirate-activists-have-copied-spotifys-entire-music-library.html) - Csoonline
+- [Canadian Music Sales Report: Week Ending December 18, 2025 - Billboard Canada](https://ca.billboard.com/fyi/canadian-music-sales-report-week-ending-december-18-2025) - Billboard
+- [Sabrina Carpenter Gifts Fans ‘Man’s Best Friend’ Bonus Track Version: ‘Thank You for Such a Beautiful Year’](http://www.rollingstone.com/music/music-news/sabrina-carpenter-mans-best-friend-bonus-track-lyric-video-1235490401/) - Rolling Stone
+- [Sabrina Carpenter Releases ‘Man’s Best Friend’ Bonus Track Edition](http://www.billboard.com/music/pop/sabrina-carpenter-mans-best-friend-bonus-track-edition-1236145547/) - Billboard
+- [Sabrina Carpenter Gifts ‘Man’s Best Friend’ Bonus Track Edition & Lyric Video on Christmas Eve - Billboard](https://www.billboard.com/music/pop/sabrina-carpenter-mans-best-friend-bonus-track-edition-1236145547/) - Billboard
+- [Taylor Swift’s ‘Showgirl’ and Alex Warren’s ‘Ordinary’ Top RIAA’s 2025 Multi-Platinum Lists - Variety](https://variety.com/2025/music/news/taylor-swift-alex-warren-top-riaa-2025-multi-platinum-1236605986/) - Variety
+- [The Metallica Song They Only Played Live Once: The Story Behind "Escape"](https://screenrant.com/metallica-most-hated-song-factoid/) - Screen Rant
+- ["We played it for our label and management and they told us it would end our career": The story of the glam metal classic inspired by an unfaithful exotic dancer](https://www.loudersound.com/bands-artists/interviews/poison-every-rose-has-its-thorn) - Louder
+- ["Yelling, fighting, drugs, alcohol… everything always went on. At the very end, he took me to his house and gave me a sword." Motorhead's Lemmy Kilmister, by those who knew him best](https://www.loudersound.com/bands-artists/biographies/the-life-and-legacy-of-lemmy-kilmister) - Louder
+- ["He became a father figure to me at a time when I might have ended up in the morgue": Lemmy's personal assistant looks back at six years on the road with the Motörhead legend](https://www.loudersound.com/bands-artists/six-years-on-the-road-with-the-lemmy) - Louder
+- [Hip-Hop Flips The Narrative In Our Breakdown Of 2025’s Top Performing Genres](https://uproxx.com/insights/2025-top-genres-hip-hop/) - UPROXX
+- [The Deals: Saudi Arabia Partners With Legends Global for New Venues in the Country - Billboard](https://www.billboard.com/lists/saudi-arabia-partners-legends-new-venues-more-music-deals/) - Billboard
+- [Mariah Carey Awarded $92,000 From Dismissed ‘All I Want For Christmas’ Lawsuit](http://www.rollingstone.com/music/music-news/mariah-carey-awarded-in-all-i-want-for-christmas-lawsuit-1235490278/) - Rolling Stone
+- [France Recognizes Electronic Music as ‘Intangible Cultural Heritage’](http://www.billboard.com/music/music-news/france-electronic-music-intangible-cultural-heritage-1236145483/) - Billboard
+- [France Recognizes Electronic Music as ‘Intangible Cultural Heritage’ - Billboard Canada](https://ca.billboard.com/music/music-news/france-electronic-music-intangible-cultural-heritage-1236145483/) - Billboard
+- [The 10 best black metal albums of 2025](https://www.loudersound.com/features/best-black-metal-albums-2025) - Louder
+- [The 15 Best Metal Albums of 2025 - Rolling Stone](https://www.rollingstone.com/music/music-lists/best-metal-albums-2025-1235484417/) - Rollingstone
+- [Why India’s music labels are moving beyond songs to manage artists, fandoms and revenue streams](https://www.livemint.com/industry/media/music-labels-tap-independent-artists-for-reach-relationships-umgi-11766563251054.html) - Livemint
+- [The Deals: Saudi Arabia Partners With Legends Global for New Venues in the Country - Billboard](https://www.billboard.com/lists/saudi-arabia-partners-legends-new-venues-more-music-deals/) - Billboard
+- [Tiberius – Troubadour (2025)](https://exystence.net/blog/2025/12/24/tiberius-troubadour-2025/) - Exystence.net
