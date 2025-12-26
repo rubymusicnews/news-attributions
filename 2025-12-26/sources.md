@@ -1,0 +1,26 @@
+# Sources for 2025-12-26 News Episode 
+- ["One bloke was on Antiques Roadshow saying he was our first drummer. Absolute rubbish!" Steve Harris sets the record straight about Christmas Day, Paul Di'Anno and Iron Maiden's early years](https://www.loudersound.com/bands-artists/steve-harris-interview-iron-maiden-early-years) - Louder
+- [BTS' Jung Kook releases holiday cover of 'Christmas Song' - The Korea Times](https://www.koreatimes.co.kr/entertainment/music/20251225/bts-jung-kook-releases-holiday-cover-of-christmas-song) - 코리아타임스
+- [“What came out of a tragedy gave birth to something that was hugely positive in my life.” How the legendary Chris Cornell channelled his grief over a dear friend's death into making one of the 90s' most underrated classics](https://www.loudersound.com/bands-artists/the-story-of-temple-of-the-dog) - Louder
+- [Susanna Mendlow – Travels with Cello (2025)](https://exystence.net/blog/2025/12/25/susanna-mendlow-travels-with-cello-2025/) - Exystence.net
+- [Découvrez nos 100 meilleurs albums de 2025 (partie 4/4)](https://www.lesinrocks.com/musique/decouvrez-nos-100-meilleurs-albums-de-2025-partie-4-4-684315-25-12-2025/) - Les Inrocks
+- [The best albums of 2025 - Business Insider](https://www.businessinsider.com/best-albums-2025) - Businessinsider
+- [Unexpected comebacks and operatic pop: The best albums and songs of 2025 - BBC](https://www.bbc.com/news/articles/c9w7qgpnv14o) - Bbc
+- [The Daily’s Sunday Special: The Best Music of 2025 - The New York Times](https://www.nytimes.com/2025/12/14/podcasts/the-daily/sunday-special-the-best-music-of-2025.html) - Nytimes
+- ["I’m still grieving the loss of him. I can’t really accept it because, like a lot of people, I don’t want to think about him not being here." Judas Priest legend Rob Halford on his love for Ozzy Osbourne, touring with Alice Cooper and what comes next](https://www.loudersound.com/bands-artists/rob-halford-judas-priest-interview-2025) - Louder
+- [NCT DREAM、MTV 2026年1月度「ARTIST OF THE MONTH」に決定！最新ミニアルバム発売＆日本ツアー開催を記念した撮り下ろし特番を独占放送！](https://prtimes.jp/main/html/rd/p/000000026.000149509.html) - Prtimes.jp
+- [Snoop Dogg Leads Lainey Wilson, More in Jolly NFL Christmas Halftime Show](https://www.usmagazine.com/entertainment/news/snoop-dogg-leads-lainey-wilson-more-in-jolly-nfl-christmas-halftime-show/#article) - Us Weekly
+- [What time is Snoop Dogg's halftime show on Christmas 2025 and how to watch?](https://www.marca.com/en/nfl/2025/12/25/694d737322601d6b298b4580.html) - Marca
+- ['The hottest halftime show': Snoop Dogg set to headline Netflix Christmas Gameday 2025 - WTVC](https://newschannel9.com/news/entertainment/the-hottest-halftime-show-snoop-dogg-set-to-headline-netflix-christmas-gameday-2025-lainey-wilson-kpop-demon-hunters-minneosota) - Newschannel9
+- [Snoop Dogg NFL halftime show details: What to know about 2025 Christmas performance on Netflix - sportingnews.com](https://www.sportingnews.com/us/nfl/news/snoop-dogg-nfl-halftime-show-details-2025-christmas-performance-netflix/3c5ac708e8c88dbc0f721c2e) - Sportingnews
+- [NFL Christmas games 2025 bring Kelly Clarkson and Snoop Dogg to Netflix Thursday in historic streaming showdown - Red94](https://www.red94.net/news/29137-nfl-christmas-games-2025-will-feature-cowboys-commanders-showdown-and-lions-viki/) - Red94
+- [Meet Netflix's star-studded NFL broadcast lineup for 2025, from Kay Adams to Michael Irvin - sportingnews.com](https://www.sportingnews.com/us/nfl/news/meet-netflix-nfl-broadcast-lineup-2025-kay-adams-michael-irvin/f86f5a66c12e1601fd4e1ed4) - Sportingnews
+- [From Fontaines DC to CMAT, 2025 has been a stellar year for Irish artists](https://www.irishtimes.com/culture/music/2025/12/25/for-fans-of-music-2025-has-been-a-phenomenal-year-for-irish-artists/) - The Irish Times
+- [The 20 Best U.K. & Ireland Songs of 2025: Staff Picks - Billboard](https://www.billboard.com/lists/2025-uk-ireland-songs-best/) - Billboard
+- [Citrus Citrus – In the Belly of the Eternal Draw (2025)](https://exystence.net/blog/2025/12/25/citrus-citrus-in-the-belly-of-the-eternal-draw-2025/) - Exystence.net
+- [Chance the Rapper and Jeremih Gift Secret Santa EP](https://pitchfork.com/news/chance-the-rapper-and-jeremih-secret-santa-ep/) - Pitchfork
+- [“I became obsessed with doing the perfect album. I even had them working on Christmas Day!” Producer was perfect for Marillion the first time, a disaster the second time – and didn’t get a third time](https://www.loudersound.com/bands-artists/marillion-nick-tauber) - Louder
+- [Too sick to attend, too bad: why the live music ticketing market is broken](https://theconversation.com/too-sick-to-attend-too-bad-why-the-live-music-ticketing-market-is-broken-271618) - The Conversation Africa
+- [Phish – The Marquee, New York City, NY, December 28, 1990 (2025)](https://exystence.net/blog/2025/12/25/phish-the-marquee-new-york-city-ny-december-28-1990-2025/) - Exystence.net
+- [New Celebrity Ad Campaign Featuring Travis Scott Released by Beats](https://www.ilounge.com/news/new-celebrity-ad-campaign-featuring-travis-scott-released-by-beats) - iLounge
+- [Beats and Travis Scott launch ‘DARE TO DREAM’ campaign celebrating self-belief and creative manifestation - MediaNews4U](https://www.medianews4u.com/beats-and-travis-scott-launch-dare-to-dream-campaign-celebrating-self-belief-and-creative-manifestation/) - Medianews4u
