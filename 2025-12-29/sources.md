@@ -1,0 +1,29 @@
+# Sources for 2025-12-29 News Episode 
+- [Harry Styles to make a comeback in 2026 ? Singer drops surprise video](https://www.wionews.com/entertainment/hollywood/harry-styles-to-make-comeback-in-2026-singer-drops-surprise-video-1766892980448) - WION
+- [Harry Styles' Surprise 'Forever, Forever' Video: A Low-Key Return To Music](https://screenrant.com/harry-styles-surprise-forever-forever-video-return-music/) - Screen Rant
+- [Harry Styles surprised fans with a YouTube video upload of the piano ballad he performed on the final night of his Love on Tour. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/harry-styles-surprised-fans-with-a-youtube-video-upload-of-the-piano-ballad-he-p/1228451622488509/) - Facebook
+- [Harry Styles drops surprise video, fans say 2026 comeback is upon us - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/27/harry-styles-forever-forever-video/87927662007/) - Usatoday
+- [Harry Styles Releases ‘Forever, Forever’ Video From Love on Tour Finale - Newsweek](https://www.newsweek.com/entertainment/harry-styles-releases-forever-forever-video-from-love-on-tour-finale-11275672) - Newsweek
+- [Harry Styles breaks music hiatus with surprise YouTube release - ABC News](https://abcnews.go.com/GMA/Culture/harry-styles-breaks-music-hiatus-surprise-youtube-release/story?id=128723085) - Go
+- [2025 in music: The five best international albums of the year](https://www.irishtimes.com/culture/music/review/2025/12/28/2025-in-music-the-five-best-international-albums-of-the-year/) - The Irish Times
+- [The 45 Best Albums of 2025 - Vogue](https://www.vogue.com/article/best-albums-of-2025) - Vogue
+- [The 15 Best Non-English Albums of 2025 - Teen Vogue](https://www.teenvogue.com/story/best-non-english-albums-of-2025) - Teenvogue
+- [The best albums of 2025 - Business Insider](https://www.businessinsider.com/best-albums-2025) - Businessinsider
+- [“Lemmy was very forceful and pushy because he took a lot of speed. He got the job because he elbowed everybody else out the way!” How Hawkwind made Silver Machine, and gained the respect of Dave Brock’s bank manager](https://www.loudersound.com/music/tracks-singles/hawkwind-silver-machine) - Louder
+- [A muse for musicians: 11 songs inspired by Brigitte Bardot](https://abcnews.go.com/Entertainment/wireStory/muse-musicians-11-songs-inspired-brigitte-bardot-128734522) - ABC News
+- [From Chappell Roan to Bob Dylan: 11 of the best songs inspired by Brigitte Bardot](https://www.the-independent.com/arts-entertainment/music/brigitte-bardot-songs-bob-dylan-b2891233.html) - The-independent.com
+- [Brigitte Bardot Dies at 91](https://pitchfork.com/news/brigitte-bardot-dies-at-91/) - Pitchfork
+- [Brigitte Bardot dies: 11 songs about the French muse](https://apnews.com/article/brigitte-bardot-dies-songs-playlist-5d04c3003eb5d2a5a16a6cf91b80c315) - Associated Press
+- [“We all looked at each other and said, 'We gotta get out of here!’”: the story of the night a synth-pop sensation caused an LA riot featuring 200 police officers, helicopters, barricades, smashed windows and a queue that stretched on for 15 blocks](https://www.loudersound.com/bands-artists/we-all-looked-at-each-other-and-said-we-gotta-get-out-of-here-the-story-of-the-night-a-synth-pop-sensation-caused-an-la-riot-featuring-200-police-officers-helicopters-barricades-smashed-windows-and-a-queue-that-stretched-on-for-15-blocks) - Louder
+- [Why Sully Erna Says There Could Be a New Godsmack Album After All](https://loudwire.com/sully-erna-new-godsmack-album/) - Loudwire
+- [Dale Ann Bradley talks about her single ‘Mary’s Rock’ and new bluegrass album](https://www.digitaljournal.com/entertainment/dale-ann-bradley-talks-about-her-single-marys-rock-and-new-bluegrass-album/article) - Digital Journal
+- [New David Bowie book shines light on ‘heartbroken’ singer’s final months](https://www.the-independent.com/arts-entertainment/music/news/david-bowie-book-lazarus-liver-cancer-death-b2891083.html) - The-independent.com
+- [Peter Criss Denies Reports He Wants $1,000 to Download New Solo Album](https://www.metalsucks.net/2025/12/28/peter-criss-denies-reports-he-wants-1000-to-download-new-solo-album/) - MetalSucks
+- [Peter Criss discourages digital purchases of self-titled album - The Music Universe](https://themusicuniverse.com/peter-criss-discourages-digital-purchases-of-self-titled-album/) - Themusicuniverse
+- [I Don't Like Neil Diamond's Most Popular Song, But That Made One Thing About Song Sung Blue Great](https://www.cinemablend.com/movies/i-dont-like-neil-diamonds-most-popular-song-sweet-caroline-made-one-thing-about-song-sung-blue-great) - CinemaBlend
+- [‘Song Sung Blue’ Review: A Christmas ‘Caroline’ - The New York Times](https://www.nytimes.com/2025/12/24/movies/song-sung-blue-review.html) - Nytimes
+- [‘Song Sung Blue’ avoids biopic pitfalls by being much weirder - The Washington Post](https://www.washingtonpost.com/entertainment/movies/2025/12/25/song-sung-blue-review/) - Washingtonpost
+- [dust – Sky Is Falling (2025)](https://exystence.net/blog/2025/12/28/dust-sky-is-falling-2025/) - Exystence.net
+- [Baptista shares years of struggle, victory in new album](https://punchng.com/?p=2021296) - The Punch
+- [THE GATHERING Splits With Vocalist SILJE WERGELAND](https://metalinjection.net/news/breakups/the-gathering-splits-with-vocalist-silje-wergeland) - Metal Injection.net
+- [Jazz: Don Was and the Pan-Detroit Ensemble playing two shows in Colorado](https://www.denverpost.com/2025/12/28/jazz-don-was-and-the-pan-detroit-ensemble-playing-two-shows-in-colorado/) - The Denver Post
