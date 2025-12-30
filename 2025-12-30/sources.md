@@ -1,0 +1,60 @@
+# Sources for 2025-12-30 News Episode 
+- [Mariah Carey’s ‘Christmas’ Is No. 1 for 22nd Week on Hot 100](http://www.billboard.com/lists/mariah-carey-hot-100-christmas-22nd-week/) - Billboard
+- ['Last Christmas' by Wham! tops Billboard Global 200 for first time - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/18/last-christmas-wham-tops-billboard-global-200/87828718007/) - Usatoday
+- [Wham!’s ‘Last Christmas’ Hits No. 1 on Billboard Global 200 for First Time - Billboard](https://www.billboard.com/music/chart-beat/wham-last-christmas-global-200-number-one-1236137915/) - Billboard
+- [HUNTR/X's 'Golden' No. 1 on Global Charts for 19th Week - Billboard](https://www.billboard.com/music/chart-beat/huntr-x-golden-number-1-global-charts-19th-week-1236137981/) - Billboard
+- [K-pop band NewJeans breaks up after bitter feud with record label](https://www.bbc.com/news/articles/cdxwxqrde29o) - BBC News
+- [Danielle Removed From NewJeans — ADOR Terminates Contract and Plans Legal Action After K-Pop Battle](https://www.lifeandstylemag.com/posts/why-danielle-was-removed-from-newjeans-after-k-pop-battle/) - Life&Style Weekly
+- [NewJeans Member Danielle Dropped by ADOR Amid Lawsuit Fallout](http://www.billboard.com/music/music-news/newjeans-member-danielle-dropped-ador-lawsuit-fallout-1236146797/) - Billboard
+- [Three remaining NewJeans members to return to ADOR, ending year-long K-pop clash - Korea JoongAng Daily](https://koreajoongangdaily.joins.com/news/2025-11-12/entertainment/kpop/Three-remaining-NewJeans-members-to-return-to-ADOR-ending-yearlong-Kpop-clash/2442958) - Joins
+- [K-pop band NewJeans set to resume with record label after court loss - NBC News](https://www.nbcnews.com/world/asia/k-pop-band-newjeans-set-resume-record-label-court-loss-rcna243642) - Nbcnews
+- [NewJeans Member Danielle Dropped From Girl Group Amid ADOR Lawsuit Fallout - Billboard](https://www.billboard.com/music/music-news/newjeans-member-danielle-dropped-ador-lawsuit-fallout-1236146797/) - Billboard
+- [NewJeans’ Agency Ador Terminates Danielle, Plans Legal Action Against Her Family Member - Stereogum](https://stereogum.com/2483791/newjeans-agency-ador-terminates-danielle-plans-legal-action-against-her-family-member/news) - Stereogum
+- [ADOR Share NewJeans Update: Hanni Returns, Minji In Talks, Danielle’s Contract Terminated - Forbes](https://www.forbes.com/sites/jeffbenjamin/2025/12/28/ador-share-newjeans-update-hanni-returns-minji-in-talks-danielles-contract-terminated/) - Forbes
+- [Kanye West anuncia outro álbum e confunde ainda mais os fãs](https://rollingstone.com.br/noticia/kanye-west-anuncia-outro-album-e-confunde-ainda-mais-os-fas/) - Rollingstone.com.br
+- [Kanye West Says New Album ‘BULLY’ Is Coming In 2026 During Deon Cole Set](https://www.rap-up.com/article/kanye-west-bully-album-announcement-2026) - Rap-Up.com
+- [Kanye West Awkwardly Announces A New Album On The Way](https://hiphopwired.com/2977671/kanye-west-new-album/) - Hip-Hop Wired
+- [Kanye West Pops Up at Deon Cole Show, Reveals New Album Is Coming - Billboard](https://www.billboard.com/music/rb-hip-hop/kanye-west-confirms-new-album-dean-cole-comedy-show-1236146294/) - Billboard
+- [Ye Says His Viral ‘Bucket List’ Is ‘Fake’: ‘Not My Handwriting’ - Billboard](https://www.billboard.com/music/rb-hip-hop/kanye-west-bucket-list-fake-not-my-handwriting-1236146861/) - Billboard
+- [Toast of the Nation 2026](https://www.npr.org/2025/12/29/g-s1-102814/toast-of-the-nation-2026) - NPR
+- [Toast of the Nation 2026 - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-29/toast-of-the-nation-2026) - Iowapublicradio
+- [Ictus, Suzanne Vega, Collegium Vocale Gent – Philip Glass: Einstein On the Beach (2025)](https://exystence.net/blog/2025/12/29/ictus-suzanne-vega-collegium-vocale-gent-philip-glass-einstein-on-the-beach-2025/) - Exystence.net
+- [Beyoncé Net Worth: How Much Money the Billionaire Music Artist Has](https://hollywoodlife.com/feature/beyonce-net-worth-billionaire-5495886/) - Hollywood Life
+- [Beyoncé Becomes 5th Musician to Reach Billionaire Status](https://www.thewrap.com/industry-news/business/beyonce-reaches-billionaire-status/) - TheWrap
+- [Beyoncé clinches billionaire status after smash success of Cowboy Carter Tour](https://nypost.com/2025/12/29/business/beyonce-clinches-billionaire-status-after-smash-success-of-cowboy-carter-tour/) - New York Post
+- [Beyoncé reaches billionaire status after record-breaking ‘Cowboy Carter’ tour, hair care and whiskey launches](https://pagesix.com/2025/12/29/celebrity-news/beyonce-reaches-billionaire-status/) - Page Six
+- [Beyoncé is officially a billionaire, Forbes says](https://www.nbcnews.com/pop-culture/celebrity/beyonce-officially-billionaire-forbes-says-rcna251396) - NBC News
+- [Beyoncé declared a billionaire by Forbes](https://www.bbc.com/news/articles/cn09091zw34o) - BBC News
+- [The 10 Most Fantastically Eighties Rock Star Commercials](http://www.rollingstone.com/music/music-lists/best-1980s-tv-commercials-rock-stars-1235491023/) - Rolling Stone
+- [Activist group claims it scraped Spotify's 86 million song library](https://djmag.com/news/activist-group-claims-it-scraped-spotifys-86-million-song-library) - DJ Mag
+- [The internet just made a 300TB copy of Spotify! (Updated: Spotify reaction) - Android Authority](https://www.androidauthority.com/spotify-annas-archive-3627023/) - Androidauthority
+- [World’s largest shadow library made a 300TB copy of Spotify’s most streamed songs - Ars Technica](https://arstechnica.com/tech-policy/2025/12/worlds-largest-shadow-library-brags-it-scraped-300tb-of-spotify-music-metadata/) - Arstechnica
+- [Activists Announce They’ve to Scrape All of Spotify in Massive 300 Terabyte Archive - Gizmodo](https://gizmodo.com/activists-announce-theyve-to-scrape-all-of-spotify-in-massive-300-terabyte-archive-2000702508) - Gizmodo
+- [Pirate group Anna's Archive says it has scraped Spotify in its entirety - Engadget](https://www.engadget.com/entertainment/streaming/pirate-group-annas-archive-says-it-has-scraped-spotify-in-its-entirety-211914755.html) - Engadget
+- [Pirate activists have copied Spotify’s entire music library - csoonline.com](https://www.csoonline.com/article/4110569/pirate-activists-have-copied-spotifys-entire-music-library.html) - Csoonline
+- [Canadian Music Sales Report: Week Ending December 18, 2025 - Billboard Canada](https://ca.billboard.com/fyi/canadian-music-sales-report-week-ending-december-18-2025) - Billboard
+- [New David Bowie biography shines light on ‘heartbroken’ singer’s final months](https://www.the-independent.com/arts-entertainment/music/news/david-bowie-new-biography-liver-cancer-lazarus-b2891454.html) - The-independent.com
+- [Oasis sold more tickets in 2025 than Beyonce](https://www.loudersound.com/bands-artists/oasis-sold-more-tickets-in-2025-than-beyonce) - Louder
+- [10 best concerts of 2025, ranked - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/21/best-concerts-of-2025/87703769007/) - Usatoday
+- [Harry Styles sends fans into a frenzy with cryptic surprise video years after last album and tour](https://www.the-independent.com/arts-entertainment/music/news/harry-styles-releasing-new-music-video-b2891353.html) - The-independent.com
+- [Harry Styles surprised fans with a YouTube video upload of the piano ballad he performed on the final night of his Love on Tour. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/harry-styles-surprised-fans-with-a-youtube-video-upload-of-the-piano-ballad-he-p/1228451622488509/) - Facebook
+- [Harry Styles drops surprise video, fans say 2026 comeback is upon us - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/27/harry-styles-forever-forever-video/87927662007/) - Usatoday
+- [Harry Styles Releases ‘Forever, Forever’ Video From Love on Tour Finale - Newsweek](https://www.newsweek.com/entertainment/harry-styles-releases-forever-forever-video-from-love-on-tour-finale-11275672) - Newsweek
+- [Harry Styles breaks music hiatus with surprise YouTube release - ABC News](https://abcnews.go.com/GMA/Culture/harry-styles-breaks-music-hiatus-surprise-youtube-release/story?id=128723085) - Go
+- [10 Best Musician Sneaker Collaborations of 2025: Staff List](http://www.billboard.com/lists/sneaker-musician-collaborations-2025-staff-picks/) - Billboard
+- [The 10 Hottest Musician Sneaker Collaborations of 2025: Staff Picks - Billboard](https://www.billboard.com/lists/sneaker-musician-collaborations-2025-staff-picks/) - Billboard
+- [The Debrief \| The Sneaker of the Year 2025 - The Business of Fashion](https://www.businessoffashion.com/podcasts/sports/the-debrief-the-sneaker-of-the-year-2025/) - Businessoffashion
+- [The Best Tiny Desk Concerts of 2025](https://www.npr.org/2025/12/29/g-s1-103089/the-best-tiny-desk-concerts-of-2025) - NPR
+- [The Best Tiny Desk Concerts of 2025 - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2025-12-29/the-best-tiny-desk-concerts-of-2025) - Kansaspublicradio
+- [Tiny Desk Radio: Paramore, Thundercat, Chaka Khan - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-19/tiny-desk-radio-paramore-thundercat-chaka-khan) - Iowapublicradio
+- [Tiny Desk Radio: dodie, Steve Martin, Natalia Lafourcade - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-19/tiny-desk-radio-dodie-steve-martin-natalia-lafourcade) - Iowapublicradio
+- [Billy Idol Joins The Warning for “La Bamba” and “Twist and Shout” at Grammy Celebration of Latin Music: Watch](https://consequence.net/2025/12/billy-idol-the-warning-grammy-latin-music-celebration/) - Consequence.net
+- [Top 10 Highest Grossing Latin Tours of the Year - Billboard](https://www.billboard.com/lists/top-latin-tours-2025/) - Billboard
+- [Anamaria Sayre's Top 10 Albums of 2025 - NPR Illinois](https://www.nprillinois.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Nprillinois
+- [Anamaria Sayre's Top 10 Albums of 2025 - KGOU](https://www.kgou.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Kgou
+- [Anamaria Sayre's Top 10 Albums of 2025 - Northern Public Radio](https://www.northernpublicradio.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Northernpublicradio
+- [Anamaria Sayre's Top 10 Albums of 2025 - Iowa Public Radio](https://www.iowapublicradio.org/2025-12-11/anamaria-sayres-top-10-albums-of-2025) - Iowapublicradio
+- [Brigitte Bardot’s enduring echo in pop music](https://www.hurriyetdailynews.com/brigitte-bardots-enduring-echo-in-pop-music-217295) - Hurriyet Daily News
+- [A muse for musicians: 11 songs inspired by Brigitte Bardot - AP News](https://apnews.com/article/brigitte-bardot-dies-songs-playlist-5d04c3003eb5d2a5a16a6cf91b80c315) - Apnews
+- [Brigitte Bardot, Icon of French Cinema and Style, Has Died - The Business of Fashion](https://www.businessoffashion.com/news/luxury/brigitte-bardot-icon-of-french-cinema-and-style-has-died/) - Businessoffashion
+- [A muse for musicians: 11 songs inspired by Brigitte Bardot - ABC News](https://abcnews.go.com/Entertainment/wireStory/muse-musicians-11-songs-inspired-brigitte-bardot-128734522) - Go
