@@ -1,0 +1,43 @@
+# Sources for 2025-12-31 News Episode 
+- [Mariah Carey Celebrates ‘All I Want for Christmas Is You’ Extending Historic Hot 100 Record](http://www.rollingstone.com/music/music-news/mariah-carey-all-i-want-for-christmas-is-you-extends-record-1235491960/) - Rolling Stone
+- ['Last Christmas' by Wham! tops Billboard Global 200 for first time - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/18/last-christmas-wham-tops-billboard-global-200/87828718007/) - Usatoday
+- [Wham!’s ‘Last Christmas’ Hits No. 1 on Billboard Global 200 for First Time - Billboard](https://www.billboard.com/music/chart-beat/wham-last-christmas-global-200-number-one-1236137915/) - Billboard
+- [HUNTR/X's 'Golden' No. 1 on Global Charts for 19th Week - Billboard](https://www.billboard.com/music/chart-beat/huntr-x-golden-number-1-global-charts-19th-week-1236137981/) - Billboard
+- [ERL Taps K-pop Group Enhypen to Preview Rancher Collection in ‘Big Girls Don’t Cry’ Music Video](http://wwd.com/pop-culture/new-fashion-releases/erl-l-pop-enhypen-western-rancher-collection-1238434701/) - WWD
+- [ERL Taps K-pop Group Enhypen to Preview Rancher Collection in ‘Big Girls Don’t Cry’ Music Video - WWD](https://wwd.com/pop-culture/new-fashion-releases/erl-l-pop-enhypen-western-rancher-collection-1238434701/) - Wwd
+- [Beyoncé joins elite billionaire musicians – Forbes](https://punchng.com/beyonce-joins-elite-billionaire-musicians-forbes/) - The Punch
+- [Beyonce Hits Billionaire Status: Forbes Crowns Fifth Musician On Elite List - Check Her Net Worth](https://www.ndtvprofit.com/business/beyonce-hits-billionaire-status-forbes-crowns-fifth-musician-on-elite-list-check-her-net-worth) - Ndtvprofit.com
+- [Beyoncé Reaches Billionaire Status](https://extratv.com/2025/12/30/beyonce-reaches-billionaire-status/) - Extra
+- [Beyonce declared a billionaire by Forbes magazine - Oman Observer](https://www.omanobserver.om/article/1181925/features/filmstv/beyonce-declared-a-billionaire-by-forbes-magazine) - Omanobserver
+- [Beyonce achieves double milestones in 2025, becoming billionaire and third-highest paid musician globally - Mid-day](https://www.mid-day.com/amp/entertainment/hollywood-news/article/beyonce-becomes-a-billionaire-and-third-highest-paid-musician-in-the-world-23610025) - Mid-day
+- [Beyonce Declared Billionaire By Forbes Magazine - Channels Television](https://www.channelstv.com/2025/12/29/beyonce-declared-billionaire-by-forbes-magazine/amp/) - Channelstv
+- [Beyoncé Declared a Billionaire by Forbes Magazine - Central News South Africa](https://centralnews.co.za/beyonce-declared-a-billionaire-by-forbes-magazine/) - Centralnews
+- [Beyonce declared a billionaire by Forbes magazine - Barron News-Shield](https://www.news-shield.com/news/national/article_b9ef7801-837b-5b5d-8b8a-700323b8cb20.html) - News-shield
+- [Accidental brilliance or underhand machinations? How David Bowie’s legendary Glastonbury gig came to be](https://www.the-independent.com/arts-entertainment/books/features/david-bowie-glastonbury-inside-story-b2890098.html) - The-independent.com
+- [10 Famous Albums With Hidden Sounds Locked Into the Record](https://www.mentalfloss.com/entertainment/music/albums-hidden-sounds-locked-into-record) - Mental Floss
+- ['A great honour' touring with Jacky Cheung: Campus SuperStar alum Marcus Lee reflects on backup singer journey](https://cnalifestyle.channelnewsasia.com/entertainment/jacky-cheung-tour-singer-marcus-lee-campus-superstar-573066) - CNA
+- [“We’re always going to be responsible for making some of the most fun music that bassists and guitarists and drummers will ever want to play”: Dave Mustaine doesn’t know what he’ll do with himself after Megadeth call it quits](https://www.loudersound.com/news/dave-mustaine-doesnt-know-what-hell-do-after-megadeth-split-2025) - Louder
+- [DAVE MUSTAINE Says MEGADETH Won't Backtrack On Farewell Plans](https://metalinjection.net/news/dave-mustaine-says-megadeth-wont-backtrack-on-farewell-plans) - Metal Injection.net
+- [Dave Mustaine Says Megadeth Won’t Backtrack on Farewell Plans, Refuses to Crüe-It-Up](https://www.metalsucks.net/2025/12/30/dave-mustaine-says-megadeth-wont-backtrack-on-farewell-plans-refuses-to-crue-it-up/) - MetalSucks
+- [Megadeth Unleashes "Let There Be Shred!" Ahead of Self-Titled Final Album - That Eric Alper](https://www.thatericalper.com/2025/12/25/megadeth-unleashes-let-there-be-shred-ahead-of-self-titled-final-album/) - Thatericalper
+- [More artists cancel Kennedy Center performances after Trump renaming](https://www.pbs.org/newshour/arts/more-artists-cancel-kennedy-center-performances-after-trump-renaming) - PBS
+- [More artists cancel Kennedy Center performances after board vote on name change](https://www.cbsnews.com/news/more-artists-cancel-kennedy-center-shows-trump-name-change/) - CBS News
+- [The resistance is jazzy: Trump’s renaming of Kennedy Center continues to blow up in his face as musicians revolt](https://fortune.com/2025/12/30/trump-kennedy-center-more-jazz-musicians-cancel-shows/) - Fortune
+- [Kennedy Center’s New Year’s Eve Concert Scrapped as Artist Boycott Grows Over Trump Name-Change](https://www.mediaite.com/media/news/kennedy-centers-new-years-eve-concert-scrapped-as-artist-boycott-grows-over-trump-name-change/) - Mediaite
+- [Kennedy Center Forced to Cancel Major Concert Due to Trump](https://newrepublic.com/post/204800/donald-trump-kennedy-center-cancel-major-concert) - The New Republic
+- [More artists cancel Kennedy Center shows after Trump name change](https://www.bbc.com/news/articles/c0r4wwplnd1o) - BBC News
+- [I Can't Believe No One Wants to Perform at the Kennedy Center Now That Trump Is Destroying It](https://www.jezebel.com/i-cant-believe-no-one-wants-to-perform-at-the-kennedy-center-now-that-trump-is-destroying-it) - Jezebel
+- [Ric Grenell Throws Tantrum Over Canceled Kennedy Center Concert, Other Acts Quickly Cancel As Well To Spite Him](https://www.wonkette.com/p/ric-grenell-throws-tantrum-over-canceled) - Wonkette.com
+- [Artists Cite Trump's 'Ego' and 'Overt Racism' While Canceling Kennedy Center Performances](https://www.commondreams.org/news/trump-kennedy-center-cancelations) - Common Dreams
+- [Kennedy Center Loses New Year’s Eve Concerts Over Name Change](https://consequence.net/2025/12/kennedy-center-loses-new-years-eve-concerts-over-name-change/) - Consequence.net
+- [Arriva Phantom, il singolo di Geolier con 50 Cent](https://www.ansa.it/campania/notizie/2025/12/30/arriva-phantom-il-singolo-di-geolier-con-50-cent_8f6b7d6e-cb52-44b1-aa26-845c21f20faf.html) - ANSA.it
+- [Arriva Phantom, il singolo di Geolier con 50 Cent](https://www.ansa.it/sito/notizie/cultura/musica/2025/12/30/arriva-phantom-il-singolo-di-geolier-con-50-cent_ac17da93-df85-4266-85bf-0726a9c6f043.html) - ANSA.it
+- [Singer Paula DeAnda Goes All Out for Unforgettable 'TMZ After Dark' Tour](https://www.tmz.com/2025/12/30/paula-deanda-after-dark-tour/) - TMZ
+- [How 1987's The Joshua Tree had Irish diplomats scrambling for U2 tickets across the US](https://www.thejournal.ie/u2-tickets-joshua-tree-6896727-Dec2025/) - TheJournal.ie
+- [Chicago's NSFW Response When Jimi Hendrix Invited Them on Tour](https://freerepublic.com/focus/f-chat/4359501/posts) - Freerepublic.com
+- [“We knew we’d done something great, but we didn’t know we’d written a defining album for that era”: How 747 (Strangers In The Night) made Saxon unexpected stars of the New Wave Of British Heavy Metal](https://www.loudersound.com/features/saxon-the-story-behind-747-strangers-in-the-night) - Louder
+- [DISTURBED Threatens New Music](https://metalinjection.net/news/disturbed-threatens-new-music) - Metal Injection.net
+- [Disturbed Tease New Music After Some Time Off Because 2025 Needed More Bad News](https://www.metalsucks.net/2025/12/30/disturbed-tease-new-music-after-some-time-off-because-2025-needed-more-bad-news/) - MetalSucks
+- [Kanye West Calls Cap On Viral Bucket List](https://hiphopwired.com/2979246/kanye-west-bucket-list/) - Hip-Hop Wired
+- [Kanye West Pops Up at Deon Cole Show, Reveals New Album Is Coming - Billboard](https://www.billboard.com/music/rb-hip-hop/kanye-west-confirms-new-album-dean-cole-comedy-show-1236146294/) - Billboard
+- [Ye Says His Viral ‘Bucket List’ Is ‘Fake’: ‘Not My Handwriting’ - Billboard](https://www.billboard.com/music/rb-hip-hop/kanye-west-bucket-list-fake-not-my-handwriting-1236146861/) - Billboard
