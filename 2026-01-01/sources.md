@@ -1,0 +1,38 @@
+# Sources for 2026-01-01 News Episode 
+- [Did BTS announce March 2026 comeback? K-pop band teases ARMY with handwritten New Year gifts](https://economictimes.indiatimes.com/magazines/panache/did-bts-announce-march-2026-comeback-k-pop-band-teases-army-with-handwritten-new-year-gifts/articleshow/126264800.cms) - The Times of India
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [Music in 2026: Who's releasing new albums and will Oasis play Knebworth? - BBC](https://www.bbc.com/news/articles/cz68944djpqo) - Bbc
+- [2026 Release Calendar Of New K-Pop Albums And Singles - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/01/2026-release-calendar-of-upcoming-k-pop-albums-and-singles/) - Forbes
+- [175 figuras ligadas ao rock/metal que morreram em 2025](https://whiplash.net/materias/news_676/375486.html) - Whiplash.net
+- [Watch: Performances From 2025 MBC Music Festival](http://www.soompi.com/article/1808997wpp/watch-performances-from-2025-mbc-music-festival) - soompi
+- [The Best Concerts of 2025](https://variety.com/lists/best-concerts-2025-beyonce-lady-gaga/) - Variety
+- [10 best concerts of 2025, ranked - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/21/best-concerts-of-2025/87703769007/) - Usatoday
+- [Doechii Claps Back At “Industry Plant” Critics On New SZA Collab “Girl, Get Up”](http://hiphopdx.com/news/doechii-sza-girl-get-up-industry-plant/) - HipHopDX
+- [The ABBA song that’s huge in Vietnam at year’s end](https://www.salon.com/2025/12/31/abba-happy-new-year-lunar-vietnam/) - Salon
+- [“We partied every night! We would have a hotel room and just give the details out to friends and girls, ‘We’ll see you there!’” The story of the song that made Judas Priest icons in America](https://www.loudersound.com/features/judas-priest-the-story-behind-youve-got-another-thing-comin) - Louder
+- [Richard Smallwood, Grammy-nominated gospel superstar, dies at 77](https://www.bostonherald.com/2025/12/31/richard-smallwood-cause-of-death/) - Boston Herald
+- [Gospel singer Richard Smallwood dies at 77, leaving a legacy that inspired many in music](https://abcnews.go.com/US/wireStory/gospel-singer-richard-smallwood-dies-77-leaving-legacy-128810225) - ABC News
+- [Richard Smallwood, Grammy-nominated gospel singer, dead at 77](https://nypost.com/2025/12/31/us-news/richard-smallwood-grammy-nominated-gospel-singer-dead-at-77/) - New York Post
+- [Richard Smallwood, Grammy-nominated gospel singer, dies at 77 - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/30/richard-smallwood-dies-gospel-singer/87960193007/) - Usatoday
+- [Richard Smallwood, Grammy-Nominated Gospel Singer and Pianist, Dies at 77 - Variety](https://variety.com/2025/music/news/richard-smallwood-dead-grammy-nominated-gospel-singer-1236620364/) - Variety
+- [Richard Smallwood, 77, Choral Leader and Composer of Gospel Hits, Dies - The New York Times](https://www.nytimes.com/2025/12/31/arts/music/richard-smallwood-dead.html) - Nytimes
+- [Richard Smallwood, a soaring voice in gospel music, dies at 77 - The Washington Post](https://www.washingtonpost.com/obituaries/2025/12/30/richard-smallwood-dead-gospel/) - Washingtonpost
+- [Myles Kennedy looks back on the time he refused to audition for Slash and Velvet Revolver: “I knew that I wasn’t mentally prepared to jump into something of that magnitude”](https://www.loudersound.com/news/myles-kennedy-refused-velvet-revolver-audition-tinnitus-2025) - Louder
+- [Here's who's performing on New Year's Eve to ring in 2026](https://www.cbsnews.com/news/times-square-performers-new-years-eve-2026/) - CBS News
+- [Times Square New Year’s Eve Ball will drop twice in 2026 - 6sqft](https://www.6sqft.com/times-square-new-years-eve-ball-will-drop-twice-in-2026/) - 6sqft
+- ['Dick Clark's New Year’s Rockin’ Eve' 2026 time, channel, performers - USA Today](https://www.usatoday.com/story/entertainment/tv/2025/12/31/abc-new-years-rockin-eve-time-lineup/87944202007/) - Usatoday
+- [Video Preparing yourself to go confidently into 2026 - ABC News](https://abcnews.go.com/Nightline/video/preparing-confidently-2026-128830092) - Go
+- [Elliott Wilson’s Best Of Hip-Hop 2025](https://uproxx.com/music/best-hip-hop-2025-elliott-wilson/) - UPROXX
+- [RIP MTV: The 9 Music Videos that Defined the Network & Reshaped the Culture (& the 1 That Killed Feminism)](https://www.jezebel.com/rip-mtv-the-9-music-videos-that-defined-the-network-reshaped-the-culture-the-1-that-killed-feminism) - Jezebel
+- [MTV to pull the plug on multiple music channels this week - Syracuse.com](https://www.syracuse.com/entertainment/2025/12/mtv-to-pull-the-plug-on-multiple-music-channels-this-week.html) - Syracuse
+- [Pourquoi Hayley Williams était l’artiste à suivre en 2025](https://www.lesinrocks.com/musique/pourquoi-hayley-williams-etait-lartiste-a-suivre-en-2025-686851-31-12-2025/) - Les Inrocks
+- [Wybraliście największy hit sylwestra Polsatu. Zaskakujący zwycięzca!](https://muzyka.interia.pl/sylwestrowa-moc-przebojow/news-wybraliscie-najwiekszy-hit-sylwestrowej-mocy-przebojow-zaska,nId,22503882) - Interia.pl
+- [Trump Administration Furious As Artists Cancel NYE's Performance At Kennedy Centre Amidst Trump Renaming](https://www.ibtimes.com/trump-administration-furious-artists-cancel-nyes-performance-kennedy-centre-amidst-trump-renaming-3794109) - International Business Times
+- [More artists pull out of Kennedy Center shows following name change - CNN](https://www.cnn.com/2025/12/30/politics/kennedy-center-cancelations-trump-name) - Cnn
+- [Kennedy Center gets new signage bearing Trump’s name - CNN](https://www.cnn.com/2025/12/19/politics/kennedy-center-trump-sign) - Cnn
+- [Trump-Kennedy Center for the Performing Arts officially renamed, despite legal doubts - The Art Newspaper](https://www.theartnewspaper.com/2025/12/19/trump-kennedy-center-for-the-performing-arts-officially-renamed-despite-legal-doubts) - Theartnewspaper
+- [Kennedy Center Cancels New Years Eve Performances Amid Trump Name Change - Newsweek](https://www.newsweek.com/kennedy-center-cancels-new-years-eve-performances-amid-trump-name-change-11282393) - Newsweek
+- [Kennedy Center renaming prompts a new round of cancellations - Maine Public](https://www.mainepublic.org/npr-news/2025-12-31/kennedy-center-renaming-prompts-a-new-round-of-cancellations) - Mainepublic
+- [Kennedy Center renaming prompts a new round of cancellations - KUAC](https://fm.kuac.org/npr-news/2025-12-30/kennedy-center-renaming-prompts-a-new-round-of-cancellations) - Kuac
+- [Artist to Pull Kennedy Center Show Over Trump Rename - The Daily Beast](https://www.thedailybeast.com/artist-to-pull-kennedy-center-show-over-trump-rename/) - Thedailybeast
+- [Artist to Pull Kennedy Center Show Over Trump Rename - Yahoo](https://www.yahoo.com/news/articles/artist-pull-kennedy-center-show-161555516.html) - Yahoo
