@@ -1,0 +1,38 @@
+# Sources for 2026-01-02 News Episode 
+- [Label confirms BTS comeback in March with album, world tour](https://www.philstar.com/entertainment/korean-wave/2026/01/01/2498122/label-confirms-bts-comeback-march-album-world-tour) - Philippine Star
+- [BTS Is Back in 2026 With New Music](http://www.rollingstone.com/music/music-news/bts-announces-new-album-in-march-followed-by-world-tour-1235493202/) - Rolling Stone
+- [BTS to Return in March With First Album in Nearly Four Years - au.variety.com](https://au.variety.com/2026/music/news/bts-new-album-coming-march-31531/) - Variety
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Announces New Album For March 2026 Release Following Hiatus For Mandatory Military Service - mxdwn Music](https://music.mxdwn.com/2026/01/01/news/bts-announces-new-album-for-march-2026-release-following-hiatus-for-mandatory-military-service/) - Mxdwn
+- [Music in 2026: Who's releasing new albums and will Oasis play Knebworth? - BBC](https://www.bbc.com/news/articles/cz68944djpqo) - Bbc
+- [2026 Release Calendar Of New K-Pop Albums And Singles - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/01/2026-release-calendar-of-upcoming-k-pop-albums-and-singles/) - Forbes
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://www.wxii12.com/article/bad-bunny-could-make-history-at-the-2026-grammys/69897712) - WXII12 Winston-Salem
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://www.wesh.com/article/bad-bunny-could-make-history-at-the-2026-grammys/69897712) - WESH Orlando
+- [Bad Bunny at the 2026 Grammys: A cultural shift in the making?](https://apnews.com/article/bad-bunny-2026-grammys-bc54a3352951b13ff2f0c8907c8deb16) - Associated Press
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://www.wbaltv.com/article/bad-bunny-could-make-history-at-the-2026-grammys/69897712) - WBAL TV Baltimore
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://abcnews.go.com/Entertainment/wireStory/bad-bunny-make-history-2026-grammys-latino-culture-128831184) - ABC News
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://www.wisn.com/article/bad-bunny-could-make-history-at-the-2026-grammys/69897712) - WISN Milwaukee
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://www.news4jax.com/entertainment/2026/01/01/bad-bunny-could-make-history-at-the-2026-grammys-for-latino-culture-he-already-has/) - WJXT News4JAX
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has](https://www.local10.com//entertainment/2026/01/01/bad-bunny-could-make-history-at-the-2026-grammys-for-latino-culture-he-already-has/) - WPLG Local 10
+- [Radiohead, Pulp, Alice Cooper, Johnny Cash and Lana Del Rey: the surprising list of artist who made James Bond themes only to have them rejected](https://www.loudersound.com/bands-artists/stars-whove-made-bond-themes-only-to-have-them-rejected-featuring-radiohead-pulp-alice-cooper-johnny-cash-lana-del-rey-and-more) - Louder
+- [Juan Duque Is Building Colombia’s Next Global Pop Moment](https://uproxx.com/music/juan-duque-is-building-colombias-next-global-pop-moment/) - UPROXX
+- [Yungblud Announces Smashing Pumpkins 'Zombie' Collaboration](http://www.billboard.com/music/rock/yungblud-smashing-pumpkins-zombie-collaboration-1236148115/) - Billboard
+- [Stream It Or Skip It: ‘Lady Gaga In Harlequin Live: One Night Only’ On YouTube, A Surprise Concert Film That’s More Like A Cool Cabaret Performance](https://decider.com/2026/01/01/lady-gaga-in-harlequin-live-one-night-only-youtube-review/) - Decider
+- [Lady Gaga’s ‘Harlequin Live: One Night Only’ Special Will Be Available to Stream Very Soon - Billboard](https://www.billboard.com/culture/tv-film/lady-gaga-harlequin-live-one-night-only-stream-how-to-watch-1236144610/) - Billboard
+- [Lady Gaga Discusses 'Harlequin Live' Film, Being Released Christmas Eve - Variety](https://variety.com/2025/music/news/lady-gaga-harlequin-live-film-christmas-eve-grammy-museum-1236612793/) - Variety
+- [Mariah Carey Brings Heat for New Year’s Eve With Stellar ‘Rockin” Performance](http://www.rollingstone.com/music/music-news/mariah-carey-new-years-eve-rockin-performance-obsessed-song-1235491736/) - Rolling Stone
+- [‘KPop Demon Hunters’ Singers Deliver ‘Golden’ Performance at ‘New Year’s Rockin’ Eve’ - Rolling Stone](https://www.rollingstone.com/music/music-news/kpop-demon-hunters-huntrx-perform-golden-new-years-eve-1235492310/) - Rollingstone
+- [‘My Way’: The Unlikely Story Behind The Frank Sinatra Classic](https://freerepublic.com/focus/f-chat/4359822/posts) - Freerepublic.com
+- [MIKE PORTNOY Talks Working On A New DREAM THEATER Album In 2026](https://metalinjection.net/news/mike-portnoy-talks-working-on-a-new-dream-theater-album-in-2026) - Metal Injection.net
+- ["Really, the whole scene was very Spinal Tap. It was almost beyond parody": The true story of Hear 'n Aid, the heavy metal Band Aid](https://www.loudersound.com/bands-artists/interviews/hear-n-aid-heavy-metal-band-aid) - Louder
+- [Watch Phish Ring In the New Year by Playing Prince’s ‘Cream’ for the First Time](http://www.rollingstone.com/music/music-news/phish-new-year-prince-cream-cover-1235493144/) - Rolling Stone
+- [Watch Phish Ring In the New Year by Playing Prince’s ‘Cream’ for the First Time - Rolling Stone](https://www.rollingstone.com/music/music-news/phish-new-year-prince-cream-cover-1235493144/) - Rollingstone
+- [Robyn Unveils New Songs During New Year’s Eve Performances](http://www.rollingstone.com/music/music-news/robyn-new-song-debuts-1235493178/) - Rolling Stone
+- ["I said, 'I think we should write the best song in the world.' Jack Black said, ‘You can’t do that!'" How Dave Grohl, Ben Stiller, Bob Odenkirk and Maynard James Keenan helped Tenacious D bring the greatest tribute song ever to the world](https://www.loudersound.com/bands-artists/tenacious-d-the-story-of-tribute-and-meaning) - Louder
+- [Gasper Lawal – Ajomasé (1980, Remastered 2025)](https://exystence.net/blog/2026/01/01/gasper-lawal-ajomase-1980-remastered-2025/) - Exystence.net
+- [Richard Smallwood, Legendary Gospel Singer, Dies at 77](https://www.breitbart.com/entertainment/2026/01/01/richard-smallwood-legendary-gospel-singer-dies-at-77/) - Breitbart News
+- [Richard Smallwood, Grammy-nominated gospel singer, dies at 77 - USA Today](https://www.usatoday.com/story/entertainment/music/2025/12/30/richard-smallwood-dies-gospel-singer/87960193007/) - Usatoday
+- [Gospel singer Richard Smallwood dies at 77, leaving a legacy that inspired many in music - ABC News](https://abcnews.go.com/US/wireStory/gospel-singer-richard-smallwood-dies-77-leaving-legacy-128810225) - Go
+- [Richard Smallwood, 77, Choral Leader and Composer of Gospel Hits, Dies - The New York Times](https://www.nytimes.com/2025/12/31/arts/music/richard-smallwood-dead.html) - Nytimes
+- [Richard Smallwood, Grammy-Nominated Gospel Singer and Pianist, Dies at 77 - Variety](https://variety.com/2025/music/news/richard-smallwood-dead-grammy-nominated-gospel-singer-1236620364/) - Variety
+- [Richard Smallwood, a soaring voice in gospel music, dies at 77 - The Washington Post](https://www.washingtonpost.com/obituaries/2025/12/30/richard-smallwood-dead-gospel/) - Washingtonpost
