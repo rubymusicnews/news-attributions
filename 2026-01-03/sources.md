@@ -1,0 +1,35 @@
+# Sources for 2026-01-03 News Episode 
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus](https://abcnews.go.com/Entertainment/wireStory/bts-announces-march-comeback-date-putting-end-year-128853592) - ABC News
+- [After nearly four years, BTS announces their return to the stage](https://www.the-independent.com/arts-entertainment/bts-kpop-music-hiatus-return-stage-b2893753.html) - The-independent.com
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus](https://www.bostonherald.com/2026/01/02/bts-comeback-date/) - Boston Herald
+- [BTS announces March comeback date with first album in four years](https://www.the-independent.com/arts-entertainment/music/news/bts-march-comeback-new-album-release-date-tour-b2893439.html) - The-independent.com
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus](https://japantoday.com/category/entertainment/bts-announces-march-comeback-date-putting-an-end-to-a-nearly-four-year-hiatus) - Japan Today
+- [Bad Bunny’s ‘Debí Tirar Más Fotos’ could make Grammy history](https://www.bostonherald.com/2026/01/02/bad-bunny-debi-tirar-mas-fotos-grammy-history/) - Boston Herald
+- [Bad Bunny could make history at the 2026 Grammys. For Latino culture, he already has - Bozeman Daily Chronicle](https://www.bozemandailychronicle.com/ap_news/entertainment/bad-bunny-could-make-history-at-the-2026-grammys-for-latino-culture-he-already-has/article_996a5d61-9fc7-5eb3-9c48-086487ec401f.html) - Bozemandailychronicle
+- [Türkiye to host world-renowned musicians in 2026](https://www.hurriyetdailynews.com/turkiye-to-host-world-renowned-musicians-in-2026-217410) - Hurriyet Daily News
+- [Led by Mariah Carey, holiday songs dominate the charts for one last week](https://www.npr.org/2026/01/02/nx-s1-5664857/holiday-songs-billboard-charts-2026) - NPR
+- [Mariah Carey & Wham! Holiday Songs Hit No. 1 on Global Charts - Billboard](https://www.billboard.com/music/chart-beat/mariah-carey-wham-holiday-songs-number-1-global-charts-1236144560/) - Billboard
+- [Christmas music driving you nuts? Why holiday playlists are everywhere - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2025-12-24/christmas-music-driving-you-nuts-why-holiday-playlists-are-everywhere) - Latimes
+- [Which Christmas Songs Are Evergreens? - Billboard](https://www.billboard.com/pro/christmas-songs-older-holiday-hits-rule-charts/) - Billboard
+- [Black Sabbath’s Geezer Butler Using AI Singer to Present New Solo Songs to Real-Life Vocalists](https://consequence.net/2026/01/black-sabbath-geezer-butler-ai-singer/) - Consequence.net
+- [AI Is Testing What Society Wants From Music - The Atlantic](https://www.theatlantic.com/culture/2025/12/ai-music-suno-warner-bros/685331/) - Theatlantic
+- [Tyla’s 'Chanel' breaks Miriam Makeba’s 'Pata Pata' Billboard record](https://www.capetownetc.com/entertainment/tylas-chanel-breaks-miriam-makebas-pata-pata-billboard-record/) - CapeTown ETC
+- [“Una canzone nata d’inverno per far ballare d’estate”: “A me mi piace” di Alfa (feat. Manu Chao) batte Lady Gaga ed è la canzone più ascoltata nelle radio del 2025](https://www.ilfattoquotidiano.it/2026/01/03/una-canzone-nata-dinverno-per-far-ballare-destate-a-me-mi-piace-di-alfa-feat-manu-chao-batte-lady-gaga-ed-e-la-canzone-piu-ascoltata-nelle-radio-del-2025/8243794/) - Ilfattoquotidiano.it
+- ["It felt nice to infiltrate things our way. We haven't gone begging to any ****er ever. People have always come round to our way of thinking." How Simon Cowell and a Christmas Number One helped turn a Scottish rock trio into household names](https://www.loudersound.com/bands-artists/biffy-clyro-story-of-many-of-horror) - Louder
+- [Jill Scott Announces New Album ‘To Whom This May Concern,’ Her First in Over a Decade](https://variety.com/2026/music/news/jill-scott-announces-new-album-to-whom-this-may-concern-1236622245/) - Variety
+- [Jill Scott Announces First Album in 11 Years](https://pitchfork.com/news/jill-scott-to-whom-this-may-concern-first-album-in-11-years/) - Pitchfork
+- [Tierra Whack and J.I.D. feature on Jill Scott's first studio album in a decade](https://www.thelineofbestfit.com/news/tierra-whack-jid-feature-jill-scott-to-whom-this-may-concern) - Thelineofbestfit.com
+- [Sudan Archives](https://www.npr.org/2026/01/02/nx-s1-5661698/sudan-archives) - NPR
+- [Drake Accused of Manipulating Streaming Play Counts With Bots in New Lawsuit](https://gizmodo.com/drake-accused-of-manipulating-streaming-play-counts-with-bots-in-new-lawsuit-2000705004) - Gizmodo.com
+- [Drake accused of using an online gambling platform to inflate play counts of his music](https://www.nbcnews.com/news/us-news/drake-accused-using-online-gambling-platform-inflate-play-counts-music-rcna251915) - NBC News
+- [Drake Accused of RICO Gambling and Stream-Boosting Scheme in New Lawsuit](https://pitchfork.com/news/drake-accused-of-rico-gambling-and-stream-boosting-scheme-in-new-lawsuit/) - Pitchfork
+- [Drake Faces RICO Lawsuit over Allegedly Fraudulent Gambling Scheme](https://consequence.net/2026/01/drake-faces-rico-lawsuit-over-allegedly-fraudulent-gambling-scheme/) - Consequence.net
+- [REPORT: Drake, Adin Ross Allegedly Scammed Fans In Racketeering Conspiracy](https://dailycaller.com/2026/01/02/lawsuit-drake-adin-ross-scammed-fans-racketeering-conspiracy-rico-music-catalog-gambling/) - The Daily Caller
+- [Drake gambling lawsuit: Rapper hit with RICO charge for Stake promo](https://www.usatoday.com/story/entertainment/celebrities/2026/01/02/drake-adin-ross-gambling-lawsuit-rico-stake/87991186007/) - USA Today
+- [PJ Harvey Confirms She’s Working on New Album](https://consequence.net/2026/01/pj-harvey-new-album-tease/) - Consequence.net
+- [PJ Harvey Is Teasing a New Album](https://exclaim.ca/music/article/pj-harvey-is-teasing-a-new-album) - Exclaim!
+- [PJ Harvey shares playlist, reveals that she’s working on new music](https://www.thelineofbestfit.com/news/pj-harvey-shares-playlist-reveals-that-shes-working-on-new-music) - Thelineofbestfit.com
+- [Iron Maiden, Metallica, Rush, Bon Jovi and more: 26 things we're looking forward to in 2026](https://www.loudersound.com/bands-artists/26-things-to-look-forward-to-in-2026) - Louder
+- [“I spent four days arguing about what could be done with an orchestra.” The story of a Smashing Pumpkins classic, aided by The Who, the cast of Titanic and SpongeBob SquarePants](https://www.loudersound.com/bands-artists/the-story-of-smashing-pumpkins-tonight-tonight) - Louder
+- [Yungblud Teams With Smashing Pumpkins on New Version of 'Zombie'](https://loudwire.com/yungblud-smashing-pumpkins-new-version-zombie/) - Loudwire
+- [Yungblud Announces Darker ‘Zombie’ Collaboration With Smashing Pumpkins: Here’s When It Arrives - Billboard Canada](https://ca.billboard.com/music/rock/yungblud-smashing-pumpkins-zombie-collaboration-1236148115/) - Billboard
