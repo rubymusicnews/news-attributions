@@ -1,0 +1,39 @@
+# Sources for 2026-01-04 News Episode 
+- [K-Pop band BTS set to make comeback in March](https://www.dw.com/en/k-pop-band-bts-set-to-make-comeback-in-march/a-75372972) - DW (English)
+- [BTS to Return in March With First Album in Nearly Four Years - au.variety.com](https://au.variety.com/2026/music/news/bts-new-album-coming-march-31531/) - Variety
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Announces New Album For March 2026 Release Following Hiatus For Mandatory Military Service - mxdwn Music](https://music.mxdwn.com/2026/01/01/news/bts-announces-new-album-for-march-2026-release-following-hiatus-for-mandatory-military-service/) - Mxdwn
+- [Music in 2026: Who's releasing new albums and will Oasis play Knebworth? - BBC](https://www.bbc.com/news/articles/cz68944djpqo) - Bbc
+- [2026 Release Calendar Of New K-Pop Albums And Singles - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/01/2026-release-calendar-of-upcoming-k-pop-albums-and-singles/) - Forbes
+- [I Released My Album to Compete With Burna Boy And Wizkid - Bebe Cool](https://www.howwe.ug/news/entertainment/42220/i-released-my-album-to-compete-with-burna-boy-and-wizkid-bebe-cool) - Howwe.ug
+- [GEEZER BUTLER Says A.I. Is Helping Him Finish New Solo Music](https://metalinjection.net/news/geezer-butler-says-a-i-is-helping-him-finish-new-solo-music) - Metal Injection.net
+- [Geezer Butler Says Using A.I. Singer Helps Him with Songwriting](https://www.metalsucks.net/2026/01/03/geezer-butler-says-using-a-i-singer-helps-him-with-songwriting/) - MetalSucks
+- [AI Is Testing What Society Wants From Music - The Atlantic](https://www.theatlantic.com/culture/2025/12/ai-music-suno-warner-bros/685331/) - Theatlantic
+- [Drake faces U.S. lawsuit over ties to online gambling firm, scheme to inflate streams](https://www.cbc.ca/news/entertainment/drake-class-action-lawsuit-illegal-gambling-company-9.7032546) - CBC News
+- [Drake & Adin Ross Smacked With RICO Lawsuit Alleging Gambling & Music Stream Boosting Schemes](https://hiphopwired.com/2984576/drake-adin-ross-rico-lawsuit-stake-bots-details-reactions/) - Hip-Hop Wired
+- [Drake Accused of Manipulating Streaming Play Counts With Bots in New Lawsuit - Gizmodo](https://gizmodo.com/drake-accused-of-manipulating-streaming-play-counts-with-bots-in-new-lawsuit-2000705004) - Gizmodo
+- [Drake, Adin Ross Used Online Casino Money for Artificial Streams, Lawsuit Claims - Rolling Stone](https://www.rollingstone.com/music/music-news/drake-adin-ross-online-casino-stake-lawsuit-1235493062/) - Rollingstone
+- [Drake hit with RICO lawsuit over alleged gambling scheme with Stake - USA Today](https://www.usatoday.com/story/entertainment/celebrities/2026/01/02/drake-adin-ross-gambling-lawsuit-rico-stake/87991186007/) - Usatoday
+- [Good Charlotte – Motel Du Cap (2025)](https://exystence.net/blog/2026/01/03/good-charlotte-motel-du-cap-2025/) - Exystence.net
+- [Il “quinto Beatle”](https://www.ilpost.it/2026/01/03/george-martin-100-anni/) - Ilpost.it
+- [Spotify ruined music forever, but I can't stop using it](https://www.howtogeek.com/spotify-ruined-music-forever-but-i-cant-stop-using-it/) - How-To Geek
+- [5 Uncomfortable Truths About Using Spotify - bgr.com](https://www.bgr.com/2063706/uncomfortable-truths-spotify-privacy-payment-ai/) - Bgr
+- [Billy Joel surprises fans with first live performance since brain disorder diagnosis](https://nypost.com/2026/01/03/entertainment/billy-joels-first-live-performance-since-brain-disorder-diagnosis/) - New York Post
+- [Billy Joel Performs Publicly for First Time Since Brain Disorder Diagnosis - Variety](https://au.variety.com/2026/music/news/billy-joel-performs-tribute-band-first-time-since-diagnosis-31567/) - Variety
+- [Billy Joel Performs Publicly for First Time Since Canceling Touring - Variety](https://variety.com/2026/music/news/billy-joel-performs-tribute-band-first-time-since-diagnosis-1236622912/) - Variety
+- [Billy Joel Performs for First Time Since Brain Disorder Diagnosis - Yahoo](https://www.yahoo.com/entertainment/music/articles/billy-joel-performs-first-time-144409296.html) - Yahoo
+- [Billy Joel Performs for First Time Since Brain Disorder Diagnosis - Rolling Stone](https://www.rollingstone.com/music/music-news/billy-joel-performs-first-time-brain-disorder-diagnosis-1235493768/) - Rollingstone
+- [Billy Joel describes symptom of brain condition as "like being on a boat" - AOL.com](https://www.aol.com/billy-joel-describes-symptom-brain-150700450.html) - Aol
+- [“With strange chords and enigmatic lyrics, it fed the metal mainstream with some of its most prog-friendly material in years”: In the desperate moments before grunge, this British band offered an ambitious alternative direction](https://www.loudersound.com/music/albums/the-beyond-crawl) - Louder
+- [EXCLUSIVE: World's Most Bitter Rock Feud Explodes As One of the Planet's Most Outrageous Rockers Lashes Out at 'Callous' Bandmates](https://radaronline.com/p/sex-pistols-feud-john-lydon-attacks-bandmates-reunion/) - Radaronline.com
+- [‘Stranger Things’ and Prince: The Complicated Road to Bringing ‘When Doves Cry’ and ‘Purple Rain’ to the Show’s Finale](https://variety.com/2026/film/news/stranger-things-finale-prince-when-doves-cry-purple-rain-1236622700/) - Variety
+- [How ‘Stranger Things’ got the rights to two Prince songs for epic series finale - New York Post](https://nypost.com/2026/01/01/entertainment/how-stranger-things-got-rights-to-prince-songs-for-series-finale/) - Nypost
+- [The ‘Stranger Things’ Finale Turned Everyone Back Onto Prince - Gizmodo](https://gizmodo.com/the-stranger-things-finale-turned-everyone-back-onto-prince-2000705068) - Gizmodo
+- [How a famous 1984 album plays a key role in ‘Stranger Things’ finale - Syracuse.com](https://www.syracuse.com/entertainment/2026/01/how-a-famous-1984-album-plays-a-key-role-in-stranger-things-finale.html) - Syracuse
+- [Prince Spotify Streams More Than Double in ‘Stranger Things’ Series Finale Surge - Variety](https://au.variety.com/2026/music/news/prince-spotify-streams-double-stranger-things-finale-31561/) - Variety
+- [Mika: ‘Scrutiny over my sexuality was kind of brutal’](https://www.the-independent.com/arts-entertainment/music/features/mika-interview-new-album-tour-partner-b2889551.html) - The-independent.com
+- [Josh Ritter Deconstructs the Idea of the Muse on ‘I Believe in You, My Honeydew’](http://www.rollingstone.com/music/music-features/josh-ritter-honeydew-album-1235493828/) - Rolling Stone
+- [Music: 84 gigs to catch, including The Cure, CMAT – and one with €690 tickets](https://www.irishtimes.com/culture/music/2026/01/03/2026-in-music-79-gigs-to-catch-including-the-cure-cmat-and-one-act-with-690-tickets/) - The Irish Times
+- [Jill Scott Announces New Album 'To Whom This May Concern' \| First in 10 Years](https://screenrant.com/jill-scott-announces-new-album-to-whom-this-may-concern/) - Screen Rant
+- [Jill Scott Announces First Album in 11 Years - Pitchfork](https://pitchfork.com/news/jill-scott-to-whom-this-may-concern-first-album-in-11-years/) - Pitchfork
+- [Jill Scott Announces New Album ‘To Whom This May Concern,’ Her First in Over a Decade - Variety](https://variety.com/2026/music/news/jill-scott-announces-new-album-to-whom-this-may-concern-1236622245/) - Variety
