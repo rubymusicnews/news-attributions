@@ -1,0 +1,39 @@
+# Sources for 2026-01-05 News Episode 
+- [BTS announces March comeback date, putting an end to hiatus](https://www.wxii12.com/article/bts-announces-march-comeback-date/69910270) - WXII12 Winston-Salem
+- [BTS announces March comeback date, putting an end to hiatus](https://www.wisn.com/article/bts-announces-march-comeback-date/69910270) - WISN Milwaukee
+- [BTS to Return in March With First Album in Nearly Four Years - au.variety.com](https://au.variety.com/2026/music/news/bts-new-album-coming-march-31531/) - Variety
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Announces New Album For March 2026 Release Following Hiatus For Mandatory Military Service - mxdwn Music](https://music.mxdwn.com/2026/01/01/news/bts-announces-new-album-for-march-2026-release-following-hiatus-for-mandatory-military-service/) - Mxdwn
+- [Music in 2026: Who's releasing new albums and will Oasis play Knebworth? - BBC](https://www.bbc.com/news/articles/cz68944djpqo) - Bbc
+- [2026 Release Calendar Of New K-Pop Albums And Singles - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/01/2026-release-calendar-of-upcoming-k-pop-albums-and-singles/) - Forbes
+- [BTS Confirms long-awaited return](https://www.salon.com/2026/01/04/bts-confirms-long-awaited-return/) - Salon
+- [K-Pop in 2025: What ‘KPop Demon Hunters’ and NewJeans Tell Us About the Genre - The New York Times](https://www.nytimes.com/2025/12/25/arts/music/k-pop-newjeans-katseye-kpop-demon-hunters.html) - Nytimes
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - AP News](https://apnews.com/article/bts-comeback-deabc3c4a7e98de2a5368e1cbf06f0af) - Apnews
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - ABC News](https://abcnews.go.com/Entertainment/wireStory/bts-announces-march-comeback-date-putting-end-year-128853592) - Go
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - Greenwich Time](https://www.greenwichtime.com/entertainment/article/bts-announces-march-comeback-date-putting-an-end-21273303.php) - Greenwichtime
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- [JAKE E. LEE Recalls Accidentally Admitting Writing On OZZY OSBOURNE's Bark At The Moon Despite Contract](https://metalinjection.net/news/jake-e-lee-recalls-accidentally-admitting-writing-on-ozzy-osbournes-bark-at-the-moon-despite-contract) - Metal Injection.net
+- [“If you lived in LA, in the trenches, you could relate to it. And knowing Axl, I could relate to exactly where it was coming from”: The electrifying early Guns N’ Roses song written in a basement that signposted how huge they would become](https://www.loudersound.com/bands-artists/guns-n-roses-welcome-to-the-jungle-story-behind-the-song) - Louder
+- [“We identified with bands like Metallica because they came in with this punk rock energy. But back then the biggest songs were Love In An Elevator and Still Of The Night”: The unexpected rap metal hit that saved a band’s career and ushered in the 1990s](https://www.loudersound.com/bands-artists/we-identified-with-bands-like-metallica-because-they-came-in-with-this-punk-rock-energy-but-back-then-the-biggest-songs-were-love-in-an-elevator-and-still-of-the-night-the-unexpected-rap-metal-hit-that-saved-a-bands-career-and-ushered-in-the-1990s) - Louder
+- [2025: The Music Playlist ⭐](https://www.thurrott.com/?p=331311) - Thurrott.com
+- [5 Uncomfortable Truths About Using Spotify - bgr.com](https://www.bgr.com/2063706/uncomfortable-truths-spotify-privacy-payment-ai/) - Bgr
+- [Billy Joel makes surprise return to stage after brain disorder diagnosis](https://7news.com.au/news/billy-joel-makes-surprise-return-to-stage-after-brain-disorder-diagnosis-c-21204270) - 7NEWS.com.au
+- [Billy Joel surprises fans with first live performance since brain disorder diagnosis - New York Post](https://nypost.com/2026/01/03/entertainment/billy-joels-first-live-performance-since-brain-disorder-diagnosis/) - Nypost
+- [Billy Joel Performs for First Time Since Brain Disorder Diagnosis - Rolling Stone](https://www.rollingstone.com/music/music-news/billy-joel-performs-first-time-brain-disorder-diagnosis-1235493768/) - Rollingstone
+- [Billy Joel Performs for First Time Since Brain Disorder Diagnosis - Yahoo](https://www.yahoo.com/entertainment/music/articles/billy-joel-performs-first-time-144409296.html) - Yahoo
+- [Billy Joel describes symptom of brain condition as "like being on a boat" - AOL.com](https://www.aol.com/billy-joel-describes-symptom-brain-150700450.html) - Aol
+- [Billy Joel Performs Publicly for First Time Since Brain Disorder Diagnosis - Variety](https://au.variety.com/2026/music/news/billy-joel-performs-tribute-band-first-time-since-diagnosis-31567/) - Variety
+- [The Perfect Symphony for Indians: Travel, music festivals & concerts](https://economictimes.indiatimes.com/industry/media/entertainment/the-perfect-symphony-for-indians-travel-music-festivals-concerts/articleshow/126326796.cms) - The Times of India
+- [The Live Tourism Events That Will Shape 2026 - Skift](https://skift.com/2026/01/01/live-tourism-events-shape-2026/) - Skift
+- [Seven live music experiences worth travelling for in 2026 - BBC](https://www.bbc.com/travel/article/20251223-seven-global-live-music-experiences-for-2026) - Bbc
+- [Solo trips, national parks, and more 2026 travel predictions: People want to 'unplug and really immerse in culture,' expert says - CNBC](https://www.cnbc.com/2025/12/31/solo-trips-national-parks-and-more-2026-travel-predictions.html) - Cnbc
+- [SCOTT "WINO" WEINRICH Explains Why He Never Got Into MOTÖRHEAD Past No Sleep 'Til Hammersmith](https://metalinjection.net/news/scott-wino-weinrich-explains-why-he-never-got-into-motorhead-past-no-sleep-til-hammersmith) - Metal Injection.net
+- [‘Two more shows and this is it’ – Ronan Keating says Boyzone tour now would be ‘incredibly unhealthy’](https://www.independent.ie/irish-news/two-more-shows-and-this-is-it-ronan-keating-says-boyzone-tour-now-would-be-incredibly-unhealthy/a1476056081.html) - Independent.ie
+- [Keating: Boyzone tour would be 'incredibly unhealthy'](https://www.rte.ie/entertainment/2026/0104/1551418-keating-boyzone-tour-would-be-incredibly-unhealthy/) - RTE
+- [Ronan Keating on his New Year's Eve show, resolutions, and Boyzone reunion - BBC](https://www.bbc.com/news/articles/c0r9d14v5y7o) - Bbc
+- [Amanda Petrusich on Katy Grannan’s Photograph of Taylor Swift](https://www.newyorker.com/magazine/takes/amanda-petrusich-on-katy-grannans-photograph-of-taylor-swift) - The New Yorker
+- [Former Kiss Guitarist Vinnie Vincent Defends High Price for New Single](https://www.metalsucks.net/2026/01/04/former-kiss-guitarist-vinnie-vincent-defends-high-price-for-new-single/) - MetalSucks
+- [Former Kiss star Vinnie Vincent defends $225 price tag on new CD single - Louder](https://www.loudersound.com/bands-artists/vinnie-vincent-defends-price-ride-the-serpent) - Loudersound
+- [“An immersive emotional ride, showing that music makes us feel whole again”: Airbag’s Dysphoria Live](https://www.loudersound.com/music/albums/airbag-dysphoria-live) - Louder
+- [Con Gustavo Casenave: “El 90 por ciento de la música que toco en mis conciertos es improvisada”](https://www.elpais.com.uy/cultural/con-gustavo-casenave-el-90-por-ciento-de-la-musica-que-toco-en-mis-conciertos-es-improvisada) - Diario EL PAIS Uruguay
