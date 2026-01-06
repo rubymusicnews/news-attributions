@@ -1,0 +1,41 @@
+# Sources for 2026-01-06 News Episode 
+- [Quem é o KATSEYE? Conheça o girlgroup global que está bombando e vem ao Lolla BR 2026](https://www.papelpop.com/2026/01/quem-e-o-katseye-conheca-o-girlgroup-global-que-esta-bombando-e-vem-ao-lolla-br-2026/) - Papelpop.com
+- [The BTS Comeback Is Finally Happening As The Group Announces An Album And Teases A Tour](https://uproxx.com/music/bts-album-2026-tour-announce/) - UPROXX
+- [BTS return with first album in five years, world tour](https://www.rte.ie/entertainment/2026/0105/1551493-bts-return-with-first-album-in-five-years-world-tour/) - RTE
+- [BTS to Return in March With First Album in Nearly Four Years - au.variety.com](https://au.variety.com/2026/music/news/bts-new-album-coming-march-31531/) - Variety
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Announces New Album For March 2026 Release Following Hiatus For Mandatory Military Service - mxdwn Music](https://music.mxdwn.com/2026/01/01/news/bts-announces-new-album-for-march-2026-release-following-hiatus-for-mandatory-military-service/) - Mxdwn
+- [Music in 2026: Who's releasing new albums and will Oasis play Knebworth? - BBC](https://www.bbc.com/news/articles/cz68944djpqo) - Bbc
+- [2026 Release Calendar Of New K-Pop Albums And Singles - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/01/2026-release-calendar-of-upcoming-k-pop-albums-and-singles/) - Forbes
+- [Large-scale music events can cause subclinical hearing damage](https://www.nature.com/articles/s41598-025-30382-x) - Nature.com
+- [BTS 2026](https://www.laineygossip.com/2026-is-bts-year-as-band-announces-new-album-and-tour/) - LaineyGossip
+- [BTS Unveil Release Date for New Album, Tease 2026 Tour - Pitchfork](https://pitchfork.com/news/bts-unveil-release-date-for-new-album-tease-2026-tour/) - Pitchfork
+- [BTS to release new album, go on tour after mandatory military service - USA Today](https://www.usatoday.com/story/entertainment/music/2026/01/05/bts-new-album-world-tour-2026/88032438007/) - Usatoday
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - ABC News](https://abcnews.go.com/Entertainment/wireStory/bts-announces-march-comeback-date-putting-end-year-128853592) - Go
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - AP News](https://apnews.com/article/bts-comeback-deabc3c4a7e98de2a5368e1cbf06f0af) - Apnews
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - Greenwich Time](https://www.greenwichtime.com/entertainment/article/bts-announces-march-comeback-date-putting-an-end-21273303.php) - Greenwichtime
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- ["A powerful tribute to the unbreakable connection between music, tradition and the human spirit." Depeche Mode’s acclaimed concert film M to premiere on Netflix this week](https://www.loudersound.com/culture/films-tv-shows/depeche-mode-m-to-premiere-on-netflix) - Louder
+- [Depeche Mode ‘M’ Docu Film Heading to Netflix](http://www.rollingstone.com/music/music-news/depeche-mode-m-film-streaming-netflix-1235494200/) - Rolling Stone
+- [Every T. Rex Album, Ranked](https://www.spin.com/2026/01/every-t-rex-album-ranked/) - SPIN
+- [A$AP Rocky Drops Psychedelic New Song “Punk Rocky”: Stream](https://consequence.net/2026/01/asap-rocky-punk-rocky/) - Consequence.net
+- [Winona Ryder And More Join A$AP Rocky For Surreal “Punk Rocky” Video](https://www.rap-up.com/article/asap-rocky-unveils-visual-for-punk-rocky) - Rap-Up.com
+- [Looking Ahead: A Release Calendar of Upcoming Albums in 2026 - Billboard](https://www.billboard.com/lists/new-albums-2026-calendar-new-music-releases-this-year/) - Billboard
+- [Winona Ryder in an A$AP Rocky Video? I Love 2026 Already - Vogue](https://www.vogue.com/article/winona-ryder-asap-rocky-music-video-punk-rocky) - Vogue
+- [A$AP Rocky and Winona Ryder Star in Surreal 'Punk Rocky' Video - Variety](https://variety.com/2026/music/news/asap-rocky-winona-ryder-punk-rocky-video-1236623927/) - Variety
+- [Daniel Caesar: Tiny Desk Concert](https://www.npr.org/2026/01/05/g-s1-104268/daniel-caesar-tiny-desk-concert) - NPR
+- [A Transcendent Tiny Desk Concert: Daniel Caesar](https://littlegreenfootballs.com/article/55184_A_Transcendent_Tiny_Desk_Conce) - Littlegreenfootballs.com
+- [YouTube Music lyrics sharing adding AI-generated backgrounds](http://9to5google.com/2026/01/05/youtube-music-lyrics-ai-share/) - 9to5google.com
+- [YouTube Music lyrics sharing adding AI-generated backgrounds - 9to5Google](https://9to5google.com/2026/01/05/youtube-music-lyrics-ai-share/) - 9to5google
+- [The day that one of BritPop's biggest and best-loved stars shocked Glastonbury festival by joining hard rock legends Spinal Tap for a controversial celebration of plus-sized female buttocks](https://www.loudersound.com/bands-artists/britpop-star-shocked-glastonbury-spinal-tap) - Louder
+- [Fleetwood Mac – Tango in the Night (1987, MFSL 2025)](https://exystence.net/blog/2026/01/05/fleetwood-mac-tango-in-the-night-1987-mfsl-2025/) - Exystence.net
+- [Quote of the day by Jon Bon Jovi: 'If you can't do what you do... do what you can'](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-by-jon-bon-jovi-if-you-cant-do-what-you-do-do-what-you-can/articleshow/126346246.cms) - The Times of India
+- [Yungblud on Ozzy, Aerosmith — and His Next Moves](http://www.rollingstone.com/music/music-features/yungblud-interview-podcast-ozzy-aerosmith-1235494341/) - Rolling Stone
+- [Yungblud Announces Darker ‘Zombie’ Collaboration With Smashing Pumpkins: Here’s When It Arrives - Billboard Canada](https://ca.billboard.com/music/rock/yungblud-smashing-pumpkins-zombie-collaboration-1236148115/) - Billboard
+- [Aubrey O’Day on Participating in Netflix’s Diddy Doc and Danity Kane’s Reunion: ‘It Can’t Just End Here’](https://variety.com/2026/music/news/aubrey-oday-on-netflix-diddy-doc-danity-kane-reunion-1236623462/) - Variety
+- [Aubrey O'Day on Sean "Diddy" Combs and her desire to help others: "Speaking for the underdogs" - CBS News](https://www.cbsnews.com/video/aubrey-oday-on-sean-diddy-combs/) - Cbsnews
+- [Aubrey O'Day opens up about disturbing Sean "Diddy" Combs allegations, and her hopes of "speaking for the underdogs" - CBS News](https://www.cbsnews.com/news/aubrey-oday-opens-up-sean-diddy-combs-allegations-cbs-mornings/) - Cbsnews
+- [Chelsea Handler Zings Ex 50 Cent at Critics Choice Awards After Rapper Turns Toward Diddy’s Son - The Hollywood Reporter](https://www.hollywoodreporter.com/news/local-news/chelsea-handler-50-cent-joke-critics-choice-awards-diddy-son-1236464933/) - Hollywoodreporter
+- [DAVE MUSTAINE Confirms MEGADETH's Final Tour Won't Feature Former Members: "It's Not Puppet Show MEGADETH"](https://metalinjection.net/news/dave-mustaine-confirms-megadeths-final-tour-wont-feature-former-members-its-not-puppet-show-megadeth) - Metal Injection.net
+- [Dave Mustaine: No, Ex-Megadeth Members Won’t Participate in the Band’s Final Tour](https://www.metalsucks.net/2026/01/05/dave-mustaine-no-ex-megadeth-members-wont-participate-in-the-bands-final-tour/) - MetalSucks
+- [Megadeth Unleashes "Let There Be Shred!" Ahead of Self-Titled Final Album - That Eric Alper](https://www.thatericalper.com/2025/12/25/megadeth-unleashes-let-there-be-shred-ahead-of-self-titled-final-album/) - Thatericalper
