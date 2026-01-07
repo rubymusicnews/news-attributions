@@ -1,0 +1,53 @@
+# Sources for 2026-01-07 News Episode 
+- [Universal Music signs a new AI deal with Nvidia](https://www.theverge.com/news/856849/universal-music-nvidia-ai-deal) - The Verge
+- [UMG announces a partnership with Nvidia "to pioneer responsible AI for music discovery, creation, and engagement", centered on Nvidia's Music Flamingo model (Dan Rys/Billboard)](https://mediagazer.com/260106/p9) - Mediagazer.com
+- [Music Industry Moves: Universal Music Partners With NVIDIA on AI Music-Discovery, More](https://variety.com/2026/music/news/universal-music-group-partners-with-nvidia-on-ai-1236624560/) - Variety
+- [Universal Music And Nvidia Pledge ‘Antidote’ To ‘AI Slop’ In New Partnership - Forbes](https://www.forbes.com/sites/conormurray/2026/01/06/universal-music-group-strikes-deal-with-nvidia-to-develop-ai-music-discovery-and-creation-tools/) - Forbes
+- [UMG’s latest major AI partnership arrives via tech giant NVIDIA, with promise of ‘antidote to generic AI slop’ - Music Business Worldwide](https://www.musicbusinessworldwide.com/umgs-latest-major-ai-partnership-arrives-via-tech-giant-nvidia-with-promise-of-antidote-to-generic-ai-slop/) - Musicbusinessworldwide
+- [NVIDIA and Universal Music Group Sign Collaboration Agreement to Advance Responsible AI for Enhanced Music Discovery, Creation, and Fan Experience - GIGAZINE](https://gigazine.net/gsc_news/en/20260107-umg-nvidia-partner-ai-music-flamingo/) - Gigazine
+- [Universal Partners With NVIDIA AI on Music Discovery, Fan Engagement & Creation Tools - Billboard](https://www.billboard.com/pro/universal-nvidia-ai-music-discovery-fan-engagement-tools/) - Billboard
+- [NVIDIA and Universal Music Group Collaborate to Advance Responsible AI for Enhanced Music Discovery, Creation, and Fan Experiences - GIGAZINE](https://gigazine.net/gsc_news/en/20260107-umg-nvidia-partner-ai-music-flamingo) - Gigazine
+- [What K-pop Teaches About Fandom](https://www.davidmeermanscott.com/blog/what-k-pop-teaches-about-fandom) - Davidmeermanscott.com
+- [17 Ways K-Pop Became More Global Than Ever in 2025 - Billboard](https://www.billboard.com/lists/k-pop-more-global-than-ever-2025-year-end-review/) - Billboard
+- [BTS marks new chapter with 2026 album, world tour - The Music Universe](https://themusicuniverse.com/bts-marks-new-chapter-with-2026-album-world-tour/) - Themusicuniverse
+- [Bruno Mars Confirms New Album Is Finished: 'My Album Is Done'](http://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Gives Major Update on New Music](https://www.justjared.com/2026/01/06/bruno-mars-gives-major-update-on-new-music/) - Just Jared
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Confirms: His Album ‘Is Done’ - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-new-album-done-1235494480/) - Rollingstone
+- [Tomorrowland to hold its first-ever Asia festival in Thailand](https://www.bbc.com/news/articles/cql45lykx5eo) - BBC News
+- [Tomorrowland Will Make Its Asia Debut This Year - Billboard](https://www.billboard.com/music/music-news/tomorrowland-thailand-debut-edition-2026-asia-belgium-1236150005/) - Billboard
+- [The Rose Korean Rock Band Documentary to Get Worldwide Theatrical Release From CJ 4DPlex on Valentine’s Day, Trailer Unveiled (EXCLUSIVE)](https://variety.com/2026/music/news/the-rose-korean-rock-band-documentary-worldwide-theatrical-release-trailer-1236624234/) - Variety
+- [Kanye West’s ‘BULLY’ Racks Up 500K Spotify Pre-Saves](https://hiphopwired.com/2988802/kanye-wests-bully-racks-up-500k-spotify-pre-saves/) - Hip-Hop Wired
+- [David Bowie’s ‘Heroes’ Saw Massive Streaming Spike After ‘Stranger Things’ Finale](http://www.rollingstone.com/music/music-news/david-bowie-heroes-streaming-spike-stranger-things-finale-1235494462/) - Rolling Stone
+- [Led Zeppelin and Pink Floyd Classics Were Considered for Stranger Things Finale](https://consequence.net/2026/01/led-zeppelin-pink-floyd-stranger-things-finale/) - Consequence.net
+- [‘Stranger Things’ and Prince: The Complicated Road to Bringing ‘When Doves Cry’ and ‘Purple Rain’ to the Show’s Finale - Variety](https://variety.com/2026/film/news/stranger-things-finale-prince-when-doves-cry-purple-rain-1236622700/) - Variety
+- [‘Stranger Things’ and Prince: The Complicated Road to Bringing ‘When Doves Cry’ and ‘Purple Rain’ to the Show’s Finale - cinetotal.com.br](https://www.cinetotal.com.br/entretenimento/stranger-things-and-prince-the-complicated-road-to-bringing-when-doves-cry-and-purple-rain-to-the-shows-finale/160752/) - Cinetotal
+- [How a famous 1984 album plays a key role in ‘Stranger Things’ finale - Syracuse.com](https://www.syracuse.com/entertainment/2026/01/how-a-famous-1984-album-plays-a-key-role-in-stranger-things-finale.html) - Syracuse
+- [How ‘Stranger Things’ got the rights to two Prince songs for epic series finale - New York Post](https://nypost.com/2026/01/01/entertainment/how-stranger-things-got-rights-to-prince-songs-for-series-finale/) - Nypost
+- [The ‘Stranger Things’ Finale Turned Everyone Back Onto Prince - Gizmodo](https://gizmodo.com/the-stranger-things-finale-turned-everyone-back-onto-prince-2000705068) - Gizmodo
+- [Prince Spotify Streams More Than Double in ‘Stranger Things’ Series Finale Surge - Variety](https://au.variety.com/2026/music/news/prince-spotify-streams-double-stranger-things-finale-31561/) - Variety
+- [Kali Uchis, Lorde, and Geese to Play Governors Ball 2026](https://pitchfork.com/news/kali-uchis-lorde-and-geese-to-play-governors-ball-2026/) - Pitchfork
+- [Governors Ball Grooves With Lorde, Rocky, Stray Kids](https://www.spin.com/2026/01/governors-ball-lineup/) - SPIN
+- [Governors Ball 2026 lineup: Lorde, Kali Uchis, A$AP Rocky headlining in Queens - Gothamist](https://gothamist.com/arts-entertainment/governors-ball-2026-lineup-lorde-kali-uchis-aap-rocky-headlining-in-queens) - Gothamist
+- [Governors Ball announces 2026 lineup: See Lorde, Stray Kids, more - New York Post](https://nypost.com/2026/01/06/ticket-sales/governors-ball-2026-where-to-buy-tickets-lineup-dates/) - Nypost
+- [A$AP Rocky, Lorde and Stray Kids to Headline 2026 Governors Ball Festival - Billboard](https://www.billboard.com/music/concerts/2026-governors-ball-headliners-asap-rocky-lorde-stray-kids-1236149516/) - Billboard
+- [Lorde, Stray Kids and A$AP Rocky to Headline Governors Ball 2026 Festival - Variety](https://variety.com/2026/music/news/governors-ball-2026-lineup-lorde-asap-rocky-1236624377/) - Variety
+- [Lorde, Jennie among headliners for 2026 Governors Ball. See the full lineup here - NBC New York](https://www.nbcnewyork.com/new-york-city/governors-ball-2026-lineup/6439869/) - Nbcnewyork
+- [A new Grammy category honors album covers](https://www.hurriyetdailynews.com/a-new-grammy-category-honors-album-covers-217561) - Hurriyet Daily News
+- [Why the album cover Grammy is making a comeback after more than 50 years - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-01-06/grammys-reintroduce-award-for-album-cover-heres-why) - Latimes
+- [A new Grammy category honours album covers and the artists that make them - CBC](https://www.cbc.ca/news/entertainment/grammys-album-art-award-9.7035416) - Cbc
+- [Neil Young Shares First-Ever Recorded Concert With Crazy Horse](http://www.rollingstone.com/music/music-features/neil-young-first-recorded-concert-crazy-horse-1235494615/) - Rolling Stone
+- [Neil Young Shares First-Ever Recorded Concert With Crazy Horse - Rolling Stone](https://www.rollingstone.com/music/music-features/neil-young-first-recorded-concert-crazy-horse-1235494615/) - Rollingstone
+- [YouTube Music is testing AI-generated backgrounds for lyric cards](https://www.androidcentral.com/apps-software/youtube/youtube-music-is-testing-ai-generated-backgrounds-for-lyric-cards) - Android Central
+- [YouTube Music lyrics sharing adding AI-generated backgrounds - 9to5Google](https://9to5google.com/2026/01/05/youtube-music-lyrics-ai-share/) - 9to5google
+- [31 Rock + Metal Albums Turning 40 in 2026](https://loudwire.com/rock-metal-albums-turning-40-2026/) - Loudwire
+- [A Stranger Things Star Dethroned Taylor Swift With A Number One Song On Spotify](https://www.slashfilm.com/2069286/stranger-things-star-joe-keery-djo-end-of-beginning-dethrones-taylor-swift-spotify/) - /FILM
+- [‘Stranger Things’ star Joe Keery dethrones Taylor Swift on Spotify charts with No. 1 hit - New York Post](https://nypost.com/2026/01/04/entertainment/stranger-things-star-joe-keery-dethrones-taylor-swift-on-spotify-charts/) - Nypost
+- [David Bowie’s ‘Heroes’ Streams Surge Following ‘Stranger Things’ Finale - Billboard](https://www.billboard.com/music/music-news/david-bowie-heroes-streams-surge-stranger-things-finale-1236149455/) - Billboard
+- ["We'd like to discuss a chart position." How a secret $70,000 cash payment to Italian gangsters secured a British rock band their first US hit single](https://www.loudersound.com/bands-artists/how-a-cash-payment-to-gangsters-secured-a-rock-band-their-first-us-hit-single) - Louder
+- [Peter Rosenberg: Drake Is Ruining His Legacy!](https://mediatakeout.com/peter-rosenberg-drake-is-ruining-his-legacy/) - Mediatakeout.com
+- [Drake Named in Lawsuit Alleging Illegal Online Casino Promotion & Music Stream Inflation](https://www.justjared.com/2026/01/05/drake-named-in-lawsuit-alleging-illegal-online-casino-promotion-music-stream-inflation/) - Just Jared
+- [Drake Hit with RICO Lawsuit Tied to Crypto Casino Stake.us](https://biztoc.com/x/c15c3164b3e5779c) - Biztoc.com
+- [Drake Accused of Manipulating Streaming Play Counts With Bots in New Lawsuit - Gizmodo](https://gizmodo.com/drake-accused-of-manipulating-streaming-play-counts-with-bots-in-new-lawsuit-2000705004) - Gizmodo
+- [Drake, Adin Ross Used Online Casino Money for Artificial Streams, Lawsuit Claims - Rolling Stone](https://www.rollingstone.com/music/music-news/drake-adin-ross-online-casino-stake-lawsuit-1235493062/) - Rollingstone
+- [Drake hit with RICO lawsuit over alleged gambling scheme with Stake - USA Today](https://www.usatoday.com/story/entertainment/celebrities/2026/01/02/drake-adin-ross-gambling-lawsuit-rico-stake/87991186007/) - Usatoday

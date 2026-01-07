@@ -1,0 +1,93 @@
+# Daily News Video Credits - 2026-01-07
+Full media attributions for all assets used.
+
+| Type | Title / Description | Author | Source | License |
+|------|---------------------|---------|---------|----------|
+| Image | An Artist S Illustration Of Artificial Intelligence Ai This Image Represents The Role Of Ai In Computer Optimisation For Reduced Energy Consumption It Was Created By Linus Zoll As Part | Google DeepMind | [Pexels](https://www.pexels.com/photo/an-artist-s-illustration-of-artificial-intelligence-ai-this-image-represents-the-role-of-ai-in-computer-optimisation-for-reduced-energy-consumption-it-was-created-by-linus-zoll-as-part-18069082/) | [pexels](https://www.pexels.com/license) |
+| Image | Futuristic Cybernetic Fashion Model Art | magapls . | [Pexels](https://www.pexels.com/photo/futuristic-cybernetic-fashion-model-art-31102648/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of Nvidia Logo Displayed On Smartphone | UMA media | [Pexels](https://www.pexels.com/photo/close-up-of-nvidia-logo-displayed-on-smartphone-30608593/) | [pexels](https://www.pexels.com/license) |
+| Image | Modern Art Performer In Costume | Jeniya Orlova | [Pexels](https://www.pexels.com/photo/modern-art-performer-in-costume-6050373/) | [pexels](https://www.pexels.com/license) |
+| Video | An Artist S Animation Of Artificial Intelligence Ai This Video Depicts Agi Artificial General Intelligence S Potential To Enrich Lives It Was Created By Xk Studio As Part Of The Visu | Google DeepMind | [Pexels](https://www.pexels.com/video/an-artist-s-animation-of-artificial-intelligence-ai-this-video-depicts-agi-artificial-general-intelligence-s-potential-to-enrich-lives-it-was-created-by-xk-studio-as-part-of-the-visu-18069830/) | [pexels](https://www.pexels.com/license) |
+| Image | Lucian Grainge at State of the Entertainment Industry 2018 | Luke Harold | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=99284421) | [cc0](https://creativecommons.org/publicdomain/zero/1.0/deed.en/) |
+| Image | Lightborn Avatar | Merlin Lightpainting | [Pexels](https://www.pexels.com/photo/lightborn-avatar-11130382/) | [pexels](https://www.pexels.com/license) |
+| Image | Youtube Music Stream Songs And Music Videos App On The Display Of Smartphone Or Tablet | Sanket  Mishra | [Pexels](https://www.pexels.com/photo/youtube-music-stream-songs-and-music-videos-app-on-the-display-of-smartphone-or-tablet-16587508/) | [pexels](https://www.pexels.com/license) |
+| Image | An Artist S Illustration Of Artificial Intelligence Ai This Image Was Inspired By Ai Chip Design And Computer Vision It Was Created By Champ Panupong Techawongthawon As Part Of The Vis | Google DeepMind | [Pexels](https://www.pexels.com/photo/an-artist-s-illustration-of-artificial-intelligence-ai-this-image-was-inspired-by-ai-chip-design-and-computer-vision-it-was-created-by-champ-panupong-techawongthawon-as-part-of-the-vis-17483849/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of Couple Sharing Headphones | Ron Lach | [Pexels](https://www.pexels.com/photo/close-up-of-couple-sharing-headphones-9654036/) | [pexels](https://www.pexels.com/license) |
+| Video | Dynamic Digital Sound Wave Visualization | Chandresh Uike | [Pexels](https://www.pexels.com/video/dynamic-digital-sound-wave-visualization-34645273/) | [pexels](https://www.pexels.com/license) |
+| Image | Crown Raising Hands During Performance | Rahul Pandit | [Pexels](https://www.pexels.com/photo/crown-raising-hands-during-performance-1652353/) | [pexels](https://www.pexels.com/license) |
+| Image | Crowd Celebrating On Concert | Jonathan Cooper | [Pexels](https://www.pexels.com/photo/crowd-celebrating-on-concert-13960561/) | [pexels](https://www.pexels.com/license) |
+| Image | 181201 BTS at the MelOn Music Awards | TV10/TenAsia | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=76464435) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | Assorted Vinyl Sleeves | Suzy Hazelwood | [Pexels](https://www.pexels.com/photo/assorted-vinyl-sleeves-1759350/) | [pexels](https://www.pexels.com/license) |
+| Image | A Person Looking At A Vinyl Record | Tima Miroshnichenko | [Pexels](https://www.pexels.com/photo/a-person-looking-at-a-vinyl-record-6827400/) | [pexels](https://www.pexels.com/license) |
+| Video | Playing A Vinyl Record A The Turntable | Atakan Ozkan | [Pexels](https://www.pexels.com/video/playing-a-vinyl-record-a-the-turntable-3116499/) | [pexels](https://www.pexels.com/license) |
+| Video | Close Up Video Of A Record Player | KoolShooters | [Pexels](https://www.pexels.com/video/close-up-video-of-a-record-player-6620646/) | [pexels](https://www.pexels.com/license) |
+| Image | Photo Of People On Concert | Luis Quintero | [Pexels](https://www.pexels.com/photo/photo-of-people-on-concert-3689547/) | [pexels](https://www.pexels.com/license) |
+| Image | Bruno Mars wears Benjamin Eyewear 'Nicole' to the 2012 Grammy Awards | The Guise Archives | [Flickr](https://www.flickr.com/photos/24281144@N02/6867715201) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Studio Condenser Microphone In Close Up Photography | Tima Miroshnichenko | [Pexels](https://www.pexels.com/photo/studio-condenser-microphone-in-close-up-photography-6671687/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman Singing At A Recording Studio | Los Muertos Crew | [Pexels](https://www.pexels.com/photo/a-woman-singing-at-a-recording-studio-7586653/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Shot Of Person Singing | cottonbro studio | [Pexels](https://www.pexels.com/photo/close-up-shot-of-person-singing-9419235/) | [pexels](https://www.pexels.com/license) |
+| Image | A Beautiful Female Artist Recording A Song | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-beautiful-female-artist-recording-a-song-7086295/) | [pexels](https://www.pexels.com/license) |
+| Image | Hard Rock Cafe Led Guitar Signage | Magda Ehlers | [Pexels](https://www.pexels.com/photo/hard-rock-cafe-led-guitar-signage-712590/) | [pexels](https://www.pexels.com/license) |
+| Image | BRUNO MARS LIVE | skyremix | [Flickr](https://www.flickr.com/photos/39440901@N04/5003880640) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | I've been listening to #prince music no matter where I go. #siriusXm #tribute #music #legend | mtan14 | [Flickr](https://www.flickr.com/photos/82497860@N00/26622660046) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Jesse Johnson's Revue - Day 139 | Vox Efx | [Flickr](https://www.flickr.com/photos/39096030@N00/3554911665) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Partyman | JD Hancock | [Flickr](https://www.flickr.com/photos/83346641@N00/4377547081) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | The Family - Day 122 | Vox Efx | [Flickr](https://www.flickr.com/photos/39096030@N00/3495476939) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Black Samsung Galaxy Tab | AS Photography | [Pexels](https://www.pexels.com/photo/black-samsung-galaxy-tab-218686/) | [pexels](https://www.pexels.com/license) |
+| Image | Drake Live at Walmart Soundcheck | Lunchbox LP | [Flickr](https://www.flickr.com/photos/40007445@N05/4635826517) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | P1000356 | igby0315 | [Flickr](https://www.flickr.com/photos/71581468@N04/6792937448) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Close Up Photo Of Casino Roulette | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/close-up-photo-of-casino-roulette-7594187/) | [pexels](https://www.pexels.com/license) |
+| Image | Playing Card And Poker Chips And Dices | Pixabay | [Pexels](https://www.pexels.com/photo/playing-card-and-poker-chips-and-dices-269630/) | [pexels](https://www.pexels.com/license) |
+| Video | Gambling In A Casino | Anna Shvets | [Pexels](https://www.pexels.com/video/gambling-in-a-casino-6665524/) | [pexels](https://www.pexels.com/license) |
+| Image | Vibrant Outdoor Cultural Festival Gathering | Nguyễn Tình | [Pexels](https://www.pexels.com/photo/vibrant-outdoor-cultural-festival-gathering-35042952/) | [pexels](https://www.pexels.com/license) |
+| Image | Group Of People Gathering In Concert | Wendy Wei | [Pexels](https://www.pexels.com/photo/group-of-people-gathering-in-concert-1540406/) | [pexels](https://www.pexels.com/license) |
+| Image | [Photo] Tomorrowland 2013 | Mixtribe Photo | [Flickr](https://www.flickr.com/photos/24279287@N03/9372251772) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | View Of Room | Thuyen Vu | [Pexels](https://www.pexels.com/photo/view-of-room-322719/) | [pexels](https://www.pexels.com/license) |
+| Image | Stunning Night Skyline Of Bangkok Thailand | Wilfried Strang | [Pexels](https://www.pexels.com/photo/stunning-night-skyline-of-bangkok-thailand-31017760/) | [pexels](https://www.pexels.com/license) |
+| Image | Night Skyline Of Bangkok S Bustling Downtown | Sergei  Gussev | [Pexels](https://www.pexels.com/photo/night-skyline-of-bangkok-s-bustling-downtown-34951439/) | [pexels](https://www.pexels.com/license) |
+| Image | Aerial Night View Of Bangkok City Skyline | Harsha Aman | [Pexels](https://www.pexels.com/photo/aerial-night-view-of-bangkok-city-skyline-28984865/) | [pexels](https://www.pexels.com/license) |
+| Image | Aerial View Of Concert On Grounds | Tom Fisk | [Pexels](https://www.pexels.com/photo/aerial-view-of-concert-on-grounds-1692695/) | [pexels](https://www.pexels.com/license) |
+| Image | Governor's Ball | Alan Light | [Flickr](https://www.flickr.com/photos/42274165@N00/252488754) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Governor's Ball | Alan Light | [Flickr](https://www.flickr.com/photos/42274165@N00/251562823) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | 190106 Stray Kids 方燦 | Newsen | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=81762186) | [by](https://creativecommons.org/licenses/by/3.0/) |
+| Image | A$AP Rocky | ChadCooperPhotos | [Flickr](https://www.flickr.com/photos/86775868@N03/10330244563) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Kali Uchis | RODA Fotografía | [Flickr](https://www.flickr.com/photos/73982258@N04/17218771924) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Kali Uchis, ACL 2015 | Ralph Arvesen | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=50441345) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Kali Uchis Performing in 2017 | Malcolmrevere | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=63922447) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Mac Miller Governors Ball 2011 | LG Rocket | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=17516727) | [by-sa](https://creativecommons.org/licenses/by-sa/3.0/) |
+| Image | A Vinyl Records Music Store | Mick Haupt | [Pexels](https://www.pexels.com/photo/a-vinyl-records-music-store-6131930/) | [pexels](https://www.pexels.com/license) |
+| Image | Vinyl Records On Display In A Music Store | Connor Scott McManus | [Pexels](https://www.pexels.com/photo/vinyl-records-on-display-in-a-music-store-11994138/) | [pexels](https://www.pexels.com/license) |
+| Image | Metallica | Man Alive! | [Flickr](https://www.flickr.com/photos/24365773@N03/13135531034) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Slayer - band - live 2006 | original by Gabriele; crops and changes by de:user:JD | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=1624471) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Bon Jovi | Viditu | [Flickr](https://www.flickr.com/photos/40553543@N00/6099732620) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | The United States Air Forces in Europe Band, in collaboration with the National Presidential Orchestra of Ukraine, gave a concert at the Kyiv National Philharmonic, Oct 19, 2019 | usembassykyiv | [Flickr](https://www.flickr.com/photos/58993040@N07/48936324772) | [by-nd](https://creativecommons.org/licenses/by-nd/2.0/) |
+| Image | Man Wearing Black Vest | GUSTAVO H | [Pexels](https://www.pexels.com/photo/man-wearing-black-vest-922322/) | [pexels](https://www.pexels.com/license) |
+| Video | Looking At Old Vinyl Records | Tima Miroshnichenko | [Pexels](https://www.pexels.com/video/looking-at-old-vinyl-records-6825961/) | [pexels](https://www.pexels.com/license) |
+| Image | Youtube Music Stream Songs And Music Videos App On The Display Of Smartphone Or Tablet | Sanket  Mishra | [Pexels](https://www.pexels.com/photo/youtube-music-stream-songs-and-music-videos-app-on-the-display-of-smartphone-or-tablet-16773548/) | [pexels](https://www.pexels.com/license) |
+| Image | Youtube Music Stream Songs And Music Videos App On The Display Of Smartphone Or Tablet | Sanket  Mishra | [Pexels](https://www.pexels.com/photo/youtube-music-stream-songs-and-music-videos-app-on-the-display-of-smartphone-or-tablet-16773547/) | [pexels](https://www.pexels.com/license) |
+| Image | Two White Printer Papers Near Macbook On Brown Surface | Lukas | [Pexels](https://www.pexels.com/photo/two-white-printer-papers-near-macbook-on-brown-surface-590016/) | [pexels](https://www.pexels.com/license) |
+| Image | Graph And Line Chart Printed Paper | Lukas | [Pexels](https://www.pexels.com/photo/graph-and-line-chart-printed-paper-590045/) | [pexels](https://www.pexels.com/license) |
+| Image | David Bowie, Diamond Dogs Tour (1974) | Hunter-Desportes | [Flickr](https://www.flickr.com/photos/35838730@N05/3328570751) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Kanye West - Kanye Omari West | Peter Hutchins | [Flickr](https://www.flickr.com/photos/24731630@N02/10990084146) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Kanye West - Kanye Omari West | Peter Hutchins | [Flickr](https://www.flickr.com/photos/24731630@N02/10990061365) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | People At Concert | Vishnu R Nair | [Pexels](https://www.pexels.com/photo/people-at-concert-1105666/) | [pexels](https://www.pexels.com/license) |
+| Image | Professional Athletes Watching Video On Smartphone | Andrea Piacquadio | [Pexels](https://www.pexels.com/photo/professional-athletes-watching-video-on-smartphone-3763870/) | [pexels](https://www.pexels.com/license) |
+| Image | A Child Using A Smartphone Next To His Father | George Pak | [Pexels](https://www.pexels.com/photo/a-child-using-a-smartphone-next-to-his-father-7984364/) | [pexels](https://www.pexels.com/license) |
+| Image | Kanye West - Kanye Omari West | Peter Hutchins | [Flickr](https://www.flickr.com/photos/24731630@N02/10989586425) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Youtube Music Stream Songs And Music Videos App On The Display Of Smartphone Or Tablet | Sanket  Mishra | [Pexels](https://www.pexels.com/photo/youtube-music-stream-songs-and-music-videos-app-on-the-display-of-smartphone-or-tablet-16587507/) | [pexels](https://www.pexels.com/license) |
+| Image | Kanye West | jurvetson | [Flickr](https://www.flickr.com/photos/44124348109@N01/2834953166) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Grammy Award Winning Singer, Melissa Etheridge | Rafael Amado Deras | [Flickr](https://www.flickr.com/photos/28050552@N03/3332738782) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | An Album Of A Band White Lies Titled As I Try Not To Fall Apart Lying On A Jacket | Renya Sh | [Pexels](https://www.pexels.com/photo/an-album-of-a-band-white-lies-titled-as-i-try-not-to-fall-apart-lying-on-a-jacket-16036164/) | [pexels](https://www.pexels.com/license) |
+| Image | ***older photo, updated one in photostream*** My Chemical Romance Photoshop Edit: 'Just chillin' in the clouds'' | Rob Ellis' | [Flickr](https://www.flickr.com/photos/45597153@N05/5255137696) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Kento Masuda at 57th Grammy Awards Ceremony | Kaori Muraji | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=38607632) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Really really big crowd | tallmariah | [Flickr](https://www.flickr.com/photos/42587153@N00/185558466) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Clear And Black Cassette Tape On Gray Surface | Ashutosh Sonwani | [Pexels](https://www.pexels.com/photo/clear-and-black-cassette-tape-on-gray-surface-1762411/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of Vinyl Record Texture | Eva Bronzini | [Pexels](https://www.pexels.com/photo/close-up-of-vinyl-record-texture-7605374/) | [pexels](https://www.pexels.com/license) |
+| Image | Neil Diamond Musical Billboard At Hollywood | Abhishek  Navlakha | [Pexels](https://www.pexels.com/photo/neil-diamond-musical-billboard-at-hollywood-32671509/) | [pexels](https://www.pexels.com/license) |
+| Image | The Famous Radio City Music Hall In New York City | Etkin Celep | [Pexels](https://www.pexels.com/photo/the-famous-radio-city-music-hall-in-new-york-city-12707994/) | [pexels](https://www.pexels.com/license) |
+| Image | Street View Of Radio City Music Hall In New York City | Sean Ingram | [Pexels](https://www.pexels.com/photo/street-view-of-radio-city-music-hall-in-new-york-city-29911599/) | [pexels](https://www.pexels.com/license) |
+| Image | Blurry Photo Of A Sign For A Musical At The Belasco Theatre In New York City New York Usa | J-A-Saumya Perera | [Pexels](https://www.pexels.com/photo/blurry-photo-of-a-sign-for-a-musical-at-the-belasco-theatre-in-new-york-city-new-york-usa-20624763/) | [pexels](https://www.pexels.com/license) |
+| Image | Antelope Discrete Audio Interface In A Recording Studio With Red And Blue Neon Light | XT7 Core | [Pexels](https://www.pexels.com/photo/antelope-discrete-audio-interface-in-a-recording-studio-with-red-and-blue-neon-light-11317799/) | [pexels](https://www.pexels.com/license) |
+| Audio | Late Night Glow | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/late-night-glow-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | Climbing Higher | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/climbing-higher-1/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | relaxed days | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/relaxed-days/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
