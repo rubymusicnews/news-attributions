@@ -1,0 +1,34 @@
+# Sources for 2026-01-08 News Episode 
+- ["Metallica seek raw, rowdy 'n' gutsy frontman." That time Metallica launched a worldwide search to find a new vocalist via an ad in a British music magazine](https://www.loudersound.com/bands-artists/metallica-launched-worldwide-search-for-new-vocalist) - Louder
+- [Bruno Mars Announces New Album ‘The Romantic,’ His First in Nearly a Decade](https://variety.com/2026/music/news/bruno-mars-announces-new-album-the-romantic-single-1236625494/) - Variety
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Confirms: His Album ‘Is Done’ - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-new-album-done-1235494480/) - Rollingstone
+- [Bruno Mars Returns: Superstar Announces New Album ‘The Romantic’ - Billboard Canada](https://ca.billboard.com/music/pop/bruno-mars-the-romantic-new-album-single-1236150463/) - Billboard
+- [Apple Music’s new space for radio, live music and events sits in the heart of creative LA](https://www.wallpaper.com/tech/inside-apple-music-studio-culver-city-los-angeles) - Wallpaper*
+- [Tomorrowland confirms first Asia festival in Thailand for 2026](https://www.the-independent.com/arts-entertainment/music/news/tomorrowland-first-asia-festival-thailand-dates-b2895781.html) - The-independent.com
+- [Tomorrowland to hold its first-ever Asia festival in Thailand - BBC](https://www.bbc.com/news/articles/cql45lykx5eo) - Bbc
+- [Tomorrowland Will Make Its Asia Debut This Year - Billboard](https://www.billboard.com/music/music-news/tomorrowland-thailand-debut-edition-2026-asia-belgium-1236150005/) - Billboard
+- [Landr expands into DAWs with acquisition of Reason Studios](http://musically.com/2026/01/07/landr-expands-into-daws-with-acquisition-of-reason-studios/) - Music Ally
+- [“This isn’t about changing Reason, it’s about giving it room to grow”: Reason Studios acquired by AI music production specialist LANDR - MusicRadar](https://www.musicradar.com/music-tech/this-isnt-about-changing-reason-its-about-giving-it-room-to-grow-reason-studios-acquired-by-ai-music-production-specialists-landr) - Musicradar
+- [Music Industry Moves: Universal Music Partners With NVIDIA on AI Music-Discovery, More - variety.com](https://variety.com/2026/music/news/universal-music-group-partners-with-nvidia-on-ai-1236624560/) - Variety
+- [Stuart Murdoch, Gruff Rhys, Field Music feature on new Andrew Wasylyk album, Irreparable Parables](https://www.thelineofbestfit.com/news/stuart-murdoch-gruff-rhys-field-music-feature-on-new-andrew-wasylyk-album-irreparable-parables) - Thelineofbestfit.com
+- [Great Grandpa: Tiny Desk Concert](https://www.npr.org/2026/01/07/g-s1-97413/great-grandpa-tiny-desk-concert) - NPR
+- [Great Grandpa: Tiny Desk Concert - WYSO](https://www.wyso.org/2026-01-07/great-grandpa-tiny-desk-concert) - Wyso
+- [Robyn Announces New Album ‘Sexistential,’ Releases Title Track and ‘Talk to Me’](https://variety.com/2026/music/news/robyn-announces-new-album-sexistential-releases-two-singles-1236625189/) - Variety
+- [Robyn returns: patron saint of sad pop bangers is finally back with a new album](https://www.the-independent.com/arts-entertainment/music/news/robyn-new-album-sexistential-release-date-tour-b2896123.html) - The-independent.com
+- [Robyn’s Ninth Studio Album ‘Sexistentialism’ Coming This Spring - Billboard](https://www.billboard.com/music/pop/robyn-sexistentialism-new-album-1236150524/) - Billboard
+- [DISTANT Release New Single And Video "Nothing Left To Hate"](https://metalinjection.net/video/distant-release-new-single-and-video-nothing-left-to-hate) - Metal Injection.net
+- [Winona Ryder Stars in A$AP Rocky's Surreal New 'Punk Rocky' Music Video](https://www.justjared.com/2026/01/06/winona-ryder-stars-in-aap-rockys-surreal-new-punk-rocky-music-video/) - Just Jared
+- [A$AP Rocky and Winona Ryder Star in Surreal 'Punk Rocky' Video - Variety](https://variety.com/2026/music/news/asap-rocky-winona-ryder-punk-rocky-video-1236623927/) - Variety
+- [Winona Ryder in an A$AP Rocky Video? I Love 2026 Already - Vogue](https://www.vogue.com/article/winona-ryder-asap-rocky-music-video-punk-rocky) - Vogue
+- [A$AP Rocky Reveals His Childhood Crushes, His Plans for His Daughter’s Dates: ‘I’m Going to Pray for Them’ - Billboard](https://www.billboard.com/music/rb-hip-hop/asap-rocky-reveals-childhood-crushes-plans-daughter-dates-1236149774/) - Billboard
+- [Looking Ahead: A Release Calendar of Upcoming Albums in 2026 - Billboard](https://www.billboard.com/lists/new-albums-2026-calendar-new-music-releases-this-year/) - Billboard
+- [Ex-Kiss Guitarist to Follow Up $200 CD Single With $500 CD Singles](http://www.rollingstone.com/music/music-news/kiss-vinnie-vincent-500-cd-singles-1235495395/) - Rolling Stone
+- [Former Kiss star Vinnie Vincent defends $225 price tag on new CD single - Louder](https://www.loudersound.com/bands-artists/vinnie-vincent-defends-price-ride-the-serpent) - Loudersound
+- [Music Business 2026: What to Expect — AI to Ticketing (Guest Column) - Billboard](https://www.billboard.com/pro/music-business-2026-what-expect-ai-ticketing-guest-column/) - Billboard
+- [How Turnstile are reinventing hardcore for the internet age](https://www.dazeddigital.com/music/article/69368/1/fuck-ice-turnstile-are-making-hardcore-music-for-the-internet-age?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=how-turnstile-are-reinventing-hardcore-for-the-internet-age) - Dazed
+- [‘FUCK ICE!’: How Turnstile is reinventing hardcore for the internet age](https://www.dazeddigital.com/music/article/69368/1/fuck-ice-turnstile-are-making-hardcore-music-for-the-internet-age?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=fuck-ice-how-turnstile-is-reinventing-hardcore-for-the-internet-age) - Dazed
+- [Turnstile are reinventing hardcore for the internet age](https://www.dazeddigital.com/music/article/69368/1/fuck-ice-turnstile-are-making-hardcore-music-for-the-internet-age?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=turnstile-are-reinventing-hardcore-for-the-internet-age) - Dazed
+- [NIKKI SIXX: "I Hate It When Bands Don't Play Their Hits"](https://metalinjection.net/news/nikki-sixx-i-hate-it-when-bands-dont-play-their-hits) - Metal Injection.net
+- [76 biggest classic rock tours 2026: See RUSH, AC/DC, more - New York Post](https://nypost.com/ticket-sales/76-biggest-classic-rock-concerts-of-2026-get-tickets-artists/) - Nypost
+- ["The record company barely even knew who we were. When we took the demos into them, they said: 'You're Super-Who?'": The story of the Supertramp classic the band eventually found too difficult to play](https://www.loudersound.com/music/albums/dreamer-supertramp) - Louder
