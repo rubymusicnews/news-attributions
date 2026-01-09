@@ -1,0 +1,52 @@
+# Sources for 2026-01-09 News Episode 
+- [Welcome to the Year of BTS: Podcast](https://consequence.net/2026/01/welcome-to-the-year-of-bts-podcast/) - Consequence.net
+- [BTS Unveil Release Date for New Album, Tease 2026 Tour - Pitchfork](https://pitchfork.com/news/bts-unveil-release-date-for-new-album-tease-2026-tour/) - Pitchfork
+- [BTS to release new album, go on tour after mandatory military service - USA Today](https://www.usatoday.com/story/entertainment/music/2026/01/05/bts-new-album-world-tour-2026/88032438007/) - Usatoday
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - ABC News](https://abcnews.go.com/Entertainment/wireStory/bts-announces-march-comeback-date-putting-end-year-128853592) - Go
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - AP News](https://apnews.com/article/bts-comeback-deabc3c4a7e98de2a5368e1cbf06f0af) - Apnews
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - Greenwich Time](https://www.greenwichtime.com/entertainment/article/bts-announces-march-comeback-date-putting-an-end-21273303.php) - Greenwichtime
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- [Arcángel Will Celebrate 20-Year Career With LP Featuring Daddy Yankee, Ricky Martin, Feid](http://www.rollingstone.com/music/music-latin/arcangel-announces-album-daddy-yankee-ricky-martin-feid-1235495691/) - Rolling Stone
+- [‘This Is My Sober Album’: Arcángel Gets Candid About New Music, Open-Heart Surgery & ‘Being Lucid’ - Billboard](https://www.billboard.com/music/latin/arcangel-billboard-espanol-cover-story-interview-1236149687/) - Billboard
+- [2026 Latin Music Album Release Calendar: Updating List of New Releases - Billboard](https://www.billboard.com/lists/2026-latin-music-album-release-calendar/) - Billboard
+- [Ed Sheeran 2026 LOOP tour: Schedule, venues, and where to buy tickets](https://www.businessinsider.com/guides/tickets/where-to-buy-ed-sheeran-tickets-concert-tour) - Business Insider
+- [Court Dismisses Salt-N-Pepa Lawsuit Accusing UMG of Violating Copyright Act](http://www.rollingstone.com/music/music-news/salt-n-pepa-umg-copyright-lawsuit-dismissed-1235496325/) - Rolling Stone
+- [Salt-N-Pepa’s Master Recording Lawsuit Against UMG Dismissed by Judge - Billboard](https://www.billboard.com/pro/salt-n-pepa-master-recording-lawsuit-umg-dismissed-judge/) - Billboard
+- [Salt-N-Pepa’s Lawsuit Against UMG Over Master Recording Ownership Dismissed by Judge - Variety](https://variety.com/2026/music/news/salt-n-pepa-lawsuit-against-umg-ownership-dismissed-1236626742/) - Variety
+- [Salt-N-Pepa’s Copyright-Clawback Row With Universal Is Dismissed - Bloomberg Law News](https://news.bloomberglaw.com/us-law-week/salt-n-pepas-copyright-clawback-row-with-universal-is-dismissed) - Bloomberglaw
+- [The FADER’s 31 most anticipated albums of 2026](https://www.thefader.com/2026/01/08/most-anticipated-albums-2026) - The FADER
+- [Kehlani Says New Album Has More Collabs Than She’s “Probably Ever Had”: “It Was All Super Organic”](https://www.rap-up.com/article/kehlani-2026-album-most-collaborations-shes-probably-had) - Rap-Up.com
+- [Music in 2026: Who's releasing new albums and will Oasis play Knebworth? - BBC](https://www.bbc.com/news/articles/cz68944djpqo) - Bbc
+- [2026 Latin Music Album Release Calendar: Updating List of New Releases - Billboard](https://www.billboard.com/lists/2026-latin-music-album-release-calendar/) - Billboard
+- [The best 2026 albums we've heard so far : All Songs Considered - NPR](https://www.npr.org/2026/01/06/nx-s1-5667577/2026-album-preview) - Npr
+- [Bruno Mars Announces "The Romantic Tour" With Victoria Monét, Leon Thomas & RAYE: See The Dates Here](https://www.rap-up.com/article/bruno-mars-2026-the-romantic-tour-dates-cities) - Rap-Up.com
+- [Bruno Mars Will Grace 2026 With His New Album ‘The Romantic’ And A Tour With Awesome Guests](https://uproxx.com/music/bruno-mars-the-romantic-2026-tour-dates/) - UPROXX
+- [Bruno Mars is playing two massive shows at London’s Wembley Stadium this summer: dates, presale, potential ticket prices and everything you need to know](https://www.timeout.com/london/news/bruno-mars-is-playing-two-massive-shows-at-londons-wembley-stadium-this-summer-dates-presale-potential-ticket-prices-and-everything-you-need-to-know-010826) - Time Out
+- [„The Romantic Tour“: Bruno Mars kommt nach Deutschland – alle Infos zu Tickets & Terminen](https://www.giga.de/entertainment/the-romantic-tour-bruno-mars-kommt-nach-deutschland-alle-infos-zu-tickets-terminen--01J8FHZ8ZY0EYJ9DJ9CJ3HYP4H) - Giga
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars sets Romantic tour: Inglewood stops to feature Anderson .Paak, Raye - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-01-08/bruno-mars-romantic-tour-sofi-anderson-paak-raye) - Latimes
+- [Bruno Mars Announces 2026 Stadium Tour Dates With Anderson .Paak, Victoria Monet, Raye, Leon Thomas - Variety](https://variety.com/2026/music/news/bruno-mars-2026-tour-dates-1236625758/) - Variety
+- [Bruno Mars’ Decade-in-the-Making New Album Gets Release Date - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/bruno-mars-new-album-the-romantic-release-date-1236466855/) - Hollywoodreporter
+- [Bruno Mars announces ‘Romantic Tour,’ two MetLife shows. Get tickets - New York Post](https://nypost.com/2026/01/08/ticket-sales/bruno-mars-romantic-tour-2026-where-to-buy-tickets-schedule/) - Nypost
+- [Bruno Mars Announces 'The Romantic' World Tour, His First Headlining Run in Nearly a Decade - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-the-romantic-tour-dates-1235495821/) - Rollingstone
+- [Heartbreak Leaves the Kid Laroi Stranded on ‘Before I Forget’](http://www.rollingstone.com/music/music-album-reviews/the-kid-laroi-before-i-forget-breakup-album-1235494202/) - Rolling Stone
+- [Bruno Mars returns with The Romantic in February, his first album in 10 years](https://cnalifestyle.channelnewsasia.com/entertainment/bruno-mars-romantic-new-album-575156) - CNA
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Confirms: His Album ‘Is Done’ - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-new-album-done-1235494480/) - Rollingstone
+- [Bruno Mars Returns: Superstar Announces New Album ‘The Romantic’ - Billboard Canada](https://ca.billboard.com/music/pop/bruno-mars-the-romantic-new-album-single-1236150463/) - Billboard
+- [El Malilla Is Putting Reggaeton Mexa On The Map](https://uproxx.com/music/el-malilla-is-putting-reggaeton-mexa-on-the-map/) - UPROXX
+- [Let’s Leave ‘Industry Plant’ Discourse in 2025](http://www.rollingstone.com/music/music-features/industry-plant-doechii-chappell-roan-1235494762/) - Rolling Stone
+- [R&B/Hip-Hop Fresh Picks of the Week: Doechii, Jill Scott, Lil Uzi Vert & More - billboard.com](https://www.billboard.com/lists/best-new-rb-hip-hop-doechii-sza-jill-scott-uzi-dababy/) - Billboard
+- [Lola Young, Fuerza Regida, BigXthaPlug to Play Rolling Stone’s Future of Music Showcase](http://www.rollingstone.com/music/music-news/lola-young-bigxthaplug-fuerza-regida-future-music-sxsw-2026-1235481902/) - Rolling Stone
+- [Lola Young Set For Rolling Stone’s Future of Music Showcase at SXSW 2026 - Billboard](https://www.billboard.com/music/concerts/lola-young-set-rolling-stone-future-of-music-sxsw-2026-1236151035/) - Billboard
+- [Queen Quiz: How much do you know about A Night At The Opera and A Day At The Races?](https://www.loudersound.com/bands-artists/queen-quiz-a-night-at-the-opera-a-day-at-the-races) - Louder
+- [David Bowie superfans can enjoy new ‘immersive experience’ at legendary singer’s childhood home](https://www.the-independent.com/arts-entertainment/music/david-bowie-childhood-home-london-space-oddity-b2896932.html) - The-independent.com
+- [I 5 video iconici di David Bowie](https://www.ansa.it/sito/notizie/cultura/musica/2026/01/08/i-5-video-iconici-di-david-bowie_102ee230-ae53-4426-9137-29bc8714078b.html) - ANSA.it
+- [Bowie's childhood home to open as immersive experience](https://www.rte.ie/entertainment/2026/0108/1552199-bowies-childhood-home-to-open-as-immersive-experience/) - RTE
+- [David Bowie's childhood home to open to the public](https://www.bbc.com/news/articles/cqxy00xdl8eo) - BBC News
+- [David Bowie’s Childhood Home to Open to the Public - Billboard](https://www.billboard.com/music/music-news/david-bowie-childhood-home-open-to-public-1236151169/) - Billboard
+- [David Bowie's childhood home in London is set to open to the public next year - Greenwich Time](https://www.greenwichtime.com/entertainment/article/david-bowie-s-childhood-home-in-london-is-set-to-21285530.php) - Greenwichtime
+- [Biggest Rock + Metal Albums Released Each Day in January History](https://loudwire.com/rock-metal-albums-january-history/) - Loudwire
+- [2026 Is the 50th Anniversary of These 20 Milestone Music Moments - Billboard](https://www.billboard.com/lists/1976-music-milestones-list-50th-anniversary/) - Billboard
+- [Sylosis Premiere New Single & Music Video "Erased''](http://www.metalunderground.com/news/details.cfm?newsid=160622) - Metalunderground.com
+- [Distant Premiere New Single & Music Video "Nothing Left To Hate"](http://www.metalunderground.com/news/details.cfm?newsid=160623) - Metalunderground.com
