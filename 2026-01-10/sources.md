@@ -1,0 +1,40 @@
+# Sources for 2026-01-10 News Episode 
+- [Bruno Mars ends decade-long wait for new album by dropping single and announcing stadium tour](https://www.the-independent.com/arts-entertainment/music/news/bruno-mars-the-romantic-tour-dates-wembley-tickets-b2897353.html) - The-independent.com
+- ['I Just Might' Lyrics: Bruno Mars Sings About a New Love on His Comeback Song - Watch the Video](https://www.justjared.com/2026/01/09/i-just-might-lyrics-bruno-mars-sings-about-a-new-love-on-his-comeback-song-watch-the-video/) - Just Jared
+- [Watch Bruno Mars’ Video for New Song “I Just Might”](https://pitchfork.com/news/watch-bruno-mars-video-for-new-song-i-just-might/) - Pitchfork
+- [Like Karan Johar with rom-coms, Bruno Mars brings to life another 70s disco hit with ‘I Just Might’](https://indianexpress.com/article/entertainment/hollywood/like-karan-johar-with-rom-coms-bruno-mars-brings-to-life-another-70s-disco-hit-with-i-just-might-10464089/) - The Indian Express
+- [Bruno Mars Sticks to Tried-and-True Formula on New Single “I Just Might”](https://consequence.net/2026/01/bruno-mars-i-might-new-single-review/) - Consequence.net
+- [CHINO MORENO Reflects On DEFTONES' Massive Resurgence: "We're Bigger Than We've Ever Been"](https://metalinjection.net/news/chino-moreno-reflects-on-deftones-massive-resurgence-were-bigger-than-weve-ever-been) - Metal Injection.net
+- [Deftones bet against Y2K nostalgia. The move paid off on 'private music' : World Cafe Words and Music Podcast - NPR](https://www.npr.org/2026/01/02/nx-s1-5649858/deftones-album-private-music) - Npr
+- [TikTok has dethroned YouTube and Instagram and become the top social app for news among young people - Business Insider](https://www.businessinsider.com/tiktok-now-top-social-app-for-news-among-young-people-2025-12) - Businessinsider
+- ["I was naked in the vocal booth. At first, I did it as an experiment to see if it would help, then it became a tradition": The story of the spandex-clad classic that launched its creators into the stratosphere](https://www.loudersound.com/bands-artists/the-darkness-i-believe-in-a-thing-called-love) - Louder
+- [The Latin Artists We’re Rooting for in 2026](http://www.rollingstone.com/music/music-lists/new-latin-artists-2026-1235496262/) - Rolling Stone
+- [Ángela Leiva, Santy y Su Estilo Único & More Emerging Latin Artists on Our Radar - Billboard](https://www.billboard.com/music/latin/latin-artists-on-the-radar-santy-y-su-estilo-unico-1236146801/) - Billboard
+- [Clarent’s Ambitious EP ‘No Vuelve a Suceder’ & More Best New Music Latin - Billboard](https://www.billboard.com/music/latin/best-new-music-latin-clarent-xavi-carin-leon-1236152039/) - Billboard
+- [From photocards to idol meet-ups, how K-pop is fuelling hyperconsumption among hardcore fans](https://www.channelnewsasia.com/today/ground-up/kpop-photocards-fansign-idols-collectors-consumption-5821186) - CNA
+- [10 Music Industry Predictions for 2026: AI, Live Nation, K-Pop & More - Billboard](https://www.billboard.com/pro/music-industry-predictions-2026-ai-live-nation-k-pop-more/) - Billboard
+- [Korea’s Top Chart Reveals Stray Kids Earn Biggest KPop Album Of 2025 - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/09/koreas-top-chart-reveals-stray-kids-earn-biggest-kpop-album-of-2025/) - Forbes
+- ['It's incredible, surreal': Skye Newman wins BBC Sound of 2026](https://www.bbc.com/news/articles/c4g3wd1p7nno) - BBC News
+- [Skye Newman wins BBC Radio 1’s Sound of 2026](https://www.thelineofbestfit.com/news/skye-newman-wins-bbc-radio-1s-sound-of-2026) - Thelineofbestfit.com
+- [Skye Newman Fends Off Sombr, Geese & More to Be Crowned BBC’s Sound Of 2026 Winner - Billboard](https://www.billboard.com/music/awards/bbc-sound-of-2026-skye-newman-winner-1236151087/) - Billboard
+- [10 Rising U.K. & Ireland Acts to Watch in 2026 - Billboard](https://www.billboard.com/lists/uk-ireland-music-new-to-watch-2026/) - Billboard
+- [Robby Krieger and John Densmore Play ‘Riders on the Storm’ With Artists From Around the Globe](http://www.rollingstone.com/music/music-news/robby-krieger-john-densmore-riders-on-the-storm-1235495608/) - Rolling Stone
+- [“People were saying that the style we were playing would mean we never got signed”: Sounding nothing like anyone else, how System Of A Down overcame the odds and started their climb to dominance](https://www.loudersound.com/features/system-of-a-down-the-story-behind-sugar) - Louder
+- [How Justin Townes Earle Wrote His Biggest Hit and Became a Nashville Legend](http://www.rollingstone.com/music/music-features/justin-townes-earle-book-excerpt-1235495941/) - Rolling Stone
+- [X Sues Music Publishers Over “Weaponized” DMCA Takedown Conspiracy](https://torrentfreak.com/x-sues-music-publishers-over-weaponized-dmca-takedown-conspiracy/) - Torrentfreak.com
+- [Music Publishers Sued By X in Growing Licensing Battle - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/x-sues-music-publishers-over-licensing-negotiations-1236468524/) - Hollywoodreporter
+- [X Sues Music Publishers, Alleging ‘Collusion’ Over Licensing Deals - The New York Times](https://www.nytimes.com/2026/01/09/arts/music/x-music-publishers-lawsuit.html) - Nytimes
+- [New Music Friday: The best albums out Jan. 9](https://www.npr.org/2026/01/09/nx-s1-5671231/new-music-friday-the-best-albums-out-jan-9) - NPR
+- [All Things Considered - NPR](https://www.npr.org/programs/all-things-considered/?ft=nprml&f=699118969) - Npr
+- [The best 2026 albums we've heard so far : All Songs Considered - NPR](https://www.npr.org/2026/01/06/nx-s1-5667577/2026-album-preview) - Npr
+- [English is Toki's second language, but he sings in a classic Elvis drawl](https://www.abc.net.au/news/2026-01-10/parkes-elvis-festival-toki-toyokazu-singing/106209036) - ABC News (AU)
+- [Elvis superfans gather for festival - CNN](https://www.cnn.com/2026/01/07/world/video/elvis-fans-festival-australia-vrtc) - Cnn
+- [Arctic Monkeys hint at new music with mystery War Child project on the horizon](https://www.thelineofbestfit.com/news/arctic-monkeys-hint-at-new-music-with-new-warchild-project-on-the-horizon) - Thelineofbestfit.com
+- [MCD Productions reports €181m in ticket sales in 2025](https://www.rte.ie/news/business/2026/0109/1552268-mcd-productions-annual-results/) - RTE
+- [16 Rap And R&B Tours To Attend In 2026: Cardi B, Mariah The Scientist And More](https://www.rap-up.com/article/rap-rnb-tours-2026) - Rap-Up.com
+- [BRUNO MARS ANNOUNCES ‘THE ROMANTIC TOUR’ - Levi's® Stadium](https://levisstadium.com/2026/01/bruno-mars-announces-the-romantic-tour/) - Levisstadium
+- [Bruno Mars sets Romantic tour: Inglewood stops to feature Anderson .Paak, Raye - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-01-08/bruno-mars-romantic-tour-sofi-anderson-paak-raye) - Latimes
+- [Bruno Mars Announces 2026 Stadium Tour Dates With Anderson .Paak, Victoria Monet, Raye, Leon Thomas - Variety](https://variety.com/2026/music/news/bruno-mars-2026-tour-dates-1236625758/) - Variety
+- [Bruno Mars’ Decade-in-the-Making New Album Gets Release Date - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/bruno-mars-new-album-the-romantic-release-date-1236466855/) - Hollywoodreporter
+- [Bruno Mars announces ‘Romantic Tour,’ two MetLife shows. Get tickets - New York Post](https://nypost.com/2026/01/08/ticket-sales/bruno-mars-romantic-tour-2026-where-to-buy-tickets-schedule/) - Nypost
+- [Bruno Mars Announces 'The Romantic' World Tour, His First Headlining Run in Nearly a Decade - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-the-romantic-tour-dates-1235495821/) - Rollingstone
