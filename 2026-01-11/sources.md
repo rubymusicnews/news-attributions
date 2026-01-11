@@ -1,0 +1,44 @@
+# Sources for 2026-01-11 News Episode 
+- [David Bowie's 10 Most Iconic Songs: A Legacy Defined 10 Years Later](https://screenrant.com/david-bowie-10-most-iconic-songs-legacy-defined-10-years-later/) - Screen Rant
+- [How Death Redefined David Bowie’s ‘Blackstar’ - The Ringer](https://www.theringer.com/2026/01/09/music/david-bowie-blackstar-10-years-death-anniversary) - Theringer
+- [David Bowie's 'Blackstar' Turns 10 - Stereogum](https://stereogum.com/2484243/blackstar-turns-10/reviews/the-anniversary) - Stereogum
+- [The real David Bowie — by eight insiders who knew him best - The Times](https://www.thetimes.com/culture/music/article/the-real-david-bowie-by-eight-insiders-who-knew-him-best-skzb9zx7l) - Thetimes
+- [How David Bowie Redefined the Art of Saying Goodbye - Rolling Stone](https://www.rollingstone.com/music/music-features/david-bowie-death-10-years-on-final-act-1235496612/) - Rollingstone
+- [Brixton boy David Bowie's rise to global stardom](https://www.bbc.com/news/articles/c62rkp30q9ro) - BBC News
+- [David Bowie's London childhood home set to open to the public - BBC](https://www.bbc.com/news/articles/cqxy00xdl8eo) - Bbc
+- [David Bowie’s Childhood Home to Open to the Public - Billboard](https://www.billboard.com/music/music-news/david-bowie-childhood-home-open-to-public-1236151169/) - Billboard
+- [David Bowie’s childhood home in London will be open to the public in 2027 - New York Post](https://nypost.com/2026/01/09/entertainment/david-bowies-childhood-home-in-london-will-be-open-to-the-public-in-2027/) - Nypost
+- [David Bowie's childhood home in London is set to open to the public next year - Greenwich Time](https://www.greenwichtime.com/entertainment/article/david-bowie-s-childhood-home-in-london-is-set-to-21285530.php) - Greenwichtime
+- ["We’ve not got too many years left so every gig is sacred...you appreciate it more." Iron Maiden legend Steve Harris on 50 years of heavy metal - and what comes next](https://www.loudersound.com/bands-artists/interviews/steve-harris-metal-hammer-interview-2025) - Louder
+- [Salt-N-Pepa Can’t Reclaim Their Masters, Judge Rules](http://www.vulture.com/article/salt-n-pepa-masters-lawsuit-dismissed.html) - Vulture
+- [Judge dismisses Salt-N-Pepa's lawsuit to reclaim master recordings from Universal Music Group - AP News](https://apnews.com/article/salt-papa-lawsuit-umg-masters-9b83d0064ba354460b8d104db05a4733) - Apnews
+- [Salt-N-Pepa’s Copyright-Clawback Row With Universal Is Dismissed - Bloomberg Law News](https://news.bloomberglaw.com/us-law-week/salt-n-pepas-copyright-clawback-row-with-universal-is-dismissed) - Bloomberglaw
+- [Salt-N-Pepa’s Lawsuit Against UMG Over Master Recording Ownership Dismissed by Judge - Variety](https://variety.com/2026/music/news/salt-n-pepa-lawsuit-against-umg-ownership-dismissed-1236626742/) - Variety
+- [Salt-N-Pepa’s Master Recording Lawsuit Against UMG Dismissed by Judge - Billboard](https://www.billboard.com/pro/salt-n-pepa-master-recording-lawsuit-umg-dismissed-judge/) - Billboard
+- [The 12 best new metal songs you need to hear right now](https://www.loudersound.com/best-new-metal-songs-alter-bridge-hanabie-of-the-lost) - Louder
+- [Looking Ahead: A Release Calendar of Upcoming Albums in 2026 - Billboard](https://www.billboard.com/lists/new-albums-2026-calendar-new-music-releases-this-year/) - Billboard
+- ["This is the end, my friends. To balance out the bad news, they've kindly made one of their strongest albums of the 21st century." Heavy metal legends Megadeth are going out on a high with a killer final album](https://www.loudersound.com/music/albums/this-is-the-end-my-friends-to-balance-out-the-bad-news-theyve-kindly-made-one-of-their-strongest-albums-of-the-21st-century-heavy-metal-legends-megadeth-are-going-out-on-a-high-with-a-killer-final-album) - Louder
+- [Megadeth Unleashes "Let There Be Shred!" Ahead of Self-Titled Final Album - That Eric Alper](https://www.thatericalper.com/2025/12/25/megadeth-unleashes-let-there-be-shred-ahead-of-self-titled-final-album/) - Thatericalper
+- ["A profoundly modern album - puzzling, but endearingly so." Dry Cleaning continue to charm and confuse with excellent, expansive third album, Secret Love](https://www.loudersound.com/music/albums/dry-cleaning-secret-love-review) - Louder
+- [New Music Friday: The best albums out Jan. 9 : All Songs Considered - NPR](https://www.npr.org/2026/01/09/nx-s1-5671231/new-music-friday-the-best-albums-out-jan-9) - Npr
+- [The best 2026 albums we've heard so far : All Songs Considered - NPR](https://www.npr.org/2026/01/06/nx-s1-5667577/2026-album-preview) - Npr
+- [Bad Bunny reportedly sued for £12m over voice recording](https://www.the-independent.com/arts-entertainment/music/news/bad-bunny-lawsuit-solo-de-mi-eoo-b2897978.html) - The-independent.com
+- [Bad Bunny Hit With $16M Lawsuit Over Vocal Features on ‘Debí Tirar Más Fotos’ and ‘X 100pre’ - Billboard](https://www.billboard.com/pro/bad-bunny-lawsuit-debi-tirar-mas-fotos-x-100pre-songs/) - Billboard
+- [Taene joins Breakpoint Booking](https://punchng.com/taene-joins-breakpoint-booking/) - The Punch
+- [Bob Weir, Grateful Dead founding member and a jam band icon, dies at 78](https://www.nbcnews.com/news/obituaries/bob-weir-grateful-dead-founding-member-jam-band-icon-dies-78-rcna244713) - NBC News
+- [Bob Weir Dead: Grateful Dead Co-Founder Was 78](http://www.hollywoodreporter.com/music/music-news/bob-weir-dead-grateful-dead-1236469334/) - Hollywood Reporter
+- [Bob Weir, Grateful Dead Guitarist, Dies at 78](https://variety.com/2026/music/news/bob-weir-dead-grateful-dead-1236628170/) - Variety
+- [Grateful Dead’s Bob Weir Dead at 78](https://pitchfork.com/news/bob-weir-dead-78-grateful-dead/) - Pitchfork
+- [Bob Weir, Grateful Dead Co-Founder, Dead at 78 - Rolling Stone](https://www.rollingstone.com/music/music-news/bob-weir-grateful-dead-dead-obituary-1234810106/) - Rollingstone
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - WEKU](https://www.weku.org/npr-news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Weku
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Kansaspublicradio
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - South Carolina Public Radio](https://www.southcarolinapublicradio.org/news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Southcarolinapublicradio
+- [Saturday Sessions: Mon Rovîa performs "Heavy Foot"](https://www.cbsnews.com/video/saturday-sessions-mon-rovia-performs-heavy-foot/) - CBS News
+- [Saturday Sessions: Mon Rovîa performs "crooked the road."](https://www.cbsnews.com/video/saturday-sessions-mon-rovia-performs-crooked-the-road/) - CBS News
+- [Saturday Sessions: Mon Rovîa performs "Bloodline"](https://www.cbsnews.com/video/saturday-sessions-mon-rovia-performs-bloodline/) - CBS News
+- [TEED releases his new album 'Always With Me'](https://www.npr.org/2026/01/10/nx-s1-5659256/teed-releases-his-new-album-always-with-me) - NPR
+- [Bands From Back in the Day That Still Excites Us When Releasing New Music](https://thechive.com/entertainment/music-2/anticipated-music-from-older-bands-new-albums/?utm_postid=5162302&utm_editor=5162302_ty) - Thechive.com
+- [Raekwon – Only Built 4 Cuban Linx... album art](https://fontsinuse.com/uses/74385/raekwon-only-built-4-cuban-linx-album-art) - Fontsinuse.com
+- [Robyn reframes motherhood and desire](https://www.salon.com/2026/01/10/robyns-sexistential-reframes-motherhood-and-desire/) - Salon
+- [Robyn Announces New Album ‘Sexistential,’ Releases Title Track and ‘Talk to Me’ - Variety](https://variety.com/2026/music/news/robyn-announces-new-album-sexistential-releases-two-singles-1236625189/) - Variety
+- [Robyn’s Ninth Studio Album ‘Sexistentialism’ Coming This Spring - Billboard](https://www.billboard.com/music/pop/robyn-sexistentialism-new-album-1236150524/) - Billboard
