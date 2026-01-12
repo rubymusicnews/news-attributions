@@ -1,0 +1,59 @@
+# Sources for 2026-01-12 News Episode 
+- [Bruno Mars' 'I Just Might' Voted Favorite New Music This Week](http://www.billboard.com/music/music-news/bruno-mars-i-just-might-best-new-music-poll-results-1236152823/) - Billboard
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Confirms: His Album ‘Is Done’ - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-new-album-done-1235494480/) - Rollingstone
+- [Bruno Mars Returns: Superstar Announces New Album ‘The Romantic’ - Billboard Canada](https://ca.billboard.com/music/pop/bruno-mars-the-romantic-new-album-single-1236150463/) - Billboard
+- [Donald Clarke: Are The Beatles too big to fade into obscurity?](https://www.irishtimes.com/culture/music/2026/01/11/are-the-beatles-too-big-to-fade-into-obscurity/) - The Irish Times
+- [Opinion \| Tom Brady Is Not the GOAT - The New York Times](https://www.nytimes.com/2026/01/04/opinion/tom-brady-goat-football-greatness.html) - Nytimes
+- [The Classic 1969 Ballad That Ultimately Led to The Beatles' Breakup: 'The Worst Track We Ever Had to Record' - Yahoo](https://www.yahoo.com/entertainment/music/articles/classic-1969-ballad-ultimately-led-152222715.html) - Yahoo
+- [Grateful Dead Founding Member Bob Weir Dies at 78 - Breitbart](https://www.breitbart.com/news/grateful-dead-founding-member-bob-weir-dies-at-78/) - Breitbart News
+- [Bob Weir, Grateful Dead guitarist, dead at 78](https://www.cnn.com/2026/01/10/entertainment/bob-weir-grateful-dead-dies) - CNN
+- [Grateful Dead founding member Bob Weir dies at 78](https://economictimes.indiatimes.com/news/international/world-news/grateful-dead-founding-member-bob-weir-dies-at-78/articleshow/126461049.cms) - The Times of India
+- [Watch Bob Weir Perform ‘Touch of Grey’ with Dead and Co. at His Final Live Appearance](http://www.rollingstone.com/music/music-features/bob-weir-final-live-performance-touch-of-grey-1235497354/) - Rolling Stone
+- [Grateful Dead co-founder and guitarist Bob Weir dies aged 78](https://www.digitaljournal.com/world/grateful-dead-co-founder-and-guitarist-bob-weir-dies-aged-78-2/article) - Digital Journal
+- [Who Was Bob Weir? 5 Things to Know About the Grateful Dead Musician Who Died](https://hollywoodlife.com/feature/bob-weir-5-things-about-grateful-dead-guitarist-5497774/) - Hollywood Life
+- [Bob Weir Death: Grateful Dead Guitarist Dies at 78](http://www.billboard.com/music/rock/bob-weir-death-grateful-dead-8530995/) - Billboard
+- [BOB WEIR, Co-Founder Of The GRATEFUL DEAD, Dead At 78 Years Old](https://metalinjection.net/this-is-just-a-tribute/bob-weir-of-grateful-dead-dead-at-78) - Metal Injection.net
+- [Founding member of the Grateful Dead Bob Weir has died aged 78](https://www.thejournal.ie/bob-weir-grateful-dead-dies-6923301-Jan2026/) - TheJournal.ie
+- [Bob Weir, guitarist and founding member of The Grateful Dead, has died at 78](https://www.npr.org/2026/01/10/nx-s1-4373822/bob-weir-grateful-dead-obituary) - NPR
+- [Grateful Dead Co-Founder Bob Weir Dies at 78](http://www.vulture.com/article/bob-weir-grateful-dead-guitarist-death.html) - Vulture
+- [Grateful Dead guitarist Bob Weir dead at 78](https://pagesix.com/2026/01/10/celebrity-news/grateful-deads-bob-weir-dead-at-78/) - Page Six
+- [Grateful Dead co-founder and guitarist Bob Weir dies aged 78](https://www.digitaljournal.com/entertainment/grateful-dead-co-founder-and-guitarist-bob-weir-dies-aged-78-2/article) - Digital Journal
+- [Grateful Dead co-founder and guitarist Bob Weir dies aged 78](https://www.digitaljournal.com/world/grateful-dead-co-founder-and-guitarist-bob-weir-dies-aged-78/article) - Digital Journal
+- [Bob Weir, founding member of the Grateful Dead, dies at 78](https://www.pbs.org/newshour/arts/bob-weir-founding-member-of-the-grateful-dead-dies-at-78) - PBS
+- [Bob Weir dies: Grateful Dead founding member was 78](https://www.denverpost.com/2026/01/11/bob-weir-dies-grateful-dead/) - The Denver Post
+- [Founding Grateful Dead band member Bob Weir dies aged 78](https://www.independent.ie/entertainment/music/music-news/founding-grateful-dead-band-member-bob-weir-dies-aged-78/a742321477.html) - Independent.ie
+- [Grateful Dead founding member Bob Weir dies at 78](https://www.dailycamera.com/2026/01/10/grateful-dead-founding-member-bob-weir-dies-at-78/) - The Daily Camera
+- [Bob Weir, the legendary co-founder of Grateful Dead, dies at 78](https://www.joblo.com/bob-weir-the-grateful-dead-dies/) - JoBlo.com
+- [Bob Weir, Grateful Dead’s Statesman, Passes at 78](https://consequence.net/2026/01/bob-weir-grateful-deads-statesman-passes-at-78/) - Consequence.net
+- [Grateful Dead founding member Bob Weir dead at 78](https://www.loudersound.com/bands-artists/grateful-dead-founding-member-bob-weir-dead-at-78) - Louder
+- [Grateful Dead founding member Bob Weir dies at 78](https://abcnews.go.com/Entertainment/wireStory/grateful-dead-founding-member-bob-weir-dies-78-129094020) - ABC News
+- [Bob Weir, founding member of the Grateful Dead, dies at 78](https://freerepublic.com/focus/f-chat/4361472/posts) - Freerepublic.com
+- [Don Felder, Andy Cohen, and More Remember ‘Impossibly Beautiful and Wildly Fiery’ Bob Weir](http://www.rollingstone.com/music/music-news/bob-weir-grateful-dead-death-tributes-reactions-1235497291/) - Rolling Stone
+- [Grateful Dead founding member Bob Weir dies at 78](https://apnews.com/article/bob-weir-grateful-dead-obit-af908fd1bba6cd338bc08024e2d77234) - Associated Press
+- [Bob Weir Cause of Death: Grateful Dead Founding Member Was 78](http://www.thehollywoodgossip.com/2026/01/bob-weir-cause-of-death-grateful-dead-founding-member-was-78/) - The Hollywood Gossip
+- [Grateful Dead founding member Bob Weir dies at 78](https://www.news4jax.com/entertainment/2026/01/11/grateful-dead-founding-member-bob-weir-dies-at-78/) - WJXT News4JAX
+- [Grateful Dead founding member Bob Weir dies at 78](https://japantoday.com/category/entertainment/grateful-dead-founding-member-bob-weir-dies-at-78) - Japan Today
+- [Andrea Bocelli, Mariah Carey to Open Winter Olympics](https://www.newser.com/story/381745/andrea-bocelli-mariah-carey-to-open-winter-olympics.html) - Newser
+- [Andrea Bocelli will perform at Milan Cortina Winter Olympics opening](https://apnews.com/article/winter-olympics-milan-opening-bocelli-884a38887098840b63ea059c74ab954f) - Associated Press
+- [Andrea Bocelli to Perform at 2026 Olympics Opening Ceremony, Joining Mariah Carey as a Headliner - Billboard](https://www.billboard.com/music/music-news/andrea-bocelli-2026-olympics-opening-ceremony-performer-1236152805/) - Billboard
+- [Milan opening ceremony to include Bocelli, Carey - ESPN](https://www.espn.com/olympics/story/_/id/47579529/olympics-opening-ceremony-include-andrea-bocelli-mariah-carey) - Espn
+- [Andrea Bocelli will headline the Milan Cortina Winter Olympic opening ceremony - FOX Sports](https://www.foxsports.com/articles/summer/andrea-bocelli-will-headline-the-milan-cortina-winter-olympic-opening-ceremony) - Foxsports
+- [Gracie Abrams Third Album: She's 'Beyond Ready' to Release New Music](http://www.billboard.com/music/music-news/gracie-abrams-new-album-update-ga3-1236152630/) - Billboard
+- [Gracie Abrams Shares Update on Her Next Album: ‘I’m Beyond Ready’ - Billboard Canada](https://ca.billboard.com/music/music-news/gracie-abrams-new-album-update-ga3-1236152630/) - Billboard
+- [Gracie Abrams Shares Update on Her Next Album: ‘I’m Beyond Ready’ - Billboard](https://www.billboard.com/music/music-news/gracie-abrams-new-album-update-ga3-1236152630/) - Billboard
+- [The next big star in British pop? Absolutely](https://www.the-independent.com/arts-entertainment/music/features/absolutely-singer-raye-sister-tour-b2897570.html) - The-independent.com
+- [Madison Beer loves driving through Ireland on tour](https://www.rte.ie/entertainment/2026/0111/1547896-madison-beer-loves-driving-through-ireland-on-tour/) - RTE
+- [What Happened to Yeison Jiménez? His Plane Crash & Tragic Death](https://hollywoodlife.com/feature/what-happened-to-yeison-jimenez-plane-crash-death-5497826/) - Hollywood Life
+- [Pop Singer Yeison Jimenez Dies in Fiery Plane Crash Hours Before Concert](https://www.breitbart.com/entertainment/2026/01/11/pop-singer-yeison-jimenez-dies-in-fiery-plane-crash-hours-before-concert/) - Breitbart News
+- [Colombian singer Yeison Jiménez among 6 dead after plane crash in central-eastern Colombia - ABC7 Los Angeles](https://slashdot.org/firehose.pl?op=view&amp;id=180563030) - Slashdot.org
+- [“He Dreamed It, And It Happened”: Famous Singer Loses Life In Plane Crash After Chilling Final Post](https://www.boredpanda.com/singer-yeison-jimenez-lost-life-in-fatal-plane-crash/) - Boredpanda.com
+- [Music star Yeison Jimenez among 6 killed in plane crash after revealing fatal premonition](https://nypost.com/2026/01/11/entertainment/singer-yeison-jimenez-killed-in-plane-crash-after-revealing-fatal-premonition/) - New York Post
+- [Robyn mocked for cringeworthy performance of ‘awful’ new single on ‘The Late Show’](https://nypost.com/2026/01/11/entertainment/robyn-mocked-for-performance-of-new-single-on-late-show-with-stephen-colbert/) - New York Post
+- [Robyn Announces New Album ‘Sexistential,’ Releases Title Track and ‘Talk to Me’ - Variety](https://variety.com/2026/music/news/robyn-announces-new-album-sexistential-releases-two-singles-1236625189/) - Variety
+- [Robyn’s Ninth Studio Album ‘Sexistentialism’ Coming This Spring - Billboard](https://www.billboard.com/music/pop/robyn-sexistentialism-new-album-1236150524/) - Billboard
+- [Biffy Clyro light up Dublin’s 3Arena with fan favourites and new tracks from Futique](https://www.irishtimes.com/culture/music/review/2026/01/11/biffy-clyro-light-up-dublins-3arena-with-fan-favourites-and-new-tracks-from-futique/) - The Irish Times
+- [Indie rock favourites make smashing Perth debut](https://www.perthnow.com.au/entertainment/music/the-last-dinner-party-review-indie-rock-favourites-make-smashing-perth-debut-at-redhill-auditorium--c-21274217) - PerthNow
+- [Music Icon Died Penniless Aged 52 After Former Manager Stole his Fortune](https://freerepublic.com/focus/f-chat/4361468/posts) - Freerepublic.com
+- [XINGS (Limited Edition)(限定盤)(SHM-CD) - Rei (DVD付)](https://www.amazon.co.jp/-/en/XINGS-Limited-%E9%99%90%E5%AE%9A%E7%9B%A4-SHM-CD-DVD%E4%BB%98/dp/B0DF7PLR6R) - Amazon.co.jp
+- [Fill your winter calendar with these great Hub concerts](https://www.bostonherald.com/2026/01/11/fill-your-winter-calendar-with-these-great-hub-concerts/) - Boston Herald
