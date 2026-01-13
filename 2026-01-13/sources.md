@@ -1,0 +1,55 @@
+# Sources for 2026-01-13 News Episode 
+- [BTS: Dieses Musik-Comeback bringt selbst Analysten zum Träumen](https://www.stern.de/capital/bts-comeback-bringt-selbst-analysten-an-der-boerse-zum-traeumen-37032448.html) - STERN.de
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- [BTS tour: The K-pop megastars return to live shows after hiatus - BBC](https://www.bbc.com/news/articles/c17zdwvp198o) - Bbc
+- [BTS marks new chapter with 2026 album, world tour - The Music Universe](https://themusicuniverse.com/bts-marks-new-chapter-with-2026-album-world-tour/) - Themusicuniverse
+- [Charlie Puth Announces ‘Whatever’s Clever!’ World Tour](http://www.rollingstone.com/music/music-news/charlie-puth-whatevers-clever-world-tour-1235498086/) - Rolling Stone
+- [Charlie Puth's 2026 Tour Dates: Whatever's Clever World Tour Revealed - Billboard](https://www.billboard.com/music/pop/charlie-puth-tour-dates-2026-1236153459/) - Billboard
+- [Universal-Music-Europachef: „Wer Musik nutzen möchte, muss eine Lizenz dafür haben, ganz einfach“](https://www.faz.net/aktuell/wirtschaft/unternehmen/wer-musik-nutzen-moechte-muss-eine-lizenz-dafuer-haben-ganz-einfach-universal-music-chef-frank-briegmann-accg-110817143.html) - Faz.net
+- [Universal-Music-Europachef: „Wer Musik nutzen möchte, muss eine Lizenz dafür haben, ganz einfach“](https://www.faz.net/aktuell/wirtschaft/unternehmen/universal-music-europa-chef-briegmann-ueber-ki-spotify-und-urheberrecht-accg-110817143.html) - Faz.net
+- [NVIDIA and Universal Music Group Collaborate to Advance Responsible AI for Enhanced Music Discovery, Creation, and Fan Experiences - GIGAZINE](https://gigazine.net/gsc_news/en/20260107-umg-nvidia-partner-ai-music-flamingo) - Gigazine
+- [NVIDIA and Universal Music Group Sign Collaboration Agreement to Advance Responsible AI for Enhanced Music Discovery, Creation, and Fan Experience - GIGAZINE](https://gigazine.net/gsc_news/en/20260107-umg-nvidia-partner-ai-music-flamingo/) - Gigazine
+- [Universal Partners With NVIDIA AI on Music Discovery, Fan Engagement & Creation Tools - Billboard](https://www.billboard.com/pro/universal-nvidia-ai-music-discovery-fan-engagement-tools/) - Billboard
+- [Universal Music And Nvidia Pledge ‘Antidote’ To ‘AI Slop’ In New Partnership - Forbes](https://www.forbes.com/sites/conormurray/2026/01/06/universal-music-group-strikes-deal-with-nvidia-to-develop-ai-music-discovery-and-creation-tools/) - Forbes
+- [UMG’s latest major AI partnership arrives via tech giant NVIDIA, with promise of ‘antidote to generic AI slop’ - Music Business Worldwide](https://www.musicbusinessworldwide.com/umgs-latest-major-ai-partnership-arrives-via-tech-giant-nvidia-with-promise-of-antidote-to-generic-ai-slop/) - Musicbusinessworldwide
+- [Kpop Demon Hunters’ “Golden” Wins Best Original Song at 2026 Golden Globes](https://pitchfork.com/news/kpop-demon-hunters-golden-wins-best-original-song-at-2026-golden-globes/) - Pitchfork
+- [KPop Demon Hunters wins Golden Globes for best animated film](https://www.bbc.com/news/articles/cy8pnn9p8lgo) - BBC News
+- [‘Golden’ Gets a Golden Globe](http://www.vulture.com/article/kpop-demon-hunters-golden-globe-best-song.html) - Vulture
+- [K-Pop in 2025: What ‘KPop Demon Hunters’ and NewJeans Tell Us About the Genre - The New York Times](https://www.nytimes.com/2025/12/25/arts/music/k-pop-newjeans-katseye-kpop-demon-hunters.html) - Nytimes
+- [17 Ways K-Pop Became More Global Than Ever in 2025 - Billboard](https://www.billboard.com/lists/k-pop-more-global-than-ever-2025-year-end-review/) - Billboard
+- [‘KPop Demon Hunters’ Nabs Two Wins at 2026 Golden Globes - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-news/kpop-demon-hunters-2026-golden-globes-1236467892/) - Hollywoodreporter
+- [‘KPop Demon Hunters’ Makes History With Golden Globes Wins — Their Oscar Is Next - Forbes](https://www.forbes.com/sites/hannahabraham/2026/01/12/kpop-demon-hunters-makes-history-with-golden-globes-wins---their-oscar-is-next/) - Forbes
+- [‘KPop Demon Hunters’ & ‘Sinners’ Win in Music Categories at 2026 Golden Globes - Billboard](https://www.billboard.com/music/awards/2026-golden-globes-music-categories-golden-sinners-win-1236152816/) - Billboard
+- [K-pop might win at the Grammys for the first time - AP News](https://apnews.com/article/kpop-grammys-katseye-golden-kpop-demon-hunters-eda880405598583059f44841fb19d457) - Apnews
+- ["It was like sleeping with your ex-wife." Why a one-off reunion convinced one of the world's best-loved bands to turn a $250 million offer to tour again](https://www.loudersound.com/bands-artists/why-pink-floyd-turned-down-250-million-dollars-for-a-reunion-tour) - Louder
+- [The Harry Styles Drought Is Almost Over](http://www.vulture.com/article/harry-styles-we-belong-together-teaser.html) - Vulture
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Confirms: His Album ‘Is Done’ - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-new-album-done-1235494480/) - Rollingstone
+- [Bruno Mars Returns: Superstar Announces New Album ‘The Romantic’ - Billboard Canada](https://ca.billboard.com/music/pop/bruno-mars-the-romantic-new-album-single-1236150463/) - Billboard
+- [Harry Styles to perform Madison Square Garden residency in 2026](https://pagesix.com/2026/01/12/entertainment/harry-styles-set-to-perform-madison-square-garden-residency-in-2026/) - Page Six
+- [Harry Styles Launches Mysterious Website Amid New Music Rumors](https://www.justjared.com/2026/01/12/harry-styles-launches-mysterious-website-amid-new-music-rumors/) - Just Jared
+- [Is Harry Styles Going Back to Work?](http://www.thecut.com/article/is-harry-styles-teasing-new-album-hs4.html) - The Cut
+- [Harry Styles, AI & Grammy Contenders: Inside the U.K. Music Industry’s Hot Topics for 2026 - billboard.com](https://www.billboard.com/lists/uk-music-industry-2026-preview-harry-styles-ai-grammys/) - Billboard
+- [John Mayer Remembers Bob Weir: ‘Thanks for Letting Me Ride Alongside You’](http://www.rollingstone.com/music/music-news/john-mayer-bob-weir-tribute-dead-and-company-1235498027/) - Rolling Stone
+- [Bob Dylan, Trey Anastasio, Bruce Hornsby, and More Remember Bob Weir](https://pitchfork.com/news/bob-dylan-trey-anastasio-bruce-hornsby-and-more-remember-bob-weir/) - Pitchfork
+- [Bob Weir Made the Grateful Dead](https://www.theatlantic.com/culture/2026/01/bob-weir-grateful-dead-obituary/685586/) - The Atlantic
+- [John Mayer Pays Poignant Tribute To Bob Weir: “I’ll Meet You In The Music”](http://deadline.com/2026/01/john-mayer-bob-weir-tribute-grateful-dead-1236680601/) - Deadline
+- [Playing Grateful Dead songs with Bob Weir: Don Was remembers](https://www.npr.org/2026/01/12/nx-s1-5674896/don-was-bob-weir-wolf-bros-grateful-dead) - NPR
+- [Deadline Spotlight: Anatomy Of A Song – How Ed Sheeran And Blake Slatkin Kept ‘F1’s “Drive” “As Raw As Possible”](http://deadline.com/2026/01/ed-sheeran-drive-f1-blake-slatkin-anatomy-of-a-song-1236680679/) - Deadline
+- [Deadline Spotlight: Anatomy Of A Song – How Ed Sheeran And Blake Slatkin Kept ‘F1’s “Drive” “As Raw As Possible” - Deadline](https://deadline.com/2026/01/ed-sheeran-drive-f1-blake-slatkin-anatomy-of-a-song-1236680679/) - Deadline
+- [Neko Case on Neon Grey Midnight Green, Making an Album About Music, and Why Spiders Deserve Better PR: Podcast](https://consequence.net/2026/01/neko-case-neon-grey-midnight-green-interview/) - Consequence.net
+- [A$AP Rocky Flies High in New “Helicopter$” Video: Watch](https://consequence.net/2026/01/asap-rocky-helicopters/) - Consequence.net
+- [A$AP Rocky and Winona Ryder Star in Surreal 'Punk Rocky' Video - Variety](https://variety.com/2026/music/news/asap-rocky-winona-ryder-punk-rocky-video-1236623927/) - Variety
+- [Winona Ryder in an A$AP Rocky Video? I Love 2026 Already - Vogue](https://www.vogue.com/article/winona-ryder-asap-rocky-music-video-punk-rocky) - Vogue
+- [A$AP Rocky Reveals His Childhood Crushes, His Plans for His Daughter’s Dates: ‘I’m Going to Pray for Them’ - Billboard](https://www.billboard.com/music/rb-hip-hop/asap-rocky-reveals-childhood-crushes-plans-daughter-dates-1236149774/) - Billboard
+- [Looking Ahead: A Release Calendar of Upcoming Albums in 2026 - Billboard](https://www.billboard.com/lists/new-albums-2026-calendar-new-music-releases-this-year/) - Billboard
+- [Black Label Society’s Next Album to Feature Ozzy Tribute That Will Surprise Absolutely No One](https://www.metalsucks.net/2026/01/12/black-label-societys-next-album-to-feature-ozzy-tribute-that-will-surprise-absolutely-no-one/) - MetalSucks
+- [Zach Bryan Releases Acoustic Version of ‘With Heaven on Top’ So He Doesn’t ‘Have to Hear Everyone Whine’](http://www.rollingstone.com/music/music-news/zach-bryan-drops-acoustic-version-of-with-heaven-on-top-1235497688/) - Rolling Stone
+- [Amazon Is Selling Beatles Nesting Dolls Inspired by Sgt. Pepper’s Lonely Hearts Club Band](http://www.rollingstone.com/product-recommendations/lifestyle/the-beatles-russian-nesting-dolls-merch-buy-online-1235498603/) - Rolling Stone
+- [Bruno Mars live 2026: Wer beim Vorverkauf dabei sein will, muss sich beeilen](https://www.giga.de/entertainment/bruno-mars-live-2026-wer-beim-vorverkauf-dabei-sein-will-muss-sich-beeilen--01J8FHZ8ZY0EYJ9DJ9CJ3HYP4H) - Giga
+- [BRUNO MARS ANNOUNCES ‘THE ROMANTIC TOUR’ - Levi's® Stadium](https://levisstadium.com/2026/01/bruno-mars-announces-the-romantic-tour/) - Levisstadium
+- [Bruno Mars sets Romantic tour: Inglewood stops to feature Anderson .Paak, Raye - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-01-08/bruno-mars-romantic-tour-sofi-anderson-paak-raye) - Latimes
+- [Bruno Mars Announces 2026 Stadium Tour Dates With Anderson .Paak, Victoria Monet, Raye, Leon Thomas - Variety](https://variety.com/2026/music/news/bruno-mars-2026-tour-dates-1236625758/) - Variety
+- [Bruno Mars’ Decade-in-the-Making New Album Gets Release Date - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/bruno-mars-new-album-the-romantic-release-date-1236466855/) - Hollywoodreporter
+- [Bruno Mars announces ‘Romantic Tour,’ two MetLife shows. Get tickets - New York Post](https://nypost.com/2026/01/08/ticket-sales/bruno-mars-romantic-tour-2026-where-to-buy-tickets-schedule/) - Nypost
+- [Bruno Mars Announces 'The Romantic' World Tour, His First Headlining Run in Nearly a Decade - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-the-romantic-tour-dates-1235495821/) - Rollingstone
