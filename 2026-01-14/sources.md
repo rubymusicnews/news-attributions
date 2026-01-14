@@ -1,0 +1,61 @@
+# Sources for 2026-01-14 News Episode 
+- [The Final Trip: The Last Performance by Every Departed Member of the Grateful Dead](http://www.rollingstone.com/music/music-features/last-performance-grateful-dead-1235498912/) - Rolling Stone
+- [Fare Thee Well, Bobby](https://kellblog.com/2026/01/12/fare-thee-well-bobby/) - Kellblog.com
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - Houston Public Media](https://www.houstonpublicmedia.org/npr/2026/01/11/nx-s1-4373822/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78/) - Houstonpublicmedia
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - AZPM News](https://news.azpm.org/s/102471-bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78/) - Azpm
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - WBHM 90.3](https://wbhm.org/npr-story/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78/) - Wbhm
+- [Bob Weir, Grateful Dead Co-Founder, Dead at 78 - Rolling Stone](https://www.rollingstone.com/music/music-news/bob-weir-grateful-dead-dead-obituary-1234810106/) - Rollingstone
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - WEKU](https://www.weku.org/npr-news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Weku
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Kansaspublicradio
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - South Carolina Public Radio](https://www.southcarolinapublicradio.org/news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Southcarolinapublicradio
+- [BTS stand to make $1bn as they announce mammoth comeback tour](https://www.bbc.com/news/articles/c79rqzv1e7ro) - BBC News
+- [Οι BTS ανακοίνωσαν παγκόσμια περιοδεία με 79 συναυλίες σε 34 πόλεις το 2026 – 2027](https://www.newsit.gr/lifestyle/oi-bts-anakoinosan-pagkosmia-periodeia-me-79-synaylies-se-34-poleis-to-2026-2027/4572953/) - Newsit.gr
+- [BTS melden sich mit riesiger Tour zurück](https://orf.at/stories/3417054/) - Orf.at
+- [Why K-Pop Sensation BTS’ Comeback Tour Is a Test Case for Live Tourism - Skift](https://skift.com/2026/01/14/why-k-pop-sensation-bts-comeback-tour-is-a-test-case-for-live-tourism/) - Skift
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- [BTS tour: The K-pop megastars return to live shows after hiatus - BBC](https://www.bbc.com/news/articles/c17zdwvp198o) - Bbc
+- [BTS marks new chapter with 2026 album, world tour - The Music Universe](https://themusicuniverse.com/bts-marks-new-chapter-with-2026-album-world-tour/) - Themusicuniverse
+- [BTS in tour mondiale: tutte le date della band coreana più famosa del mondo](https://www.ilgiornale.it/news/musica/bts-tour-mondiale-l-annuncio-attesissimo-e-grande-assenza-2594858.html) - Ilgiornale.it
+- [BTS marks new chapter with 2026 album, world tour - The Music Universe](https://themusicuniverse.com/bts-marks-new-chapter-with-2026-album-world-tour/) - Themusicuniverse
+- [BTS announces ‘largest’ world tour - CNN](https://www.cnn.com/2026/01/14/world/video/bts-world-tour-hanako-montgomery-digvid) - Cnn
+- [BTS 2026 Tour Dates Are Finally Out: All The Details - Forbes](https://www.forbes.com/sites/hannahabraham/2026/01/13/bts-2026-tour-dates-are-finally-out-all-the-details/) - Forbes
+- [BTS Announces Massive Global Tour: Here Are the Dates - Billboard](https://www.billboard.com/music/music-news/bts-tour-dates-2026-2027-1236153981/) - Billboard
+- [Eric Clapton 2026 tour: Full schedule, venues, and where to buy tickets](https://www.businessinsider.com/guides/tickets/where-to-buy-eric-clapton-tickets-concert-tour) - Business Insider
+- [Harry Styles Promised He Would Return ‘When the Time Is Right.’ Is That Moment Here?](http://www.rollingstone.com/music/music-features/harry-styles-comeback-hints-1235498492/) - Rolling Stone
+- [Is Harry Styles Releasing A New Album in 2026? What We Know](https://hollywoodlife.com/feature/harry-styles-new-album-2026-5498150/) - Hollywood Life
+- [All the signs suggesting Harry Styles is about to drop a new album](https://pagesix.com/2026/01/13/entertainment/signs-suggesting-harry-styles-is-about-to-drop-a-new-album/) - Page Six
+- [Harry Styles teases fourth album with cryptic posters - BBC](https://www.bbc.com/news/articles/c801pe4l49do) - Bbc
+- [BTS reveal comeback tour after completing military service](https://news.sky.com/story/k-pop-stars-bts-reveal-comeback-tour-after-completing-military-service-13493833) - Sky.com
+- [BTS Unveil Release Date for New Album, Tease 2026 Tour - Pitchfork](https://pitchfork.com/news/bts-unveil-release-date-for-new-album-tease-2026-tour/) - Pitchfork
+- [BTS to release new album, go on tour after mandatory military service - USA Today](https://www.usatoday.com/story/entertainment/music/2026/01/05/bts-new-album-world-tour-2026/88032438007/) - Usatoday
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - ABC News](https://abcnews.go.com/Entertainment/wireStory/bts-announces-march-comeback-date-putting-end-year-128853592) - Go
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - AP News](https://apnews.com/article/bts-comeback-deabc3c4a7e98de2a5368e1cbf06f0af) - Apnews
+- [BTS announces March comeback date, putting an end to a nearly four-year hiatus - Greenwich Time](https://www.greenwichtime.com/entertainment/article/bts-announces-march-comeback-date-putting-an-end-21273303.php) - Greenwichtime
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- ["My god, we were such impatient boys." How a David Bowie screw-up and some dramatic miming on British TV helped Queen secure their first hit single](https://www.loudersound.com/bands-artists/the-story-behind-queens-first-hit-single) - Louder
+- [Madison Beer Sets 2026 'Locket Tour' Dates, Including Her Biggest Headlining Shows Yet - Ticket Info Revealed!](https://www.justjared.com/2026/01/13/madison-beer-sets-2026-locket-tour-dates-including-her-biggest-headlining-shows-yet-ticket-info-revealed/) - Just Jared
+- [Madison Beer’s Locket Tour Dates for North America & Europe Revealed: ‘Can’t Believe This Is Real’ - Billboard](https://www.billboard.com/music/music-news/madison-beer-locket-tour-dates-1236154185/) - Billboard
+- [Looking Ahead: A Release Calendar of Upcoming Albums in 2026 - Billboard](https://www.billboard.com/lists/new-albums-2026-calendar-new-music-releases-this-year/) - Billboard
+- ["We get off stage and I haven’t seen him like that in 20 years. He was livid." How Metallica's crazy team-up with Lady Gaga started with an A-list dinner party and almost ended in total chaos](https://www.loudersound.com/music-industry/award-shows/we-get-off-stage-and-i-havent-seen-him-like-that-in-20-years-he-was-livid-how-metallicas-crazy-team-up-with-lady-gaga-started-with-an-a-list-dinner-party-and-almost-ended-in-total-chaos) - Louder
+- [Sunn O))) Announce New Album and 2026 Tour, Unveil Single “Glory Black”: Stream](https://consequence.net/2026/01/sunn-o-new-album-2026-tour-glory-black-stream/) - Consequence.net
+- [Sunn O))) Don Their Cloaks for New Album, Song, and Tour](https://pitchfork.com/news/sunn-o-don-their-cloaks-for-new-album-song-and-tour/) - Pitchfork
+- [SUNN O))) Announce Self-Titled New Album, Their First Since 2019 & Debut On Sub Pop](https://metalinjection.net/new-music/sunn-o-announce-self-titled-new-album-their-first-since-2019-debut-on-sub-pop) - Metal Injection.net
+- [Sunn O))) to Release New Self-Titled Album This April, “Glory Back” Streaming Now](https://www.metalsucks.net/2026/01/13/sunn-o-to-release-new-self-titled-album-this-april-glory-back-streaming-now/) - MetalSucks
+- [130 Tracks of Guitar Per Song? Sunn O))) Is Back, and Going Big. - The New York Times](https://www.nytimes.com/2026/01/13/arts/music/sunn-o-new-album-sub-pop.html) - Nytimes
+- [Sunn O))) announce new self-titled album - treblezine.com](https://www.treblezine.com/sunn-o-announce-new-self-titled-album/) - Treblezine
+- [Slayyyter Announces Third Album ‘Wor$t Girl in America,’ Preps New Single ‘Dance…’](https://variety.com/2026/music/news/slayyyter-announces-third-album-worst-girl-in-america-1236629872/) - Variety
+- [Slayyyter’s WOR$T GIRL IN AMERICA: release date, album art, and more](https://www.thefader.com/2026/01/13/slayyyter-announce-new-album) - The FADER
+- [Fcukers Announce Debut Album Ö, Reveal 2026 Tour Dates and New Song: Stream](https://consequence.net/2026/01/fcukers-new-album-o-2026-tour-lucky-stream/) - Consequence.net
+- [Five Finger Death Punch Announce Huge 2026 Tour](https://loudwire.com/five-finger-death-punch-2026-tour-2/) - Loudwire
+- [FIVE FINGER DEATH PUNCH Announce 2026 North America Tour With CODY JINKS & EVA UNDER FIRE](https://metalinjection.net/tour-dates/five-finger-death-punch-announce-2026-north-america-tour-with-cody-jinks-eva-under-fire) - Metal Injection.net
+- [Five Finger Death Punch Announce 2026 North American Tour](https://consequence.net/2026/01/five-finger-death-punch-2026-north-american-tour/) - Consequence.net
+- [FIVE FINGER DEATH PUNCH Announces Massive 2026 North American Leg Of 20th-Anniversary Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/five-finger-death-punch-announces-massive-2026-north-american-leg-of-20th-anniversary-tour) - Blabbermouth
+- [Rock band to play Syracuse amphitheater on 20th anniversary tour - Syracuse.com](https://www.syracuse.com/entertainment/2026/01/rock-band-to-play-syracuse-amphitheater-on-20th-anniversary-tour.html) - Syracuse
+- [Why listening parties are everywhere right now](https://www.dazeddigital.com/music/article/69407/1/why-listening-parties-are-everywhere-right-now-rosalia-album-launch-artist?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=why-listening-parties-are-everywhere-right-now) - Dazed
+- [Introducing Listening Activity and Request to Jam in Messages on Spotify - Spotify — For the Record](https://newsroom.spotify.com/2026-01-07/listening-activity-request-to-jam-messages-updates/) - Spotify
+- [A$AP Rocky Goes Dumb In New PlayStation-Inspired “Helicopter” Video: Watch](http://hiphopdx.com/news/asap-rocky-helicopter-video/) - HipHopDX
+- [A$AP Rocky To Perform For Amazon Music's "Songline" Series On Yams Day: Here's Where To Watch](https://www.rap-up.com/article/asap-rocky-amazon-music-songline-yams-day-2026) - Rap-Up.com
+- [A$AP Rocky and Winona Ryder Star in Surreal 'Punk Rocky' Video - Variety](https://variety.com/2026/music/news/asap-rocky-winona-ryder-punk-rocky-video-1236623927/) - Variety
+- [Winona Ryder in an A$AP Rocky Video? I Love 2026 Already - Vogue](https://www.vogue.com/article/winona-ryder-asap-rocky-music-video-punk-rocky) - Vogue
+- [A$AP Rocky Reveals His Childhood Crushes, His Plans for His Daughter’s Dates: ‘I’m Going to Pray for Them’ - Billboard](https://www.billboard.com/music/rb-hip-hop/asap-rocky-reveals-childhood-crushes-plans-daughter-dates-1236149774/) - Billboard
+- [Looking Ahead: A Release Calendar of Upcoming Albums in 2026 - Billboard](https://www.billboard.com/lists/new-albums-2026-calendar-new-music-releases-this-year/) - Billboard
