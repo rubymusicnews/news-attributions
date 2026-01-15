@@ -1,0 +1,54 @@
+# Sources for 2026-01-15 News Episode 
+- [K-pop heartthrobs BTS to kick off world tour in April](https://www.digitaljournal.com/world/k-pop-heartthrobs-bts-to-kick-off-world-tour-in-april/article) - Digital Journal
+- [See the dates and ticket plans for the BTS tour that starts in April](https://www.bostonherald.com/2026/01/14/music-bts-world-tour/) - Boston Herald
+- [K-pop heartthrobs BTS to kick off world tour in April](https://www.digitaljournal.com/entertainment/k-pop-heartthrobs-bts-to-kick-off-world-tour-in-april/article) - Digital Journal
+- [Why K-Pop Sensation BTS’ Comeback Tour Is a Test Case for Live Tourism - Skift](https://skift.com/2026/01/14/why-k-pop-sensation-bts-comeback-tour-is-a-test-case-for-live-tourism/) - Skift
+- [K-Pop sensation BTS to return with new album on March 20 - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-return-with-new-album-march-20-2026-01-01/) - Reuters
+- [BTS tour: The K-pop megastars return to live shows after hiatus - BBC](https://www.bbc.com/news/articles/c17zdwvp198o) - Bbc
+- [BTS marks new chapter with 2026 album, world tour - The Music Universe](https://themusicuniverse.com/bts-marks-new-chapter-with-2026-album-world-tour/) - Themusicuniverse
+- [Is BTS coming to India in 2026? K-pop band finally announces world tour dates and cities. Venues, when and where to book tickets online](https://economictimes.indiatimes.com/magazines/panache/is-bts-coming-to-india-in-2026-k-pop-band-finally-announces-world-tour-dates-and-cities-venues-when-and-where-to-book-tickets-online/articleshow/126515705.cms) - The Times of India
+- [BTS 2026 Tour Dates Are Finally Out: All The Details - Forbes](https://www.forbes.com/sites/hannahabraham/2026/01/13/bts-2026-tour-dates-are-finally-out-all-the-details/) - Forbes
+- [BTS Unveil Highly-Anticipated Comeback World Tour Dates - Rolling Stone](https://www.rollingstone.com/music/music-news/bts-2026-comeback-stadium-tour-1235498726/) - Rollingstone
+- [BTS announces ‘largest’ world tour - CNN](https://www.cnn.com/2026/01/14/world/video/bts-world-tour-hanako-montgomery-digvid) - Cnn
+- [BTS Announces Massive Global Tour: Here Are the Dates - Billboard](https://www.billboard.com/music/music-news/bts-tour-dates-2026-2027-1236153981/) - Billboard
+- [Music streams hit 5 trillion in 2025. Christian, rock and Latin lead growth in the US](https://www.bostonherald.com/2026/01/14/music-streaming-2025/) - Boston Herald
+- [Music streams hit 5 trillion in 2025. Christian, rock and Latin lead growth in the US](https://abcnews.go.com/Technology/wireStory/music-streams-hit-5-trillion-2025-christian-rock-129201253) - ABC News
+- [Music streams hit 5 trillion in 2025. Christian, rock and Latin lead growth in the US - AP News](https://apnews.com/article/music-listening-habits-2025-christian-rock-latin-a5e06a001705cd7e5d3854d8fab901b8) - Apnews
+- [Music streams hit 5 trillion in 2025. Christian, rock and Latin lead growth in the US - Greenwich Time](https://www.greenwichtime.com/entertainment/article/music-streams-hit-5-trillion-in-2025-christian-21294212.php) - Greenwichtime
+- [Flea Announces New Album Honora, Reveals “Traffic Lights” with Thom Yorke: Stream](https://consequence.net/2026/01/flea-honora-traffic-lights-2026-tour-dates/) - Consequence.net
+- [Thom Yorke and Nick Cave to appear on Flea's debut solo album, Honora](https://www.thelineofbestfit.com/news/thom-yorke-nick-cave-and-more-to-appear-on-fleas-debut-solo-album-honora) - Thelineofbestfit.com
+- [Flea Reveals Debut Solo Album ‘Honora’ Release Date, Announces Tour](http://www.rollingstone.com/music/music-news/flea-honora-album-release-date-tour-1235499268/) - Rolling Stone
+- [Flea Announces Debut Solo Album, Tour, and New Song With Thom Yorke](https://pitchfork.com/news/flea-announces-debut-solo-album-tour-and-new-song-with-thom-yorke/) - Pitchfork
+- [RED HOT CHILI PEPPERS' FLEA Announces Debut Solo Album 'Honora', Shares 'Traffic Lights' Single - BLABBERMOUTH.NET](https://blabbermouth.net/news/red-hot-chili-peppers-flea-announces-debut-solo-album-honora-shares-traffic-lights-single) - Blabbermouth
+- [Flea Reunites With Atoms For Peace Bandmate Thom Yorke On New Single "Traffic Lights" - Stereogum](https://stereogum.com/2485235/flea-reunites-with-atoms-for-peace-bandmate-thom-yorke-on-new-single-traffic-lights/music) - Stereogum
+- [Flea announces debut solo album & tour, shares "Traffic Lights" ft Thom Yorke - BrooklynVegan](https://www.brooklynvegan.com/flea-announces-debut-solo-album-tour-shares-traffic-lights-ft-thom-yorke/) - Brooklynvegan
+- [The 2 Metallica Songs James Hetfield Finds Difficult to Play Live](https://loudwire.com/james-hetfield-names-metallica-songs-difficult-play-live/) - Loudwire
+- [Back to the 1970s in 'Paul McCartney: Man on the Run' Doc Full Trailer](https://www.firstshowing.net/2026/back-to-the-1970s-in-paul-mccartney-man-on-the-run-doc-full-trailer/) - First Showing
+- [Trailer for Paul McCartney Documentary Man on the Run Captures His Posts Beatles-Era: Watch - Consequence of Sound](https://consequence.net/2026/01/watch-trailer-paul-mcartney-doc/) - Consequence
+- [Watch Paul McCartney in Trailer for ‘Man on the Run’ Documentary: ‘When We Started Wings, It Was About Freedom’ - Billboard](https://www.billboard.com/music/rock/paul-mccartney-man-on-the-run-trailer-wings-documentary-1236154648/) - Billboard
+- [Sting citato in giudizio per oltre 2 milioni di dollari di diritti per i brani dei Police: gli ex della band Andy Summers e Stewart Copeland sul piede di guerra](https://www.ilfattoquotidiano.it/2026/01/14/sting-citato-in-giudizio-per-oltre-2-milioni-di-dollari-di-diritti-per-i-brani-dei-police-gli-ex-della-band-andy-summers-e-stewart-copeland-sul-piede-di-guerra/8256170/) - Ilfattoquotidiano.it
+- [A Londra battaglia legale di Summers e Copeland contro Sting sui diritti dei Police](https://www.ansa.it/sito/notizie/cultura/musica/2026/01/14/a-londra-battaglia-legale-di-summers-e-copeland-contro-sting-sui-diritti-dei_fa6fc932-4bb8-4b5f-94a6-de945aa716a6.html) - ANSA.it
+- [Every cent you take: Sting, ex-Police band mates in royalty battle](https://www.digitaljournal.com/world/every-cent-you-take-sting-ex-police-band-mates-in-royalty-battle/article) - Digital Journal
+- [Every cent you take: Sting, ex-Police bandmates in royalty battle](https://japantoday.com/category/entertainment/every-cent-you-take-sting-ex-police-band-mates-in-royalty-battle) - Japan Today
+- [Sting pays £595k to The Police bandmates, court hears](https://news.sky.com/story/sting-pays-595k-to-the-police-bandmates-court-hears-13494279) - Sky.com
+- [Every cent you take: Sting, ex-Police band mates in royalty battle](https://financialpost.com/legal-post/sting-police-band-mates-royalty-battle) - Financial Post
+- [Sting, King of Pain, Surrenders Royalties to Police Bandmates](https://exclaim.ca/music/article/sting-king-of-pain-surrenders-royalties-to-police-bandmates) - Exclaim!
+- [The Police vor Gericht](https://orf.at/stories/3417128/) - Orf.at
+- [Apple’s Shazam predicts 2026 stars: Fast Forward list names 65 artists set to explode](https://macdailynews.com/2026/01/14/apples-shazam-predicts-2026-stars-fast-forward-list-names-65-artists-set-to-explode/) - Macdailynews.com
+- ["Someone spat at our saxophone player, so Tim kicked this guy in the mouth – absolutely perfectly in time to the music": A brief history of Cardiacs, the UK's most adored detested band](https://www.loudersound.com/bands-artists/cardiacs-lsd-interview-history) - Louder
+- [Circle Chart Reveals Year-End Digital And Album Charts For 2025](http://www.soompi.com/article/1812104wpp/circle-chart-reveals-year-end-digital-and-album-charts-for-2025) - soompi
+- [Korea’s Top Chart Reveals Stray Kids Earn Biggest KPop Album Of 2025 - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/01/09/koreas-top-chart-reveals-stray-kids-earn-biggest-kpop-album-of-2025/) - Forbes
+- [Odeal And Wizkid Set The Mood In Flirtatious “Nights In The Sun” Music Video — Watch Here](https://www.rap-up.com/article/odeal-wizkid-nights-in-the-sun-music-video) - Rap-Up.com
+- [Bandcamp Bans All Music Made with AI](https://consequence.net/2026/01/bandcamp-bans-all-ai-music/) - Consequence.net
+- [Bandcamp Bans AI-Generated Music in Bid to 'Keep Bandcamp Human'](https://www.cnet.com/culture/entertainment/bandcamp-bans-ai-generated-music-in-bid-to-keep-bandcamp-human/) - CNET
+- [As AI Music Floods the Zone, Bandcamp Takes a Stand - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/bandcamp-bans-ai-music-on-platform-1236473722/) - Hollywoodreporter
+- [Bandcamp becomes the first major music platform to ban AI content - The Verge](https://www.theverge.com/news/861794/bandcamp-ban-ai-music) - Theverge
+- [Music marketplace Bandcamp bypasses AI disclosures and obtuse policies to announce a wholesale ban on AI slop - PC Gamer](https://www.pcgamer.com/gaming-industry/music-marketplace-bandcamp-bypasses-ai-disclosures-and-obtuse-policies-to-announce-a-wholesale-ban-on-ai-slop/) - Pcgamer
+- [Bandcamp Bans AI-Generated Songs in a First for Major Online Music Platforms - Billboard](https://www.billboard.com/pro/bandcamp-bans-ai-generated-music-songs-policy/) - Billboard
+- [How Langhorne Slim Went Electric With Greta Van Fleet](http://www.rollingstone.com/music/music-features/langhorne-slim-dreamin-kind-greta-van-fleet-podcast-1235498827/) - Rolling Stone
+- [Fun Trailer for Music Comedy Movie 'K-Pops!' Starring Anderson .Paak](https://www.firstshowing.net/2026/fun-trailer-for-music-comedy-movie-k-pops-starring-anderson-paak/) - First Showing
+- [Anderson .Paak Dives Into the World of Korean Music Competition Series in ‘K-Pops!’ Trailer - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-news/anderon-paak-kpops-trailer-poster-debut-1236473280/) - Hollywoodreporter
+- [Watch Anderson .Paak Invade the K-Pop Scene in the Trailer for His Directorial Debut ‘K-POPS!’ - billboard.com](https://www.billboard.com/music/rb-hip-hop/anderson-paak-trailer-k-pops-1236155031/) - Billboard
+- [Anderson .Paak's Directorial Debut, 'K-Pops!,' Drops Its First Trailer - Forbes](https://www.forbes.com/sites/laurasirikul/2026/01/14/anderson-paaks-directorial-debut-k-pops-drops-its-first-trailer/) - Forbes
+- [Harry Styles Teases 'We Belong Together' in Voice Memo to Fans Ahead of Music Comeback](https://www.justjared.com/2026/01/14/harry-styles-teases-we-belong-together-in-voice-memo-to-fans-ahead-of-music-comeback/) - Just Jared
+- [Harry Styles teases fourth album with cryptic posters - BBC](https://www.bbc.com/news/articles/c801pe4l49do) - Bbc
