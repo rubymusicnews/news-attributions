@@ -1,0 +1,54 @@
+# Sources for 2026-01-16 News Episode 
+- [BTS Announce Fifth Studio Album 'ARIRANG': Here's What It Means](https://www.justjared.com/2026/01/15/bts-announce-fifth-studio-album-arirang-heres-what-it-means/) - Just Jared
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [The new BTS album title and what to know about the K-pop band’s comeback - Greenwich Time](https://www.greenwichtime.com/entertainment/article/the-new-bts-album-title-and-what-to-know-about-21296763.php) - Greenwichtime
+- [BTS’s Next Album Is Titled ‘Arirang’ - Billboard](https://www.billboard.com/music/pop/bts-next-album-titled-arirang-1236156289/) - Billboard
+- [BTS Reveals New Details About Upcoming Album And World Tour - Soompi](https://www.soompi.com/article/1809750wpp/bts-reveals-new-details-about-upcoming-album-and-world-tour) - Soompi
+- [Song banned from Swedish charts for being AI creation](https://www.bbc.com/news/articles/cp829jey9z7o) - BBC News
+- [Bandcamp bans AI-generated music - DJ Mag](https://djmag.com/news/bandcamp-bans-ai-generated-music) - Djmag
+- [Bandcamp Bans AI-Generated Songs in a First for Major Online Music Platforms - Billboard](https://www.billboard.com/pro/bandcamp-bans-ai-generated-music-songs-policy/) - Billboard
+- [Music marketplace Bandcamp bypasses AI disclosures and obtuse policies to announce a wholesale ban on AI slop - PC Gamer](https://www.pcgamer.com/gaming-industry/music-marketplace-bandcamp-bypasses-ai-disclosures-and-obtuse-policies-to-announce-a-wholesale-ban-on-ai-slop/) - Pcgamer
+- [Bandcamp becomes the first major music platform to ban AI content - The Verge](https://www.theverge.com/news/861794/bandcamp-ban-ai-music) - Theverge
+- [Harry Styles Announces New Album Kiss All the Time. Disco, Occasionally.](https://pitchfork.com/news/harry-styles-announces-new-album-kiss-all-the-time-disco-occasionally/) - Pitchfork
+- [Ha-Ha-Harry Styles Has a Jokey New Album Title](http://www.vulture.com/article/harry-styles-kiss-all-the-time-disco-occasionally-album-release-date.html) - Vulture
+- [Pre-Orders Open for Harry Styles’ New Record!](https://fuckingyoung.es/pre-orders-open-for-harry-styles-new-record/) - Fuckingyoung.es
+- [Harry Styles' Comeback: New Album, Hair, And Disco Vibes](https://screenrant.com/harry-styles-new-comeback-album-kiss-all-the-time-disco-occasionally/) - Screen Rant
+- [Harry Styles announces first album in 4 years, 'Kiss All the Time. Disco, Occasionally' - Greenwich Time](https://www.greenwichtime.com/entertainment/article/harry-styles-announces-first-album-in-4-years-21297117.php) - Greenwichtime
+- [Harry Styles announces 4th album after hiatus, ‘Kiss All the Time. Disco, Occasionally' - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/harry-styles-album-kiss-all-the-time-disco-occasionally/6444505/?amp=1) - Nbcnewyork
+- [Harry Styles announces fourth album Kiss All The Time. Disco, Occasionally. - BBC](https://www.bbc.com/news/articles/cj3vlj0pejvo) - Bbc
+- [Harry Styles Announces New Album ‘Kiss All the Time. Disco, Occasionally’: Here’s When It Arrives - Billboard](https://www.billboard.com/music/music-news/harry-styles-new-album-kiss-all-the-time-release-date-1236154587/) - Billboard
+- [Debate: Will the return of Rush be the biggest prog event of 2026?](https://www.loudersound.com/bands-artists/debate-biggest-prog-event-of-2026) - Louder
+- [76 biggest classic rock tours 2026: See RUSH, AC/DC, more - New York Post](https://nypost.com/ticket-sales/76-biggest-classic-rock-concerts-of-2026-get-tickets-artists/) - Nypost
+- [Paul McCartney Remembers Sharing a Stage With Bob Weir: He ‘Inspired Many People’](http://www.rollingstone.com/music/music-news/paul-mccartney-bob-weir-tribute-1235500053/) - Rolling Stone
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - Houston Public Media](https://www.houstonpublicmedia.org/npr/2026/01/11/nx-s1-4373822/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78/) - Houstonpublicmedia
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - AZPM News](https://news.azpm.org/s/102471-bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78/) - Azpm
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - WBHM 90.3](https://wbhm.org/npr-story/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78/) - Wbhm
+- [Bob Weir, Grateful Dead Co-Founder, Dead at 78 - Rolling Stone](https://www.rollingstone.com/music/music-news/bob-weir-grateful-dead-dead-obituary-1234810106/) - Rollingstone
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - WEKU](https://www.weku.org/npr-news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Weku
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Kansaspublicradio
+- [Bob Weir, guitarist and founding member of the Grateful Dead, has died at 78 - South Carolina Public Radio](https://www.southcarolinapublicradio.org/news/2026-01-10/bob-weir-guitarist-and-founding-member-of-the-grateful-dead-has-died-at-78) - Southcarolinapublicradio
+- [Paul McCartney Reveals ‘Man on the Run’ Trailer Chronicling Life After the Beatles](http://www.rollingstone.com/music/music-news/paul-mccartney-man-on-the-run-trailer-linda-the-beatles-1235499875/) - Rolling Stone
+- [Trailer for Paul McCartney Documentary Man on the Run Captures His Posts Beatles-Era: Watch - Consequence of Sound](https://consequence.net/2026/01/watch-trailer-paul-mcartney-doc/) - Consequence
+- [Watch Paul McCartney in Trailer for ‘Man on the Run’ Documentary: ‘When We Started Wings, It Was About Freedom’ - Billboard](https://www.billboard.com/music/rock/paul-mccartney-man-on-the-run-trailer-wings-documentary-1236154648/) - Billboard
+- [Aldous Harding to Tour Europe and North America](https://pitchfork.com/news/aldous-harding-to-tour-europe-and-north-america/) - Pitchfork
+- [Radiohead’s Critically-Acclaimed Album Hits The Top 10 For The First Time](https://www.forbes.com/sites/hughmcintyre/2026/01/15/radioheads-critically-acclaimed-album-hits-the-top-10-for-the-first-time/) - Forbes
+- [Bruno Mars 2026 tour: Dates, cities, and where to buy tickets](https://www.businessinsider.com/guides/tickets/where-to-buy-bruno-mars-tickets-concert-tour) - Business Insider
+- [BRUNO MARS ANNOUNCES ‘THE ROMANTIC TOUR’ - Levi's® Stadium](https://levisstadium.com/2026/01/bruno-mars-announces-the-romantic-tour/) - Levisstadium
+- [Bruno Mars sets Romantic tour: Inglewood stops to feature Anderson .Paak, Raye - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-01-08/bruno-mars-romantic-tour-sofi-anderson-paak-raye) - Latimes
+- [Bruno Mars Announces 2026 Stadium Tour Dates With Anderson .Paak, Victoria Monet, Raye, Leon Thomas - Variety](https://variety.com/2026/music/news/bruno-mars-2026-tour-dates-1236625758/) - Variety
+- [Bruno Mars’ Decade-in-the-Making New Album Gets Release Date - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/bruno-mars-new-album-the-romantic-release-date-1236466855/) - Hollywoodreporter
+- [Bruno Mars announces ‘Romantic Tour,’ two MetLife shows. Get tickets - New York Post](https://nypost.com/2026/01/08/ticket-sales/bruno-mars-romantic-tour-2026-where-to-buy-tickets-schedule/) - Nypost
+- [Bruno Mars Announces 'The Romantic' World Tour, His First Headlining Run in Nearly a Decade - Rolling Stone](https://www.rollingstone.com/music/music-news/bruno-mars-the-romantic-tour-dates-1235495821/) - Rollingstone
+- ["We went to his place, had a jam, and then he asked if I’d ever played with a Ouija board." Ball lightning, a freak house fire and the occult: how one classic 80s anthem officially crowned the queen of heavy metal](https://www.loudersound.com/music/albums/warlock-story-behind-the-song-touch-of-evil) - Louder
+- [Rob Zombie Teaming Up with Marilyn Manson for 2026 “Freaks on Parade” Tour](https://consequence.net/2026/01/rob-zombie-marilyn-manson-2026-tour/) - Consequence.net
+- ["We’re heading intooblivion...particularly here in America. Things are acceptable now that would’ve horrified people 20 years ago." One of the 21st century's best metal bands is back with a new album – listen to the ferociousnew Lamb Of God single here](https://www.loudersound.com/bands-artists/lamb-of-god-into-oblivion-single) - Louder
+- [LAMB OF GOD Announce New Album Into Oblivion, Share Ferocious Title Track](https://metalinjection.net/new-music/lamb-of-god-announce-new-album-into-oblivion-share-ferocious-title-track) - Metal Injection.net
+- [Lamb of God Unveil New Album ‘Into Oblivion’, Title Track Streaming Now](https://www.metalsucks.net/2026/01/15/lamb-of-god-unveil-new-album-into-oblivion-title-track-streaming-now/) - MetalSucks
+- [THE LAST TEN SECONDS OF LIFE Announce New Album The Dead Ones, Out April 17 Via Metal Blade Records](https://metalinjection.net/video/the-last-ten-seconds-of-life-announce-new-album-the-dead-ones-out-april-17-via-metal-blade-records) - Metal Injection.net
+- [New Book ‘George Martin: The Scores’ Reveals How the Beatles Producer Did It](http://www.rollingstone.com/music/music-features/george-martin-the-scores-book-beatles-1235499966/) - Rolling Stone
+- [Spencer Thomas Says What We’re All Thinking in a Pointed New Song](http://www.rollingstone.com/music/music-news/spencer-thomas-the-world-is-fucked-and-i-love-you-song-1235499553/) - Rolling Stone
+- [Sting’ pays former Police bandmates £600,000 in royalties’ as lawsuit continues](https://www.the-independent.com/arts-entertainment/music/news/sting-police-lawsuit-royalties-every-breath-b2900981.html) - The-independent.com
+- [Police royalties case reaches London’s High Court – Sting has now paid $800,000 to Summers and Copeland - MusicRadar](https://www.musicradar.com/artists/bands/police-royalties-case-reaches-londons-high-court-sting-has-now-paid-usd800-000-to-summers-and-copeland) - Musicradar
+- [Sting Pays $800,000 in Royalties to Police Bandmates Amid Lawsuit - Consequence of Sound](https://consequence.net/2026/01/sting-the-police-royalty-lawsuit-payment/) - Consequence
+- [Sting pays Police bandmates more than £500,000 in royalties - BBC](https://www.bbc.com/news/articles/cn42lp1135vo) - Bbc
+- [Iconic singer pays legendary band thousands in back royalties for epic ‘80s hit - AL.com](https://www.al.com/life/2026/01/iconic-singer-pays-legendary-band-thousands-in-back-royalties-for-epic-80s-hit.html) - Al
