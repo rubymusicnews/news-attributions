@@ -1,0 +1,38 @@
+# Sources for 2026-01-17 News Episode 
+- [Pitbull Announces 2026 Tour with Lil Jon](https://consequence.net/2026/01/pitbull-announces-2026-tour-with-lil-jon/) - Consequence.net
+- [Pitbull announces 2026 North American tour alongside Lil Jon](https://www.bostonherald.com/2026/01/16/pitbull-lil-jon-summer-tour-dates-presale-tickets/) - Boston Herald
+- [Pitbull Announces I’m Back Tour With Lil Jon as Special Guest: See All the Dates - billboard.com](https://www.billboard.com/music/latin/pitbull-im-back-tour-dates-lil-jon-special-guest-1236155439/) - Billboard
+- [The 26 Most Influential People in Music in 2026](https://www.spin.com/2026/01/the-26-most-influential-people-in-music-in-2026/) - SPIN
+- [10 Music Industry Predictions for 2026: AI, Live Nation, K-Pop & More - Billboard](https://www.billboard.com/pro/music-industry-predictions-2026-ai-live-nation-k-pop-more/) - Billboard
+- [AI-Generated Music Poses Legal Quandaries Around Transparency - Bloomberg Law News](https://news.bloomberglaw.com/business-and-practice/ai-generated-music-poses-legal-quandaries-around-transparency) - Bloomberglaw
+- [Music Business 2026: What to Expect — AI to Ticketing (Guest Column) - Billboard](https://www.billboard.com/pro/music-business-2026-what-expect-ai-ticketing-guest-column/) - Billboard
+- [UMG’s latest major AI partnership arrives via tech giant NVIDIA, with promise of ‘antidote to generic AI slop’ - Music Business Worldwide](https://www.musicbusinessworldwide.com/umgs-latest-major-ai-partnership-arrives-via-tech-giant-nvidia-with-promise-of-antidote-to-generic-ai-slop/) - Musicbusinessworldwide
+- [Bandcamp takes a stand against AI music, banning it from the platform - TechCrunch](https://techcrunch.com/2026/01/14/bandcamp-takes-a-stand-against-ai-music-banning-it-from-the-platform/) - Techcrunch
+- [What will give you the marketing edge in 2026?](http://musically.com/2026/01/16/what-will-give-you-the-marketing-edge-in-2026/) - Music Ally
+- [The Bookstore Boom Is Real: Why Physical Media Is Making a Comeback in 2026 - Military.com](https://www.military.com/feature/2026/01/02/bookstore-boom-real-why-physical-media-making-comeback-2026.html) - Military
+- [10 Music Industry Predictions for 2026: AI, Live Nation, K-Pop & More - Billboard](https://www.billboard.com/pro/music-industry-predictions-2026-ai-live-nation-k-pop-more/) - Billboard
+- [From Trending Sound to $43 Million Legal Receipt - ADWEEK](https://www.adweek.com/social-marketing/from-trending-sound-to-43-million-legal-receipt/) - Adweek
+- [Entertainment: Animated Soundtrack Dominance: The Netflix Streaming-to-Chart Pipeline - InsightTrendsWorld](https://www.insighttrendsworld.com/post/entertainment-animated-soundtrack-dominance-the-netflix-streaming-to-chart-pipeline) - Insighttrendsworld
+- [Music Biz Headlines: Universal Music Buys a Stake in India’s Excel Entertainment, Canadian Artist Babbulicious Plays Zohran Mamdani's Inauguration - Billboard Canada](https://ca.billboard.com/fyi/universal-music-excel-india-headlines) - Billboard
+- [Yellowcard Go Back in Time With Good Charlotte for ‘Bedroom Posters’](http://www.rollingstone.com/music/music-news/yellowcard-good-charlotte-bedroom-posters-1235500517/) - Rolling Stone
+- [Yellowcard Team Up with Good Charlotte for Single “Bedroom Posters”: Stream](https://consequence.net/2026/01/yellowcard-good-charlotte-bedroom-posters/) - Consequence.net
+- [Partly AI-Generated Folk-Pop Hit Barred From Sweden's Official Charts](https://entertainment.slashdot.org/story/26/01/16/1855241/partly-ai-generated-folk-pop-hit-barred-from-swedens-official-charts) - Slashdot.org
+- [AI track ‘Jag vet, du är inte min’ banned from Swedish charts](http://musically.com/2026/01/16/ai-track-jag-vet-du-ar-inte-min-banned-from-swedish-charts/) - Music Ally
+- [Song banned from Swedish charts for being AI creation - BBC](https://www.bbc.com/news/articles/cp829jey9z7o) - Bbc
+- [Bandcamp Bans AI-Generated Music in Bid to 'Keep Bandcamp Human' - CNET](https://www.cnet.com/culture/entertainment/bandcamp-bans-ai-generated-music-in-bid-to-keep-bandcamp-human/) - Cnet
+- [Drake Sees Several Of His Biggest Albums Climb To New Chart Peaks](https://www.forbes.com/sites/hughmcintyre/2026/01/16/drake-sees-several-of-his-biggest-albums-climb-to-new-chart-peaks/) - Forbes
+- [Catalan artist Lia Kali claims double victory at European Emerging Talent awards](https://www.thelineofbestfit.com/news/catalan-artist-lia-kali-claims-double-victory-at-european-emerging-talent-awards) - Thelineofbestfit.com
+- [Joe Keery Used His Stranger Things Money to Defy the Music Industry](http://www.vulture.com/article/joe-keery-stranger-things-finale-djo-end-of-beginning-success.html) - Vulture
+- [‘Stranger Things’ Finale Offers Huge Bumps to Prince & David Bowie Classics — But Saves Its Biggest Boost for One of Its Cast Members - Billboard](https://www.billboard.com/music/chart-beat/stranger-things-prince-djo-end-of-beginning-streams-1236150605/) - Billboard
+- [How the ‘Stranger Things’ Finale Helped Djo’s ‘End of Beginning’ Take Over the World - Billboard](https://www.billboard.com/pro/how-stranger-things-finale-djo-end-beginning-success/) - Billboard
+- [Djo Earns First Streaming Songs, Hot Rock & Alternative Songs No. 1 With ‘End of Beginning’ - billboard.com](https://www.billboard.com/pro/djo-streaming-songs-number-1-end-of-beginning/) - Billboard
+- [How Did Djo’s ‘End of Beginning’ Get the Biggest ‘Stranger Things’ Bump Without Being in the Show? - Billboard](https://www.billboard.com/music/chart-beat/djo-end-of-beginning-stranger-things-five-burning-questions-1236154386/) - Billboard
+- [Immolation To Release New Album "Descent" In April; Releases "Adversary" Music Video](http://www.metalunderground.com/news/details.cfm?newsid=160670) - Metalunderground.com
+- [Shawn “Clown” Crahan Says Slipknot Plans to Begin Writing New Music Soon](https://www.metalsucks.net/2026/01/16/shawn-clown-crahan-says-slipknot-plans-to-begin-writing-new-music-soon/) - MetalSucks
+- [Slipknot's Clown Addresses Status of Next Album](https://loudwire.com/shawn-clown-crahan-next-slipknot-album-status-2026/) - Loudwire
+- [Metal Hammer reader's poll - the best metal albums of 2025](https://www.loudersound.com/music/albums/metal-hammer-readers-poll-the-best-metal-albums-of-2025) - Louder
+- ["This record will make every other record in 2026 look like dimwitted hippie bulls***": Gluecifer's first album in two decades is sleazy, slinky, snotty and packed with blood-guzzling scorchers](https://www.loudersound.com/bands-artists/gluecifer-same-drug-new-high) - Louder
+- [Dolly Parton Celebrates 80th Birthday By Giving Back—With a Little Help From Some Famous Friends](https://www.vanityfair.com/culture/story/dolly-parton-80th-birthday-light-of-a-clear-blue-morning) - Vanity Fair
+- [Something Is About to Happen to Mitski (It’s an Album Release)](http://www.vulture.com/article/mitski-new-music-nothings-about-to-happen-to-me-details.html) - Vulture
+- [Nothing's About to Happen to Me (hmv Exclusive) Blue Cat Eye LP - HMV](https://hmv.com/store/music/vinyl/nothing-s-about-to-happen-to-me-(hmv-exclusive)-bl) - Hmv
+- [Mitski, Flea: 8 Songs We’re Talking About This Week - The New York Times](https://www.nytimes.com/2026/01/17/arts/music/mitski-flea-new-songs.html) - Nytimes
