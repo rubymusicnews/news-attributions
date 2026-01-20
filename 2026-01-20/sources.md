@@ -1,0 +1,30 @@
+# Sources for 2026-01-20 News Episode 
+- [Jacob Alon crowned Brits Critics' Choice winner](https://www.bbc.com/news/articles/cg5g1gvn335o) - BBC News
+- [Jacob Alon left ‘floating’ after being named winner of Brits Critics’ Choice award](https://www.the-independent.com/arts-entertainment/music/jacob-alon-brits-critics-choice-award-2026-winner-b2903416.html) - The-independent.com
+- ["I’m grateful to find a place for softness": BRITs 2026 kicks off with Critics’ Choice award for Jacob Alon](https://www.thelineofbestfit.com/news/brits-2026-kicks-off-with-critics-choice-award-for-jacob-alon) - Thelineofbestfit.com
+- [Jacob Alon Crowned 2026 BRITs’ Critics’ Choice Winner - Billboard](https://www.billboard.com/music/awards/jacob-alon-brits-critics-choice-2026-winner-1236157435/) - Billboard
+- [Amazon Music, Spotify and Shazam’s picks of the Indian artists to watch in 2026](http://musically.com/2026/01/19/amazon-music-spotify-and-shazams-picks-of-the-indian-artists-to-watch-in-2026/) - Music Ally
+- [Eurosonic Noorderslag is holding the centre](https://www.thelineofbestfit.com/features/festivals/eurosonic-noorderslag-2026-groningen-showcase-holding-the-centre) - Thelineofbestfit.com
+- [A United Europe & Thrilling Rising Stars: 5 Stories to Look Out For at ESNS 2026 - Billboard](https://www.billboard.com/lists/eurosonic-2026-festival-preview/) - Billboard
+- [Kanye West set to perform in India, says report. Check expected concert dates, track list and more tour details](https://economictimes.indiatimes.com/magazines/panache/kanye-west-set-to-perform-in-india-says-report-check-expected-concert-dates-track-list-and-more-tour-details/articleshow/126695696.cms) - The Times of India
+- [Watch 15 Different Incarnations of Grateful Dead Perform ‘Ripple’ Over 56 Years](http://www.rollingstone.com/music/music-features/grateful-dead-ripple-performance-history-1235501555/) - Rolling Stone
+- [Watch 15 Different Incarnations of Grateful Dead Perform ‘Ripple’ Over 56 Years - Rolling Stone](https://www.rollingstone.com/music/music-features/grateful-dead-ripple-performance-history-1235501555/) - Rollingstone
+- [Grateful Dead music surges on streaming ahead of Bob Weir memorial in San Francisco - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/grateful-dead-streams-surge-21299597.php) - Sfchronicle
+- [Watch John Mayer Pay Tribute to Bob Weir With “Ripple” Cover - Pitchfork](https://pitchfork.com/news/watch-john-mayer-pay-tribute-to-bob-weir-with-ripple-cover/) - Pitchfork
+- [Groove Cruise 2026: World's Largest Cruise Music Festival On Wonder Of The Seas](https://screenrant.com/groove-cruise-2026-worlds-largest-festival/) - Screen Rant
+- [Inside the Sound: BUNT. and Sonos reimagine “Clouds”](http://www.rollingstone.com/music/music-news/bunt-sonos-clouds-1235499041/) - Rolling Stone
+- [Singaporean Iskandar Ismail beats contestants from Malaysia, Indonesia and the Philippines to win singing competition](https://www.asiaone.com/entertainment/singaporean-iskandar-ismail-wins-malaysia-singing-competition-gegar-varganza) - AsiaOne
+- [Singapore cements its role as a hub for art—and artists—in Southeast Asia - The Art Newspaper](https://www.theartnewspaper.com/2026/01/20/singapore-cements-its-role-as-a-hub-for-art-and-artists-in-southeast-asia) - Theartnewspaper
+- [Fleetwood Mac Debuts A Song On The Hot 100 After A 20 Year Hiatus](https://www.forbes.com/sites/hughmcintyre/2026/01/19/fleetwood-mac-debuts-a-song-on-the-hot-100-after-a-20-year-hiatus/) - Forbes
+- [Fleetwood Mac’s ‘Landslide’ Debuts on Hot 100 More Than 50 Years After Its Release - Billboard](https://www.billboard.com/music/chart-beat/fleetwood-mac-landslide-hot-100-debut-50-years-later-1236154035/) - Billboard
+- [Olivia Dean’s Hot Start to 2026 Continues as ‘The Art of Loving’ Scores U.K. No. 1 Album Spot - Billboard](https://www.billboard.com/music/chart-beat/olivia-dean-art-of-loving-number-1-uk-albums-chart-4th-week-1236152080/) - Billboard
+- [‘Stranger Things’ brings Prince and Fleetwood Mac back to the charts - NPR](https://www.npr.org/2026/01/14/nx-s1-5675147/stranger-things-prince-fleetwood-mac-kate-bush) - Npr
+- [‘Stranger Things’ brings Prince and Fleetwood Mac back to the charts - WBHM 90.3](https://wbhm.org/npr-story/stranger-things-brings-prince-and-fleetwood-mac-back-to-the-charts/) - Wbhm
+- [Bruno Mars dropped in to Roblox hit game Steal A Brainrot](http://musically.com/2026/01/19/bruno-mars-dropped-in-to-roblox-hit-game-steal-a-brainrot/) - Music Ally
+- [Bruno Mars Is Performing A Roblox Steal A Brainrot Concert For One Day Only - GameSpot](https://www.gamespot.com/articles/bruno-mars-is-performing-a-roblox-steal-a-brainrot-concert-for-one-day-only/1100-6537477/) - Gamespot
+- [Brands Flocked To Roblox In 2025 01/05/2026 - Media Post](https://www.mediapost.com/publications/article/411724/brands-flocked-to-roblox-in-2025.html?edition=) - Mediapost
+- [Olivia Rodrigo, Arctic Monkeys Rumoured to Be Contributing to War Child Records Release](https://exclaim.ca/music/article/olivia-rodrigo-arctic-monkeys-rumoured-to-be-contributing-to-war-child-records-release) - Exclaim!
+- [Francesco De Gregori nei club con il tour dedicato a Rimmel](https://www.ansa.it/sito/notizie/cultura/musica/2026/01/19/francesco-de-gregori-nei-club-con-il-tour-dedicato-a-rimmel_a2910678-cdb3-43c6-8028-2a80c8ff22f5.html) - ANSA.it
+- [Francesco De Gregori nei club con il tour dedicato a Rimmel](https://www.ansa.it/emiliaromagna/notizie/2026/01/19/francesco-de-gregori-nei-club-con-il-tour-dedicato-a-rimmel_fc657e70-a277-4cd0-9538-88721a7d1803.html) - ANSA.it
+- [The Black Crowes Premiere Russ Meyer-Inspired Video for “Profane Prophecy”: Watch](https://consequence.net/2026/01/the-black-crowes-profane-prophecy-video-premiere/) - Consequence.net
+- ["I gave away all my records, I started giving away my guitars, I was fantasising about my own death." The horrifying origin story behind one of the most uplifting rock songs of the '90s](https://www.loudersound.com/bands-artists/the-horrifying-origin-story-of-smashing-pumpkins-today) - Louder
