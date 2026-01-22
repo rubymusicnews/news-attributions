@@ -1,0 +1,51 @@
+# Sources for 2026-01-22 News Episode 
+- [ElevenLabs Enlists Liza Minnelli, Art Garfunkel, and Others to Create an Album of AI-Generated Music](https://www.adweek.com/media/elevenlabs-ai-music-liza-minnelli-art-garfunkel-spotify/) - Adweek
+- [ElevenLabs Just Dropped An AI Music Album Featuring Grammy Legends](https://www.forbes.com/sites/andymeek/2026/01/21/elevenlabs-just-dropped-an-ai-music-album-featuring-grammy-legends/) - Forbes
+- [These Grammy-Winning Artists Have Released an AI Music Album Collaboration](https://www.cnet.com/tech/services-and-software/these-grammy-winning-artists-have-released-an-ai-music-album-collaboration/) - CNET
+- [ElevenLabs Enlists Liza Minnelli, Art Garfunkel, and Others to Create an Album of AI-Generated Music - ADWEEK](https://www.adweek.com/media/elevenlabs-ai-music-liza-minnelli-art-garfunkel-spotify/?itm_source=homepage&itm_medium=the-latest-left&itm_campaign=1) - Adweek
+- [First Time Nominees KATSEYE Will Also Perform At The 2026 Grammys](https://www.forbes.com/sites/hannahabraham/2026/01/21/first-time-nominees-katseye-will-also-perform-at-the-2026-grammys/) - Forbes
+- [2026 Grammy Awards Odds: Who Will Win Album of the Year, Best New Artist?](https://www.foxsports.com/stories/other/2026-grammy-awards-odds) - Fox Sports
+- [2026 Grammys Tap Best New Artist Nominees for Special Segment Performance](https://www.thewrap.com/industry-news/awards/2026-grammys-best-new-artist-nominees-performance/) - TheWrap
+- [Grammys 2026: Katseye, Sombr, Olivia Dean & Addison Rae Set To Perform Alongside Rest Of Best New Artist Nominees](http://deadline.com/2026/01/grammys-2026-katseye-sombr-olivia-dean-addison-rae-performers-1236691249/) - Deadline
+- [All 8 Best New Artist Nominees Set to Perform on 2026 Grammy Awards - Billboard](https://www.billboard.com/music/awards/all-8-best-new-artist-nominees-perform-2026-grammy-awards-1236158616/) - Billboard
+- [How Katseye is rising to the spotlight: A deep dive - HS Insider](https://highschool.latimes.com/opinion/how-katseye-is-rising-to-the-spotlight-a-deep-dive/) - Latimes
+- [K-pop might win at the Grammys for the first time - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/k-pop-grammys-history-21286724.php) - Sfchronicle
+- [Taylor Swift to Be Inducted Into the Songwriters Hall of Fame](http://www.vulture.com/article/taylor-swift-songwriters-hall-of-fame-2026.html) - Vulture
+- [Taylor Swift makes history as she joins Songwriters Hall of Fame](https://www.bbc.com/news/articles/c0mkp3yk933o) - BBC News
+- [Alanis Morissette, Taylor Swift, Kiss to be inducted into Songwriters Hall of Fame](https://www.cbc.ca/news/entertainment/songwriters-hall-of-fame-2026-9.7054555) - CBC News
+- [Taylor Swift, Kenny Loggins, members of Kiss and more get into Songwriters Hall of Fame](https://www.bostonherald.com/2026/01/21/songwriters-hall-of-fame/) - Boston Herald
+- [Taylor Swift makes history as youngest female Songwriters Hall of Fame inductee - USA Today](https://www.usatoday.com/story/entertainment/music/2026/01/21/taylor-swift-songwriters-hall-of-fame-inductee/88001003007/) - Usatoday
+- [Taylor Swift, Alanis Morissette, Kenny Loggins Join 2026 Songwriters Hall of Fame Class - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-news/taylor-swift-alanis-morissette-songwriters-hall-of-fame-1236480244/) - Hollywoodreporter
+- [Taylor Swift makes history as Songwriters Hall of Fame inductee: See the full class of 2026 - CBS News](https://www.cbsnews.com/news/taylor-swift-songwriters-hall-of-fame-inductees-full-list-2026/) - Cbsnews
+- [Taylor Swift inducted into Songwriters Hall of Fame, one of its youngest members in history - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/taylor-swift-inducted-songwriters-hall-fame-youngster-member-history-rcna255181) - Nbcnews
+- [Taylor Swift and Alanis Morissette Inducted Into Songwriters Hall of Fame - Pitchfork](https://pitchfork.com/news/taylor-swift-and-alanis-morissette-inducted-into-songwriters-hall-of-fame/) - Pitchfork
+- [Sugar Announce Full Reunion Tour Dates, Share New Song “Long Live Love”: Stream](https://consequence.net/2026/01/sugar-reunion-tour-dates-long-live-love/) - Consequence.net
+- [Sugar Sets Extensive Reunion Tour, Drops Second New Song](https://www.spin.com/2026/01/sugar-reunion-tour-new-single/) - SPIN
+- [Sugar Announce First World Tour in 31 Years](https://loudwire.com/sugar-first-world-tour-dates-31-years/) - Loudwire
+- [Sugar Are Going on Their First Tour in 30 Years](https://pitchfork.com/news/sugar-are-going-on-their-first-tour-in-30-years/) - Pitchfork
+- [Public Enemy’s Chuck D and The Doors’ John Densmore Team Up as doPE](https://consequence.net/2026/01/public-enemy-chuck-d-the-doors-john-densmore-dope/) - Consequence.net
+- [Chuck D and Doors' John Densmore Team For 2026 Record Store Day Song - Billboard](https://www.billboard.com/music/rb-hip-hop/chuck-d-doors-drummer-densmore-2026-record-store-day-song-1236158914/) - Billboard
+- [Why Albums Drop and Movies Launch](https://www.newyorker.com/culture/infinite-scroll/why-albums-drop-and-movies-launch) - The New Yorker
+- [A$AP Rocky Drops Limited-Edition ‘Don’t Be Dumb’ Vinyl and T-Shirt Ahead of New Studio Album - Variety](https://variety.com/2026/shopping/news/aap-rocky-dont-be-dumb-vinyl-shop-online-1236632194/) - Variety
+- [7 New Albums You Should Listen to Now: Julianna Barwick and Mary Lattimore, A$AP Rocky, and More - Pitchfork](https://pitchfork.com/news/new-albums-julianna-barwick-mary-lattimore-asap-rocky/) - Pitchfork
+- [A$AP Rocky's "Don't Be Dumb" Receives Healthy First-Week Sales Projections - HotNewHipHop](https://www.hotnewhiphop.com/971671-asap-rcoky-dont-be-dumb-first-week-sales-projections) - Hotnewhiphop
+- [Music streams hit 5 trillion in 2025. Christian, rock and Latin lead growth in the US - AP News](https://apnews.com/article/music-listening-habits-2025-christian-rock-latin-a5e06a001705cd7e5d3854d8fab901b8) - Apnews
+- [BTS Comeback Tour Moves Travel Demand Even Before Tickets Go on Sale](https://skift.com/2026/01/21/bts-comeback-tour-moves-travel-demand-even-before-tickets-go-on-sale/) - Skift
+- [BTS 2026 Tour Dates Are Finally Out: All The Details - Forbes](https://www.forbes.com/sites/hannahabraham/2026/01/13/bts-2026-tour-dates-are-finally-out-all-the-details/) - Forbes
+- [K-Pop sensation BTS announces return with new world tour - Reuters](https://www.reuters.com/business/media-telecom/k-pop-sensation-bts-announces-return-with-new-world-tour-2026-01-13/) - Reuters
+- [2026 Grammy Awards Odds: Who Will Win Album of the Year, Best New Artist?](https://www.foxsports.com/stories/nfl/2026-grammy-awards-odds) - Fox Sports
+- [2026 Grammy Nominees for Record & Song of the Year are Nearly Identical. How Unusual Is That? - Billboard](https://www.billboard.com/lists/grammy-nominees-record-song-of-the-year-overlap-full-list/) - Billboard
+- [As Grammy Voting Closes Today, Here Are 12 Races We’re Watching - billboard.com](https://www.billboard.com/lists/2026-grammy-awards-predictions-analysis-key-categories/) - Billboard
+- [Grammys 2026: Katseye, Sombr, Olivia Dean & Addison Rae Set To Perform Alongside Rest Of Best New Artist Nominees - Deadline](https://deadline.com/2026/01/grammys-2026-katseye-sombr-olivia-dean-addison-rae-performers-1236691249/) - Deadline
+- [All 8 Best New Artist Nominees Set to Perform on 2026 Grammy Awards - Billboard](https://www.billboard.com/music/awards/all-8-best-new-artist-nominees-perform-2026-grammy-awards-1236158616/) - Billboard
+- [Spotify’s Best New Artist Party Returns for Grammy Week With Performances From All Nominees - Billboard](https://www.billboard.com/music/music-news/spotify-best-new-artist-party-nominees-perform-grammy-week-1236159087/) - Billboard
+- [Will KATSEYE, Leon Thomas or Kendrick Lamar Take Home a Grammy? - Billboard](https://www.billboard.com/video/will-katseye-leon-thomas-kendrick-lamar-take-home-grammy/) - Billboard
+- [Aerosmith Charts Another Hit Song — And The Band Has Company](https://www.forbes.com/sites/hughmcintyre/2026/01/21/aerosmith-charts-another-hit-song---and-the-band-has-company/) - Forbes
+- [Architects Announce Spring 2026 US tour](https://consequence.net/2026/01/architects-spring-2026-us-tour/) - Consequence.net
+- [Architects Announce 2026 U.S. Tour with Holywatr, Drop “Broken Mirror” Video](https://www.metalsucks.net/2026/01/21/architects-announce-2026-u-s-tour-with-holywatr-drop-broken-mirror-video/) - MetalSucks
+- ["Whoosh! A big flame goes right up under me. My arm, my hand, burnt down to the bone. Hair's gone." Inside the night Metallica's James Hetfield caught fire - and Guns N' Roses frontman Axl Rose caused a riot](https://www.loudersound.com/music/albums/when-did-james-hetfield-catch-on-fire-metallica-guns-n-roses) - Louder
+- [Fantastic Cat Won’t Ever Be Mistaken for Male Models in ‘Donnie Takes the Bus’ Video](http://www.rollingstone.com/music/music-news/fantastic-cat-donnie-takes-the-bus-video-1235502789/) - Rolling Stone
+- [Beach Boys to Release Lost 1977 LP ‘Adult/Child’ on Upcoming ‘We Gotta Groove’ Box Set](http://www.rollingstone.com/music/music-news/beach-boys-adult-child-we-gotta-groove-box-set-1235502528/) - Rolling Stone
+- ['Die For Me' Lyrics: Zayn Debuts New Single at Vegas Residency](https://www.justjared.com/2026/01/21/die-for-me-lyrics-zayn-debuts-new-single-at-vegas-residency/) - Just Jared
+- [Zayn Debuts New Music, Plays for the Stans at Intimate Opening Night of Las Vegas Residency: Concert Review - Variety](https://variety.com/2026/music/reviews/zayn-debuts-new-music-las-vegas-residency-opener-concert-review-1236636611/) - Variety
+- [Zayn Kicks Off Las Vegas Residency With Mix of Unreleased Songs & Fan Favorites: Here’s the Setlist - Billboard](https://www.billboard.com/lists/zayn-setlist-las-vegas-residency-songs/) - Billboard
