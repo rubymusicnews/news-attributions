@@ -1,0 +1,39 @@
+# Sources for 2026-01-24 News Episode 
+- [Raye’s New Album ‘This Music May Contain Hope’ Will Invite Listeners to Experience Four ‘Seasons’](http://www.rollingstone.com/music/music-news/raye-new-album-this-music-may-contain-hope-1235503763/) - Rolling Stone
+- [RAYE Announces New ‘This Music May Contain Hope’ Album — Here’s When It Arrives - Billboard](https://www.billboard.com/music/pop/raye-announces-this-music-may-contain-hope-album-release-1236160546/) - Billboard
+- [‘The Disciple’ Gives the Mic to the Man Behind Most Controversial Album Ever](http://www.rollingstone.com/tv-movies/tv-movie-features/the-disciple-wu-tang-documentary-sundance-1235498822/) - Rolling Stone
+- [‘The Disciple’ Review: The Story of Cilvaringz and the Wu-Tang Clan’s ‘Once Upon a Time in Shaolin’ Get Whimsical Underdog Documentary Treatment - hollywoodreporter.com](https://www.hollywoodreporter.com/movies/movie-reviews/the-disciple-review-wu-tang-clan-doc-rza-cilvaringz-1236482437/) - Hollywoodreporter
+- ['The Disciple' Film Review: Wu-Tang Clan and the World's Rarest Album - Variety](https://variety.com/2026/film/reviews/disciple-film-wu-tang-clan-sundance-festival-review-1236639412/) - Variety
+- ['Sweet Caroline' singer Neil Diamond turns 85](https://www.dw.com/en/sweet-caroline-singer-neil-diamond-turns-85/a-75500373) - DW (English)
+- ['Song Sung Blue' Video Interview With Director Craig Brewer About Oscars & More - Deadline](https://deadline.com/video/song-sung-blue-video-interview-director-craig-brewer/) - Deadline
+- [Harry Styles Returns With A New No. 1 Smash](https://www.forbes.com/sites/hughmcintyre/2026/01/23/harry-styles-returns-with-a-new-no-1-smash/) - Forbes
+- ['Aperture' Music Video: Watch Harry Styles Do the 'Dirty Dancing' Lift!](https://www.justjared.com/2026/01/23/aperture-music-video-watch-harry-styles-do-the-dirty-dancing-lift/) - Just Jared
+- [Harry Styles Joins the Party](http://www.vulture.com/article/review-harry-styles-aperture.html) - Vulture
+- [Harry Styles embraces new ‘safe’ love in ‘Aperture’ amid Zoë Kravitz romance](https://pagesix.com/2026/01/23/entertainment/harry-styles-embraces-new-safe-love-in-aperture-amid-zoe-kravitz-romance/) - Page Six
+- [Harry Styles Lets the Light In on New Song ‘Aperture’: Stream It Now - Billboard](https://www.billboard.com/music/pop/harry-styles-aperture-new-song-1236160595/) - Billboard
+- [Harry Styles’ Fans Are Turned on, Tuned up And Blissing Out to ‘Aperture’ - Billboard](https://www.billboard.com/music/pop/harry-styles-aperture-tweets-1236161126/) - Billboard
+- [Harry Styles announces first album in 4 years, 'Kiss All the Time. Disco, Occasionally' - WDSU](https://www.wdsu.com/article/harry-styles-album-kiss-all-the-time-disco-occasionally/70012347) - Wdsu
+- [Harry Styles announces first album in 4 years, 'Kiss All the Time. Disco, Occasionally' - Gulf Coast News and Weather](https://www.gulfcoastnewsnow.com/article/harry-styles-album-kiss-all-the-time-disco-occasionally/70012347) - Gulfcoastnewsnow
+- [Harry Styles announces new single 'Aperture' will be released this week - ABC News](https://abcnews.go.com/GMA/Culture/harry-styles-announces-new-single-aperture-released-week/story?id=129388221) - Go
+- [India x the World: Czech Republic](http://musically.com/2026/01/23/india-x-the-world-czech-republic/) - Music Ally
+- [Ed Sheeran loops fans into ‘Play’ setlist](http://musically.com/2026/01/23/ed-sheeran-loops-fans-into-play-setlist/) - Music Ally
+- [Ed Sheeran Invites Fans to Choose Songs for Australia & New Zealand ‘Loop Tour’ Shows - Billboard](https://www.billboard.com/music/concerts/ed-sheeran-fans-choose-songs-for-australia-new-zealand-loop-tour-1236157323/) - Billboard
+- [BACKENGRILLEN Drop Ferocious Self-Titled Debut, Blending Hardcore, Punk & Free-Form Death Jazz](https://metalinjection.net/av/full-album-stream/backengrillen-drop-ferocious-self-titled-debut-blending-hardcore-punk-free-form-death-jazz) - Metal Injection.net
+- [Death Cab For Cutie Inks With ANTI-, Plots Tour](https://www.spin.com/2026/01/death-cab-for-cutie-label-tour/) - SPIN
+- [Death Cab for Cutie Announce Tour and Anti- Records Signing](https://pitchfork.com/news/death-cab-for-cutie-announce-tour-sign-to-anti-records/) - Pitchfork
+- [Death Cab for Cutie Announce 2026 Summer Tour, Sign with ANTI- Records](https://consequence.net/2026/01/death-cab-for-cutie-2026-summer-tour/) - Consequence.net
+- [Tour news: Summer Walker, Death Cab for Cutie, Harry Styles, Agriculture, Dirty Projectors, more - BrooklynVegan](https://www.brooklynvegan.com/tour-news-summer-walker-death-cab-for-cutie-harry-styles-agriculture-dirty-projectors-more/) - Brooklynvegan
+- [Signal Boost Part 2](https://www.spin.com/2026/01/signal-boost-part-2/) - SPIN
+- [“I said, ‘There are no vocals. It’s an instrumental album.’ The lawyer said, ‘Do you mean we’ve just paid $12,000 for a piano player?’” Rick Wakeman relives the moment he delivered The Six Wives Of Henry VIII to a horrified record label](https://www.loudersound.com/music/albums/rick-wakeman-six-wives-of-henry-viii-horror) - Louder
+- [Opeth Premiere New Music Video For "§7"](http://www.metalunderground.com/news/details.cfm?newsid=160705) - Metalunderground.com
+- [Francis Buchholz Dies: The Scorpions’ Longtime Bassist Who Played On Its Biggest Hits Was 71](http://deadline.com/2026/01/francis-buchholz-dead-scorpions-bassist-1236694517/) - Deadline
+- [Former Scorpions / Michael Schenker bassist Francis Buchholz dead at 71](https://www.loudersound.com/bands-artists/former-scorpions-bassist-francis-buchholz-dead-at-71) - Louder
+- [Ex-Scorpions Bassist Francis Buchholz Dies at 71](https://loudwire.com/ex-scorpions-francis-buchholz-dies-71/) - Loudwire
+- [Former Scorpions Bassist Francis Buchholz Dead at 71](https://www.metalsucks.net/2026/01/23/former-scorpions-bassist-francis-buchholz-dead-at-71/) - MetalSucks
+- [Former Scorpions Bassist Francis Buchholz Dies at 71 - Billboard](https://www.billboard.com/music/rock/francis-buchholz-death-scorpions-bassist-dead-obituary-1236161192/) - Billboard
+- [Former Scorpions bassist Francis Buchholz dies at 71 - latimes.com](https://www.latimes.com/entertainment-arts/music/story/2026-01-23/former-scorpions-bassist-francis-buchholz-dies-at-71) - Latimes
+- [Original SCORPIONS Bassist FRANCIS BUCHHOLZ Dead At 75 - BLABBERMOUTH.NET](https://blabbermouth.net/news/original-scorpions-bassist-francis-buchholz-dead-at-75) - Blabbermouth
+- [Louis Tomlinson Is Sure of His Sound, But Not Much Else, on Album Three](http://www.rollingstone.com/music/music-album-reviews/louis-tomlinson-how-did-i-get-here-1235502963/) - Rolling Stone
+- [Louis Tomlinson On Wanting to Be Great For His Son and the One Direction Songs He’s Comfortable Singing At 34 - Billboard](https://www.billboard.com/music/pop/louis-tomlinson-billboard-cover-story-interview-1236151775/) - Billboard
+- [Louis Tomlinson’s ‘How Did I Get Here?’ Has Arrived: Stream It Now - Billboard](https://www.billboard.com/music/pop/louis-tomlinson-how-did-i-get-here-stream-1236161039/) - Billboard
+- [Generations at war as Fela-Wizkid comparison sparks cultural firestorm](https://punchng.com/generations-at-war-as-fela-wizkid-comparison-sparks-cultural-firestorm/) - The Punch
