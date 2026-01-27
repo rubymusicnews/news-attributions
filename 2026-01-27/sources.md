@@ -1,0 +1,44 @@
+# Sources for 2026-01-27 News Episode 
+- [Sly Dunbar, prolific legend of reggae, dies aged 73](https://www.bbc.com/news/articles/cn56300z220o) - BBC News
+- [Sly Dunbar, legendary reggae drummer on tracks by Bob Marley, Bob Dylan, dies as 73](https://abcnews.go.com/Entertainment/wireStory/sly-dunbar-legendary-reggae-drummer-anchored-tracks-bob-129578378) - ABC News
+- [Sly Dunbar, legendary reggae drummer who anchored tracks from Bob Marley to Bob Dylan, dies as 73](https://www.bostonherald.com/2026/01/26/sly-dunbar-obituary/) - Boston Herald
+- [Sly Dunbar, Sly and Robbie reggae drummer, dead at 73 - nypost.com](https://nypost.com/2026/01/26/entertainment/sly-dunbar-sly-and-robbie-reggae-drummer-dies-at-age-73/) - Nypost
+- [Sly Dunbar, Half of Sly and Robbie, Legendary Reggae Rhythm Section, Dies at 73 - Variety](https://variety.com/2026/music/news/sly-dunbar-dead-sly-and-robbie-reggae-drummer-1236641264/) - Variety
+- [Iconic drummer Sly Dunbar has died - Jamaica Gleaner](https://jamaica-gleaner.com/article/entertainment/20260126/iconic-drummer-sly-dunbar-has-died) - Jamaica-gleaner
+- [Reggae drumming legend Sly Dunbar dead at 73 - latimes.com](https://www.latimes.com/entertainment-arts/music/story/2026-01-26/reggae-drumming-legend-sly-dunbar-dead-at-73) - Latimes
+- [Sly Dunbar, Influential Sly & Robbie Drummer, Is Dead At 73 - DancehallMag](https://www.dancehallmag.com/2026/01/26/news/sly-dunbar-influential-sly-robbie-drummer-is-dead-at-73.html) - Dancehallmag
+- [Sly and Robbie: 11 Songs You Didn’t Know They Played On - Rolling Stone](https://www.rollingstone.com/music/music-lists/sly-and-robbie-best-pop-songs-bob-dylan-madonna-britney-1235504652/) - Rollingstone
+- [Sly Dunbar, legendary reggae drummer who anchored tracks from Bob Marley to Bob Dylan, dies as 73 - AP News](https://apnews.com/article/sly-dunbar-dies-81f29debb9f9946df1622ceab6929515) - Apnews
+- [Inside the New Charity Album Starring Arctic Monkeys, Olivia Rodrigo, Damon Albarn, and More](http://www.rollingstone.com/music/music-features/arctic-monkeys-olivia-rodrigo-war-child-charity-album-1235503945/) - Rolling Stone
+- [Help 2: Behind the scenes as Olivia Rodrigo, Pulp and Arctic Monkeys record charity album - BBC](https://www.bbc.com/news/articles/cy4qqdy29d2o) - Bbc
+- [Arctic Monkeys, Olivia Rodrigo & More to Appear on War Child’s Star-Studded Charity Compilation ‘HELP(2)’ - Billboard](https://www.billboard.com/music/rock/olivia-rodrigo-arctic-monkeys-war-child-charity-compilation-1236159840/) - Billboard
+- [How The Grammys Best New Artist Nominees Redefined Music Marketing](https://www.forbes.com/sites/oliviashalhoup/2026/01/26/how-the-grammys-best-new-artist-nominees-redefined-music-marketing/) - Forbes
+- [Bonnie Tyler's classic hits 1bn streams - but singer reveals it 'makes nothing'](https://www.bbc.com/news/articles/cy8ppnlmed8o) - BBC News
+- [Royalty Calculator: What Are Streams Worth on Spotify, Apple Music? - Billboard](https://www.billboard.com/pro/royalty-calculator-what-music-streams-worth-spotify-apple/) - Billboard
+- [Billy Talent Plot 'Billy Talent II' 20th Anniversary Tour](https://exclaim.ca/music/article/billy-talent-plot-billy-talent-ii-20th-anniversary-tour) - Exclaim!
+- [Kid Cudi Announces “The Rebel Ragers Tour” with M.I.A. and Big Boi](https://consequence.net/2026/01/kid-cudi-the-rebel-ragers-tour-m-i-a-big-boi/) - Consequence.net
+- [Kid Cudi Bringing M.I.A., Big Boi On Tour](https://www.spin.com/2026/01/kid-cudi-summer-tour/) - SPIN
+- [Kid Cudi Announces “The Rebel Ragers Tour” — Check Out The Dates, Lineup & What To Expect](https://www.rap-up.com/article/kid-cudi-announces-rebel-ragers-tour) - Rap-Up.com
+- [Kid Cudi Announces Dates For 33-Date 2026 Rebel Ragers North American Tour - Billboard](https://www.billboard.com/music/rb-hip-hop/kid-cudi-dates-2026-rebel-ragers-north-american-tour-1236162556/) - Billboard
+- [Kid Cudi Announces Dates For 33-Date 2026 Rebel Ragers North American Tour - Billboard Canada](https://ca.billboard.com/music/concerts/kid-cudi-2026-tour-dates?bil=554&debugld=stickybtest) - Billboard
+- [Billie Eilish Calls for Her ‘Fellow Celebrities’ to ‘Speak Up’ About ICE Shootings - Billboard Canada](https://ca.billboard.com/music/music-news/billie-eilish-asks-celebrities-speak-up-about-ice-1236162635/?bil=554&debugld=stickybtest) - Billboard
+- [Morgan Wallen Has Finally Been Replaced At No. 1 On The Country Chart](https://www.forbes.com/sites/hughmcintyre/2026/01/26/morgan-wallen-has-finally-been-replaced-at-no-1-on-the-country-chart/) - Forbes
+- [Bruno Mars and Zach Bryan top the pop charts this week - vpm.org](https://www.vpm.org/npr-news/2026-01-22/bruno-mars-and-zach-bryan-top-the-pop-charts-this-week) - Vpm
+- [Zach Bryan’s ‘With Heaven on Top’ Debuts at No. 1 on Billboard 200 - Billboard](https://www.billboard.com/music/chart-beat/zach-bryan-with-heaven-on-top-number-one-billboard-200-1236157357/) - Billboard
+- [Music Biz Headlines: Alanis Morissette to Enter Songwriters Hall of Fame, Bandcamp Bans AI Music - Billboard Canada](https://ca.billboard.com/fyi/alanis-songwriters-hall-of-fame-bandcamp-ai) - Billboard
+- ["Wander into Alice's Attic, a realm of insanity… if you dare!" Alice Cooper announces Alice's Attic tour](https://www.loudersound.com/bands-artists/alice-cooper-alices-attic-us-tour) - Louder
+- [Alice Cooper's 2026 Spring Tour - Full List of U.S. Dates](https://ultimateclassicrock.com/alice-cooper-tour-2026/) - Ultimate Classic Rock
+- [Chuck Ragan bringt The Revival Tour zurück nach Deutschland](https://www.visions.de/news/chuck-ragan-bringt-the-revival-tour-zurueck-nach-deutschland-mit-frank-turner-tim-barry-und-ben-nichols/) - Visions.de
+- [‘Today, managers could probably do everything… but funding is really difficult’](http://musically.com/2026/01/26/today-managers-could-probably-do-everything-but-funding-is-really-difficult/) - Music Ally
+- [Managers To Watch: The Execs Helping Chappell Roan, Olivia Dean, Geese & More - Billboard](https://www.billboard.com/pro/music-managers-to-watch-2026/) - Billboard
+- [Executive Turntable: GMR Unveils Leadership Transition — Plus, Seltzer Cracks Open New Firm - Billboard](https://www.billboard.com/lists/music-industry-executive-moves-gmr-seltzer-hybe-warner-gap/) - Billboard
+- [Believe U.K. and Tileyard Music Launch Joint-Venture Label, Sign Pale Waves - Billboard](https://www.billboard.com/pro/believe-uk-tileyard-new-label-tenace-records/) - Billboard
+- [Lindsey Stirling Announces 2026 “Duality Untamed Tour”](https://consequence.net/2026/01/lindsey-stirling-2026-duality-untamed-tour-dates/) - Consequence.net
+- [Sally Baby's Silver Dollars: Tiny Desk Concert](https://www.npr.org/2026/01/26/g-s1-105080/sally-babys-silver-dollars-tiny-desk-concert) - NPR
+- [Sally Baby's Silver Dollars: Tiny Desk Concert - wuwf.org](https://www.wuwf.org/music-arts/2026-01-26/sally-babys-silver-dollars-tiny-desk-concert) - Wuwf
+- [Sally Baby's Silver Dollars: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-01-26/sally-babys-silver-dollars-tiny-desk-concert) - Wrvo
+- [Sally Baby's Silver Dollars: Tiny Desk Concert - iowapublicradio.org](https://www.iowapublicradio.org/2026-01-26/sally-babys-silver-dollars-tiny-desk-concert) - Iowapublicradio
+- [Sally Baby's Silver Dollars: Tiny Desk Concert - wfae.org](https://www.wfae.org/2026-01-26/sally-babys-silver-dollars-tiny-desk-concert) - Wfae
+- [Sally Baby's Silver Dollars: Tiny Desk Concert - boisestatepublicradio.org](https://www.boisestatepublicradio.org/music/2026-01-26/sally-babys-silver-dollars-tiny-desk-concert) - Boisestatepublicradio
+- [UADA Turn Nirvana’s “Something in the Way” Into a Bleak Black Metal Lament](https://www.metalsucks.net/2026/01/26/uada-turn-nirvanas-something-in-the-way-into-a-bleak-black-metal-lament/) - MetalSucks
+- [Marta Del Grandi – Dream Life](https://thequietus.com/quietus-reviews/marta-del-grandi-dream-life-review/) - The Quietus
