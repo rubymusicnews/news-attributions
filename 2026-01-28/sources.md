@@ -1,0 +1,45 @@
+# Sources for 2026-01-28 News Episode 
+- [BLACKPINK Just Wrapped Their Biggest Tour Ever. Will There Be Another?](https://www.forbes.com/sites/hannahabraham/2026/01/26/blackpink-just-wrapped-their-biggest-tour-ever-will-there-be-another/) - Forbes
+- [BLACKPINK Is Returning With Its 3rd Mini Album — and It’s Coming Soon! - Billboard Canada](https://ca.billboard.com/music/pop/blackpink-new-album-2026) - Billboard
+- [Vix To Livestream Kanye West’s Concerts In Mexico](http://deadline.com/2026/01/vix-livestream-kanye-wes-concerts-mexico-1236699016/) - Deadline
+- [Ye Returns to Mexico After 18 Years: Will Peso Pluma Join Him? His Promoter Explains - Billboard](https://www.billboard.com/music/rb-hip-hop/ye-mexico-promoter-interview-1236163903/) - Billboard
+- [Tallinn Music Week reveals full line-up for 2026 edition](https://www.thelineofbestfit.com/news/tallin-music-week-reveals-line-up-for-2026-edition) - Thelineofbestfit.com
+- [Review: TWICE’s ‘THIS IS FOR’ LA Show Gave All ‘The Feels’](https://www.forbes.com/sites/laurasirikul/2026/01/26/review-twices-this-is-for-la-show-gave-all-the-feels/) - Forbes
+- [Charli XCX Has Legions of Clones, Including Kylie Jenner, in New Music Video for ‘Residue’](http://www.rollingstone.com/music/music-news/charli-xcx-kylie-jenner-residue-video-the-moment-1235505321/) - Rolling Stone
+- [Charli xcx has her movie star moment, and says goodbye to Brat - bozemandailychronicle.com](https://www.bozemandailychronicle.com/ap_news/entertainment/charli-xcx-has-her-movie-star-moment-and-says-goodbye-to-brat/article_71949731-cbf5-59ae-8a4e-49fc246f152b.html) - Bozemandailychronicle
+- [Charli xcx has her movie star moment, and says goodbye to Brat - AP News](https://apnews.com/article/charli-xcx-moment-movie-sundance-film-festival-2570e0929916591fd4d32555a4b194cc) - Apnews
+- [Charli xcx Says Original ‘Brat’ Movie Pitch Was Too Label-Focused and Calls Ariana Grande’s Oscar Snub a ‘Surprise’: ‘She Is Amazing and Goes Full Force’ - Variety](https://variety.com/2026/film/news/charli-xcx-the-moment-ariana-grande-oscar-snub-1236639296/) - Variety
+- [Charli xcx’s ‘Brat’ Era Is a ‘Dead Horse’ She Can’t Stop Beating in ‘Residue’ Video Featuring a Major Celeb Cameo - Billboard](https://www.billboard.com/music/music-news/charli-xcx-kylie-jenner-residue-video-the-moment-1236163858/) - Billboard
+- ['The Moment' Review: Charli xcx Plays a Version of Herself - Variety](https://variety.com/2026/film/reviews/the-moment-review-charli-xcx-alexander-skarsgard-1236639576/) - Variety
+- [Charli XCX On 'The Moment' And Kylie Jenner's Cameo - Deadline](https://deadline.com/video/charli-xcx-kylie-jenner-the-moment-sundance-interview/) - Deadline
+- [2025年ベストアルバムのまとめ、国内海外別順位](https://ongakudaisukiclub.hateblo.jp/entry/2026/01/27/200000) - Hateblo.jp
+- [Neil Young to Greenland: Stream My Music for Free](https://www.newser.com/story/382643/neil-young-to-greenland-stream-my-music-for-free.html) - Newser
+- ["I hope my music and music films will ease some of the unwarranted stress and threats you are experiencing from our unpopular and hopefully temporary government": Neil Young gifts his entire back catalogue to the residents of Greenland](https://www.loudersound.com/bands-artists/neil-young-gifts-back-catalogue-to-greenland-citizens) - Louder
+- [Neil Young’s gift to Greenland: Free access to his entire music catalog - AP News](https://apnews.com/article/neil-young-greenland-amazon-19a795c9a574fe6e628d4a640c9a6ae1) - Apnews
+- [Neil Young Gifts Full Music Archive to Every Greenland Resident - Pitchfork](https://pitchfork.com/news/neil-young-gifts-entire-music-archive-to-every-greenland-resident/) - Pitchfork
+- [Neil Young's gift to Greenland: Free access to his entire music catalog - nbcnewyork.com](https://www.nbcnewyork.com/entertainment/entertainment-news/neil-young-offers-greenland-free-access-music-catalog/6450726/) - Nbcnewyork
+- [Neil Young offers Greenlanders free access to his archives - BBC](https://www.bbc.com/news/articles/crmlpl0w2z2o) - Bbc
+- [Neil Young's gifts Greenland free access to his entire music catalog - NBC News](https://www.nbcnews.com/world/greenland/neil-young-greenland-free-access-entire-music-catalog-amazon-bezos-rcna256279) - Nbcnews
+- [Tate McRae, Justin Bieber lead 2026 Juno Award nominations](https://www.cbc.ca/music/junos/juno-awards-2026-nominations-breakdown-tate-mcrae-justin-bieber-9.7060742) - CBC News
+- [Juno Awards: Justin Bieber, Tate McRae Lead With Six Nominations - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-news/juno-awards-2026-justin-bieber-tate-mcrae-1236486091/) - Hollywoodreporter
+- [Wixen Music Publishing sues Meta over rates for songwriters](http://musically.com/2026/01/27/wixen-music-publishing-sues-meta-over-rates-for-songwriters/) - Music Ally
+- [Music Publisher Wixen Sues Meta, Says It Plans To Replace Human Songwriters With AI Music - Billboard](https://www.billboard.com/pro/meta-music-lawsuit-publisher-wixen-sues-over-ai-music/) - Billboard
+- [Pharrell Sued By Chad Hugo, Drake Appeals UMG Case, Spotify Files Lawsuit & More Music Law News - Billboard](https://www.billboard.com/pro/pharrell-lawsuit-drake-appeal-spotify-case-music-law-news/) - Billboard
+- [YouTube Music's latest update solves one of its most frustrating problems](https://www.xda-developers.com/youtube-music-finally-allows-queue-syncing-across-apps/) - XDA Developers
+- [YouTube Music Finally Fixes One of Its Biggest Friction Points](https://www.ghacks.net/2026/01/27/youtube-music-finally-fixes-one-of-its-biggest-friction-points/) - Ghacks Technology News
+- [YouTube Music now syncs your queue across Android, iOS, & web - 9to5Google](https://9to5google.com/2026/01/25/youtube-music-queue-sync/) - 9to5google
+- [How Joyce Manor Made Their Best Record Yet: ‘Doing What We Always Do Is What Got Us Here’](http://www.rollingstone.com/music/music-features/joyce-manor-interview-i-used-to-go-to-this-bar-1235502280/) - Rolling Stone
+- [How South Bay’s contradictions shaped Joyce Manor’s enduring pop-punk sound - latimes.com](https://www.latimes.com/entertainment-arts/music/story/2026-01-22/how-south-bays-contradictions-shaped-joyce-manors-enduring-pop-punk-sound) - Latimes
+- [Music Review: Joyce Manor delivers nostalgia, polished and punk, in 'I Used to Go to This Bar' - sfchronicle.com](https://www.sfchronicle.com/entertainment/article/music-review-joyce-manor-delivers-nostalgia-21315952.php) - Sfchronicle
+- [Fleetwood Mac Blocked From Hitting No. 1 For The First Time On One Chart](https://www.forbes.com/sites/hughmcintyre/2026/01/27/fleetwood-mac-blocked-from-hitting-no-1-for-the-first-time-on-one-chart/) - Forbes
+- [Olivia Dean Continues to Dominate U.K. Albums Chart With Fifth Week at No. 1 - Billboard](https://www.billboard.com/music/music-news/olivia-dean-art-of-loving-number-1-uk-albums-chart-5th-week-1236156527/) - Billboard
+- [Lola Young & Olivia Dean Lead Nominees for 2026 BRIT Awards: Full List - Billboard](https://www.billboard.com/music/awards/2026-brit-awards-nominees-list-1236157503/) - Billboard
+- [Ye Tries to Explain His WSJ Ad](http://www.vulture.com/article/kanye-west-ad-apology-pr-move-response.html) - Vulture
+- [How Bianca Censori helped Kanye West out of ‘rock bottom’ manic episode](https://pagesix.com/2026/01/27/celebrity-news/how-bianca-censori-helped-kanye-west-out-of-rock-bottom-manic-episode/) - Page Six
+- [Kanye West Said Sorry. Does He Mean It This Time? - Variety](https://variety.com/2026/music/opinion/kanye-west-apology-antisemitism-1236642666/) - Variety
+- [Ye Says Latest Apology For Antisemitism Not About 'Reviving' Career - Billboard](https://www.billboard.com/music/rb-hip-hop/ye-latest-apology-antisemitic-remarks-not-tied-album-release-1236163544/) - Billboard
+- [Ye, formerly Kanye West, apologizes for 'reckless' antisemitic comments - NBC News](https://www.nbcnews.com/pop-culture/music/ye-formerly-kanye-west-apologizes-reckless-antisemitic-comments-rcna255938) - Nbcnews
+- [Ye apologizes, says he's not 'an antisemite' in full-page newspaper ad - USA Today](https://www.usatoday.com/story/entertainment/celebrities/2026/01/26/ye-wall-street-journal-apology-antisemitic-remarks-kanye-west/88360281007/) - Usatoday
+- [Ye Apologizes for 'Psychotic' Behavior, Cites Bipolar 'Manic Episode' - Variety](https://variety.com/2026/music/news/kanye-west-ye-apologizes-ad-antisemitic-brain-injury-wsj-1236640989/) - Variety
+- [Kanye West Takes Out Full-Page WSJ Ad To Apologize For His “Manic” Antisemitic Outbursts: “I Am Not A Nazi” - Deadline](https://deadline.com/2026/01/kanye-west-wsj-ad-apologize-antisemitic-outbursts-1236696798/) - Deadline
+- ["We were a gang. I'd get into fights in bars defending them. But I had my dream taken away": With Guns N' Roses, Steven Adler went close to the edge more than anyone - but then it all came crashing down](https://www.loudersound.com/bands-artists/steven-adler-gnr-interview) - Louder
