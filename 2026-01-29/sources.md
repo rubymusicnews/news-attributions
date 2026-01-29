@@ -1,0 +1,36 @@
+# Sources for 2026-01-29 News Episode 
+- [Mexico president asks South Korea for more BTS concerts](https://www.bbc.com/news/articles/cz7y2gy4p24o) - BBC News
+- [Mexico’s President Asks Korean Leader for More BTS Dates: ‘A Million Youngsters Want to Buy Tickets’ - Billboard](https://www.billboard.com/pro/bts-mexico-president-asks-south-korea-leader-more-concerts/) - Billboard
+- [Mexico’s president joins ARMY fan base in BTS concert push - AP News](https://apnews.com/article/bts-mexico-concerts-president-claudia-sheinbaum-1907d0dd6fd6e55dff074812ede2920a) - Apnews
+- [Mexico's president joins ARMY fan base in BTS concert push - greenwichtime.com](https://www.greenwichtime.com/entertainment/article/mexico-s-president-joins-army-fan-base-in-bts-21315999.php) - Greenwichtime
+- [Rosé Talks Thoughts on Solo Tour: ‘That’s Been a Big Subject’](http://www.rollingstone.com/music/music-news/rose-solo-tour-call-her-daddy-alex-cooper-1235505848/) - Rolling Stone
+- [J. Cole Confronts His Kendrick Lamar Apology in Surprise Freestyle](http://www.rollingstone.com/music/music-news/j-cole-kendrick-lamar-apology-birthday-blizzard-26-1235506009/) - Rolling Stone
+- [J. Cole Surprise Drops New ‘Birthday Blizzard ’26’ EP Hosted By DJ Clue](http://hiphopdx.com/news/j-cole-birthday-blizzard-26-dj-clue/) - HipHopDX
+- [J. Cole Addresses Kendrick Lamar Apology And More In Surprise ‘Birthday Blizzard '26’ Release](https://www.rap-up.com/article/j-cole-kendrick-lamar-apology-birthday-blizzard-26) - Rap-Up.com
+- [J. Cole Addresses Apologizing to Kendrick Lamar on ‘Birthday Blizzard ’26’ Freestyle - Billboard](https://www.billboard.com/music/rb-hip-hop/j-cole-kendrick-lamar-apology-freestyle-1236165463/) - Billboard
+- [J. Cole Fans Suspect Several New Freestyles Are Dropping Tomorrow - HotNewHipHop](https://www.hotnewhiphop.com/973445-j-cole-fans-suspect-freestyles) - Hotnewhiphop
+- [Birthday Blizzard '26 - Mixtape by J. Cole Hosted By DJ Clue - HotNewHipHop](https://www.hotnewhiphop.com/973528-birthday-blizzard-26-j-cole) - Hotnewhiphop
+- [How To Listen To J. Cole's "Birthday Blizzard '26" Freestyles - HotNewHipHop](https://www.hotnewhiphop.com/973534-how-to-listen-j-cole-birthday-blizzard-26) - Hotnewhiphop
+- [Metal Grammy Nominee Set To Perform Live At The 2026 Grammy Awards](https://www.forbes.com/sites/quentinsinger/2026/01/28/metal-grammy-nominee-set-to-perform-live-at-2026-grammy-awards/) - Forbes
+- [Spiritbox to Perform at Grammys 2026 Premiere Ceremony](https://consequence.net/2026/01/spiritbox-grammys-2026-premiere-ceremony/) - Consequence.net
+- [Justin Bieber To Perform At The 2026 Grammys - Grammy](https://www.grammy.com/news/justin-bieber-2026-grammys-performance) - Grammy
+- [Bruno Mars’s Debut Album Reaches A New Peak, 15 Years After Its Release](https://www.forbes.com/sites/hughmcintyre/2026/01/28/bruno-marss-debut-album-reaches-a-new-peak-15-years-after-its-release/) - Forbes
+- [Bruno Mars and Zach Bryan top the pop charts this week - vpm.org](https://www.vpm.org/npr-news/2026-01-22/bruno-mars-and-zach-bryan-top-the-pop-charts-this-week) - Vpm
+- [Noah Kahan Sets Return With Fourth Album ‘The Great Divide’](http://www.rollingstone.com/music/music-news/noah-kahan-announces-album-the-great-divide-1235506141/) - Rolling Stone
+- [Jeff Buckley finally scores an entry on the US singles chart nearly three decades after his death](https://www.loudersound.com/bands-artists/jeff-buckley-finally-scores-us-singles-chart-hit) - Louder
+- [Nearly 30 Years After His Death, Jeff Buckley Lands Hot 100 Hit With 1994 Track - Rolling Stone](https://www.rollingstone.com/music/music-news/jeff-buckley-hot-100-lover-you-shouldve-come-over-1235506017/) - Rollingstone
+- [Jeff Buckley Earns First Hot 100 Hit Posthumously With 1994’s ‘Lover, You Should’ve Come Over’ - Billboard](https://www.billboard.com/music/chart-beat/jeff-buckley-1st-hot-100-hit-lover-you-shouldve-come-over-1236163745/) - Billboard
+- [“He’s always had more to say than can be expressed in just one band”: Every solo album by Iron Maiden’s Bruce Dickinson ranked from worst to best](https://www.loudersound.com/features/bruce-dickinson-solo-albums-ranked-worst-bets-iron-maiden) - Louder
+- [Taylor Swift Not Expected to Perform at 2026 Grammy Awards Despite Rumors Saying Otherwise](https://www.justjared.com/2026/01/27/taylor-swift-not-expected-to-perform-at-2026-grammy-awards-despite-rumors-saying-otherwise/) - Just Jared
+- [Sabrina Carpenter Is First Performer Announced for 2026 Grammy Awards - Billboard](https://www.billboard.com/music/awards/sabrina-carpenter-2026-grammy-awards-performer-1236157806/) - Billboard
+- [Benson Boone Reacts to Trolls Saying Harry Styles' Comeback Ended His Career](https://www.usmagazine.com/celebrity-news/news/benson-boone-reacts-to-trolls-saying-harry-styles-ended-his-career/#article) - Us Weekly
+- [Benson Boone's Friends Are Checking In on Him Amid Harry Styles's Comeback](https://exclaim.ca/music/article/benson-boone-s-friends-are-checking-in-on-him-amid-harry-styles-s-comeback) - Exclaim!
+- [Harry Styles announces global tour ahead of fourth album release - BBC](https://www.bbc.com/news/articles/c70lljdd2l9o) - Bbc
+- [Harry Styles Announces Music Return With Fourth Solo Album ‘Kiss All the Time. Disco, Occasionally’ - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/harry-styles-new-album-kiss-all-the-time-music-release-date-1236472823/) - Hollywoodreporter
+- [Harry Styles announces fourth album Kiss All The Time. Disco, Occasionally. - BBC](https://www.bbc.com/news/articles/cj3vlj0pejvo) - Bbc
+- [Harry Styles Declares ‘We Belong Together’ on New Single ‘Aperture’ - Rolling Stone](https://www.rollingstone.com/music/music-news/harry-styles-new-song-aperture-1235503158/) - Rollingstone
+- [Harry Styles Has Called It: The Sneakerina Isn’t Going Anywhere in 2026 - Vogue Philippines](https://vogue.ph/fashion/celebrity-fashion/harry-styles-aperture-music-video-sneakerinas/) - Vogue
+- ["I knew something was wrong. I went to the bar and my girlfriend was there with another guy." The dagger-through-the-heart memory which inspired the biggest rock song of its generation](https://www.loudersound.com/bands-artists/the-dagger-through-the-heart-memory-which-inspired-mr-brightside-the-biggest-rock-song-of-its-generation) - Louder
+- [Imarhan – Essam (2026)](https://exystence.net/blog/2026/01/28/imarhan-essam-2026/) - Exystence.net
+- [Spitzenprofessur für einen Jazz-Star: Terri Lyne Carrington wird Professorin in München](https://www.sueddeutsche.de/muenchen/terri-lyne-carrington-spitzenprofessur-hochschule-fuer-musik-und-theater-muenchen-jazz-li.3373118) - Süddeutsche Zeitung
+- [A Year After Chappell Roan’s Grammy Speech, Mental Health Crisis Line For Music Industry Launches](https://www.forbes.com/sites/cathyolson/2026/01/27/mental-health-crisis-line-for-music-industry-launches-a-year-after-chappell-roans-grammy-speech/) - Forbes
