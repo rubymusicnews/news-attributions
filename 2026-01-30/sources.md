@@ -1,0 +1,46 @@
+# Sources for 2026-01-30 News Episode 
+- [Rosé Joins Star-Studded 2026 Grammys Performance Lineup Featuring Lady Gaga, Sabrina Carpenter, More](http://www.rollingstone.com/music/music-news/grammys-2026-performers-1235506937/) - Rolling Stone
+- [2026 Grammy Nominees for Record & Song of the Year are Nearly Identical. How Unusual Is That? - Billboard](https://www.billboard.com/lists/grammy-nominees-record-song-of-the-year-overlap-full-list/) - Billboard
+- [All 8 Best New Artist Nominees Set to Perform on 2026 Grammy Awards - Billboard](https://www.billboard.com/music/awards/all-8-best-new-artist-nominees-perform-2026-grammy-awards-1236158616/) - Billboard
+- [Spotify’s Best New Artist Party Returns for Grammy Week With Performances From All Nominees - Billboard](https://www.billboard.com/music/music-news/spotify-best-new-artist-party-nominees-perform-grammy-week-1236159087/) - Billboard
+- [Tyler, the Creator to Perform at 2026 Grammy Awards - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-news/tyler-the-creator-perform-2026-grammys-1236489029/) - Hollywoodreporter
+- [What you need to know ahead of the 2026 Grammy Awards show - sfchronicle.com](https://www.sfchronicle.com/entertainment/music/article/grammy-awards-2026-guide-21320442.php) - Sfchronicle
+- [Harvey Mason jr. on 2026 Grammys: Jack Antonoff, Morgan Wallen & More - Billboard](https://www.billboard.com/music/awards/harvey-mason-jr-talks-2026-grammys-1236157526/) - Billboard
+- [Four big questions ahead of the 2026 Grammy Awards show - AP News](https://apnews.com/article/grammy-awards-2026-what-to-expect-096e61d59ebee84d5c1d16ac20b19ea2) - Apnews
+- [Shakira Is Officially the Latin Artist With the Highest Grossing Tour of All Time](http://www.rollingstone.com/music/music-latin/shakira-highest-grossing-tour-latin-artist-all-time-1235506789/) - Rolling Stone
+- [Shakira Sets Guinness World Record as Highest Grossing Female Latin Tour of All Time - Billboard](https://www.billboard.com/pro/shakira-highest-grossing-female-latin-tour-guinness-record/) - Billboard
+- [Could An Upload Fee Help Fix Music Streaming?](https://www.forbes.com/sites/shainshapiro/2026/01/29/could-an-upload-fee-help-fix-music-streaming/) - Forbes
+- [Spotify Paid Out $11B in Royalties to Music Industry in 2025, All-Time Payments Surpass $70B - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-industry-news/spotify-paid-out-11b-royalties-music-industry-2025-1236486656/) - Hollywoodreporter
+- [Spotify Paid Out a Record $11 Billion to the Music Industry in 2025 - Variety](https://variety.com/2026/music/news/spotify-paid-out-11-billion-to-music-industry-2025-1236642550/) - Variety
+- [Wizkid, Burna Boy, Asake headline Afro Nation 2026 in Portugal](https://punchng.com/wizkid-burna-boy-asake-headline-afro-nation-2026-in-portugal/) - The Punch
+- [SHARON OSBOURNE Teases Possible Ozzfest Revival, Says Festival Could Return As Soon As 2027](https://metalinjection.net/news/sharon-osbourne-teases-possible-ozzfest-revival-says-festival-could-return-as-soon-as-2027) - Metal Injection.net
+- [“It was something Ozzy was very passionate about: giving young talent a stage in front of a lot of people”: Sharon Osbourne is talking to Live Nation about bringing Ozzfest back](https://www.loudersound.com/news/sharon-osbourne-talks-bring-ozzfest-back-2026) - Louder
+- [Sharon Osbourne Is Considering Bringing Ozzfest Back](https://loudwire.com/ozzfest-return-sharon-osbourne/) - Loudwire
+- [After Ozzy’s Death, Sharon Osbourne Is Still Changing The Music Industry: ‘I’m Up 24 Hours a Day’ - Billboard](https://www.billboard.com/business/management/sharon-osbourne-power-100-visionary-interview-1236164046/) - Billboard
+- [‘The Beatles — A Four-Film Cinematic Event’ Unveils First-Look Photos Of Fab Four](http://deadline.com/2026/01/beatles-movies-first-look-photos-unveiled-1236702642/) - Deadline
+- [First Look at Sam Mendes' Beatles Revealed in Global Postcard Drop - IGN Southeast Asia](https://sea.ign.com/george-harrison-sam-mendes-beatles-biopic-project/238064/news/first-look-at-sam-mendes-beatles-revealed-in-global-postcard-drop) - Ign
+- [See Paul Mescal, Barry Keoghan, and More in First Look at Sam Mendes’ Beatles Biopics - Pitchfork](https://pitchfork.com/news/see-paul-mescal-barry-keoghan-and-more-in-first-look-at-sam-mendes-beatles-biopics/) - Pitchfork
+- [Everything We Know About Sam Mendes’ Beatles Biopics So Far - Deadline](https://deadline.com/feature/the-beatles-movies-sam-mendes-news-updates-1236600881/) - Deadline
+- [‘The Beatles — A Four-Film Cinematic Event’ Unveils First-Look Photos Of Fab Four - Deadline](https://deadline.com/2026/01/beatles-movies-first-look-photos-unveiled-1236702642/) - Deadline
+- [Slash: Next Guns N’ Roses Album to Feature All “New Original Stuff,” No Chinese Democracy Leftovers](https://consequence.net/2026/01/slash-new-guns-n-roses-album-all-original-stuff/) - Consequence.net
+- [Slash Promises That Next Guns N’ Roses Release Will Be an Album of ‘All New Original Stuff’ - Billboard](https://www.billboard.com/music/rock/slash-next-guns-n-roses-release-album-all-new-original-stuff-1236166383/) - Billboard
+- [Billboard - January 24, 2026](https://post.rlsbb.to/billboard-january-24-2026/) - Rlsbb.to
+- [How Tyler, The Creator Turned His Cult Fanbase Into Supreme Success](https://www.forbes.com/sites/mattcraig/2026/01/29/how-tyler-the-creator-turned-his-cult-fanbase-into-supreme-success/) - Forbes
+- [One song, two paths: What A$AP Rocky and Tyler, the Creator reveal in each other - iowapublicradio.org](https://www.iowapublicradio.org/2026-01-22/one-song-two-paths-what-a-ap-rocky-and-tyler-the-creator-reveal-in-each-other) - Iowapublicradio
+- [Tyler, The Creator: Greatest Pop Stars of 2025, No. 10 - Billboard](https://www.billboard.com/music/chart-beat/tyler-the-creator-greatest-pop-stars-2025-number-10-1236157401/) - Billboard
+- [Harry Styles fans are furious at his tour ticket prices – but are they actually unreasonable?](https://www.the-independent.com/arts-entertainment/music/news/harry-styles-tickets-wembley-prices-ticketmaster-b2909959.html) - The-independent.com
+- [“Harry Styles, You’ve Changed”: Fans Outraged At The Prices Of Harry Styles New Tour Tickets](https://www.boredpanda.com/harry-styles-ridiculous-tour-ticket-prices/) - Boredpanda.com
+- [Why ‘jealous’ Zayn Malik took ‘cheap shot’ at former bandmate Harry Styles](https://pagesix.com/2026/01/29/celebrity-news/why-jealous-zayn-malik-took-cheap-shot-at-former-bandmate-harry-styles/) - Page Six
+- [Zayn Malik shades Harry Styles over concert ticket prices](https://pagesix.com/2026/01/29/entertainment/zayn-malik-shades-harry-styles-over-concert-ticket-prices/) - Page Six
+- [Harry Styles supporting small music venues with tour donation - BBC](https://www.bbc.com/news/articles/crlepx70185o) - Bbc
+- [Harry Styles fans slam ticket prices for the singer's Together, Together tour: 'I'm so over this' - Yahoo](https://www.yahoo.com/entertainment/music/article/harry-styles-fans-slam-ticket-prices-for-the-singers-together-together-tour-im-so-over-this-212508909.html) - Yahoo
+- [Zayn Seemingly Just Dragged Harry Styles For His Extortionate Ticket Prices - BuzzFeed](https://www.buzzfeed.com/stephaniesoteriou/after-harry-styles-ticket-backlash-zayn-malik-throws-shade) - Buzzfeed
+- [Harry Styles tour tickets are on sale and fans are mad - ktla.com](https://ktla.com/entertainment/harry-styles-tour-tickets-are-on-sale-and-fans-are-mad/) - Ktla
+- [A$AP Rocky, ENHYPEN, Bad Bunny duke it out for No. 1 on the pop charts](https://www.npr.org/2026/01/29/nx-s1-5691535/asap-rocky-enhypen-bad-bunny-billboard-album-charts) - NPR
+- [A$AP Rocky’s ‘Don’t Be Dumb’ Debuts at No. 1 on Billboard 200 - Billboard](https://www.billboard.com/music/chart-beat/asap-rocky-dont-be-dumb-number-one-billboard-200-chart-1236162371/) - Billboard
+- [Madison Beer’s ‘Locket’ Makes Top 10 Debut on 5 Billboard Album Charts - Billboard](https://www.billboard.com/music/chart-beat/madison-beer-locket-chart-debut-billboard-1236164519/) - Billboard
+- [A$AP Rocky Doubles His Career Top 10 Total on This Chart - Billboard](https://www.billboard.com/music/chart-beat/asap-rocky-top-10-total-hip-hop-rb-chart-1236164260/) - Billboard
+- [Karan Aujla, Shubh nominated for 2026 Juno Awards](http://musically.com/2026/01/29/karan-aujla-shubh-nominated-for-2026-juno-awards/) - Music Ally
+- ['Midnight Sun' Lyrics: Zara Larsson Talks Meaning of Song & What It's Really About](https://www.justjared.com/2026/01/29/midnight-sun-lyrics-zara-larsson-talks-meaning-of-song-what-its-really-about/) - Just Jared
+- [Zara Larsson On her First Grammy Nomination for "Midnight Sun" - Billboard](https://www.billboard.com/video/zara-larsson-on-first-grammy-nomination-for-midnight-sun/) - Billboard
+- [WINTERFYLLETH Sign To Napalm Records, Announce New Album The Unyielding Season](https://metalinjection.net/video/winterfylleth-sign-to-napalm-records-announce-new-album-the-unyielding-season) - Metal Injection.net
