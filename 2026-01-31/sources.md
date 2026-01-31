@@ -1,0 +1,43 @@
+# Sources for 2026-01-31 News Episode 
+- [Vans Warped Tour Returns In 2026 With Global Expansion & Five Two-Day Festivals](https://metalinjection.net/tour-dates/vans-warped-tour-returns-in-2026-with-global-expansion-five-two-day-festivals) - Metal Injection.net
+- [Spotify premieres new music video docuseries](http://musically.com/2026/01/30/spotify-premieres-new-music-video-docuseries/) - Music Ally
+- [Spotify Paid Out a Record $11 Billion to the Music Industry in 2025 - Variety](https://variety.com/2026/music/news/spotify-paid-out-11-billion-to-music-industry-2025-1236642550/) - Variety
+- [Spotify Touts $11 Billion Paid to Music Industry, Addresses Streaming Criticism - Billboard](https://www.billboard.com/pro/spotify-11b-music-industry-payouts-charlie-hellman-letter/) - Billboard
+- [These 10 albums from 1996 changed music forever](https://www.abc.net.au/news/2026-01-30/albums-1996-30-years-weezer-fugees-you-am-i-spiderbait/106126108) - ABC News (AU)
+- [Fela becomes first African to receive Grammy lifetime honour](https://punchng.com/fela-becomes-first-african-to-receive-grammy-lifetime-honour/) - The Punch
+- [Music legend Fela Kuti becomes first African to get Grammys Lifetime Achievement Award - BBC](https://www.bbc.com/news/articles/czx1207757xo) - Bbc
+- [Believe UK’s Bridie Asare and Joe Edwards talk “fixed identity, flexible execution”](http://musically.com/2026/01/30/believe-uks-bridie-asare-and-joe-edwards-talk-fixed-identity-flexible-execution/) - Music Ally
+- [The Best Version Of... Abbey Road](https://audiophilestyle.com/ca/the-best-version-of/the-best-version-of-abbey-road-r1408/) - Audiophilestyle.com
+- [Red Hot Chili Peppers Documentary Set for Netflix Release in March](https://consequence.net/2026/01/rise-of-red-hot-chili-peppers-netflix-documentary-release-date/) - Consequence.net
+- [Red Hot Chili Peppers Documentary Set at Netflix (EXCLUSIVE) - Variety Australia](https://au.variety.com/2026/film/news/red-hot-chili-peppers-netflix-documentary-32530/) - Variety
+- [Netflix’s ‘The Rise of the Red Hot Chili Peppers’ Documentary To Chronicle Early Years With Late Guitarist Hillel Slovak - Billboard](https://www.billboard.com/music/rock/netflix-rise-of-red-hot-chili-peppers-documentary-slovak-1236167830/) - Billboard
+- [Red Hot Chili Peppers Documentary Set at Netflix (EXCLUSIVE) - Variety](https://variety.com/2026/film/news/red-hot-chili-peppers-netflix-documentary-1236645026/) - Variety
+- [Stream it away: New Red Hot Chili Peppers doc to premiere on Netflix - Yahoo](https://www.yahoo.com/entertainment/music/articles/stream-away-red-hot-chili-162000514.html) - Yahoo
+- [DEFTONES Sells Majority Of Their Catalog To Warner Music Group](https://metalinjection.net/news/deftones-sells-majority-of-their-catalog-to-warner-music-group) - Metal Injection.net
+- [Deftones Rights Sale to Warner Music Follows Explosive Growth in Catalog Activity - Billboard](https://www.billboard.com/pro/deftones-catalog-sale-warner-wmg-deal-music-rights-worth/) - Billboard
+- [Lauryn Hill, Reba McEntire, Post Malone to lead Grammys ‘In Memoriam’ tribute](https://www.bostonherald.com/2026/01/30/grammys-2026-in-memoriam-tribute-performers/) - Boston Herald
+- [Reba McEntire, Lauryn Hill, Post Malone to Lead Grammys “In Memoriam” Segment - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-news/grammys-2026-in-memoriam-ozzy-osbourne-tribute-post-malone-1236487539/) - Hollywoodreporter
+- [On 2026 Grammys, Ms. Lauryn Hill, Post Malone, Reba McEntire & More Will Honor Music Legends We Lost in the Past Year - Billboard](https://www.billboard.com/music/awards/2026-grammys-in-memoriam-tributes-1236165866/) - Billboard
+- [Reba McEntire, Lauryn Hill, Post Malone to Lead Grammy ‘In Memoriam’ Segment - Variety](https://variety.com/2026/music/news/grammy-in-memoriam-reba-mcentire-lauryn-hill-post-malone-1236643771/) - Variety
+- [Tyler, the Creator and Rosé to Perform at 2026 Grammy Awards - au.variety.com](https://au.variety.com/2026/music/news/tyler-the-creator-rose-perform-at-2026-grammy-awards-32517/) - Variety
+- [Tyler, the Creator and Rosé to Perform at 2026 Grammy Awards - Variety](https://variety.com/2026/music/news/tyler-the-creator-rose-perform-at-2026-grammy-awards-1236645241/) - Variety
+- [Grammys’ AI rules aim to keep music human, but large gray area leaves questions about authenticity and authorship](https://theconversation.com/grammys-ai-rules-aim-to-keep-music-human-but-large-gray-area-leaves-questions-about-authenticity-and-authorship-274504) - The Conversation Africa
+- [Lola Young Makes Triumphant Return at Spotify’s Best New Artist Grammys party](http://www.rollingstone.com/music/music-features/lola-young-returns-spotify-grammys-party-1235507466/) - Rolling Stone
+- [Olivia Dean, Leon Thomas, Lola Young Highlight Spotify’s 2026 Best New Artist Party - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-news/olivia-dean-leon-thomas-spotify-best-new-artist-party-1236489431/) - Hollywoodreporter
+- [Lola Young Blends Hollywood Hair With Spider Lashes at Spotify’s Best New Artist Party - WWD](https://wwd.com/pop-culture/celebrity-news/lola-young-beauty-spotify-best-new-artist-party-1238532223/) - Wwd
+- [Listen to Hayley Williams’s New Project, Power Snatch](https://pitchfork.com/news/listen-to-hayley-williamss-new-project-power-snatch/) - Pitchfork
+- [Listen to Hayley Williams’ New Project, Power Snatch](https://pitchfork.com/news/listen-to-hayley-williams-new-project-power-snatch/) - Pitchfork
+- [Bruce Springsteen Showed Exactly Why We Need Protest Songs Right Now](https://www.esquire.com/entertainment/music/a70201706/bruce-springsteen-streets-of-minneapolis-protest-song/) - esquire.com
+- [Springsteen slams 'King Trump's private army' in protest song](https://www.abc.net.au/news/2026-01-30/bruce-springsteen-ice-trump-protest-song-streets-of-minneapolis/106286788) - ABC News (AU)
+- [Springsteen Set To Perform In Minneapolis At Anti-ICE National Shutdown Protest; The Boss Released Song Days Ago Slamming Trump & Recent Killings](http://deadline.com/2026/01/springsteen-concert-ice-protest-minneapolis-1236703887/) - Deadline
+- [White House Reacts to Bruce Springsteen’s Anti-ICE Song](https://loudwire.com/white-house-reacts-bruce-springsteens-streets-of-minneapolis/) - Loudwire
+- [Bruce Springsteen Crashes Tom Morello ICE Benefit In Minneapolis - Yahoo](https://www.yahoo.com/entertainment/music/articles/bruce-springsteen-crashes-tom-morello-195631042.html) - Yahoo
+- [Bruce Springsteen releases anti-ICE protest song ‘Streets of Minneapolis’ - NPR](https://www.npr.org/2026/01/28/nx-s1-5691707/bruce-springsteen-minneapolis-protest-song-alex-pretti-renee-good) - Npr
+- [The Tragic Familiarity of a New Springsteen Protest Song - The Atlantic](https://www.theatlantic.com/culture/2026/01/bruce-springsteen-streets-of-minneapolis-review/685807/) - Theatlantic
+- [Bruce Springsteen releases searing protest song ‘Streets of Minneapolis’ - The Washington Post](https://www.washingtonpost.com/style/2026/01/28/streets-of-minneapolis-bruce-springsteen/) - Washingtonpost
+- [Bruce Springsteen Performs Anti-ICE Song Live at Minneapolis Protest Concert as Crowd Yells ‘ICE Out Now!’ - Variety Australia](https://au.variety.com/2026/music/news/bruce-springsteen-performs-minnesota-benefit-ice-concert-2-32541/) - Variety
+- [‘We Made a Time Machine’: Tamra Davis on Spirit-of-’94 Concert Doc ‘The Best Summer’](http://www.rollingstone.com/tv-movies/tv-movie-features/tamra-davis-the-best-summer-sundance-interview-1235503847/) - Rolling Stone
+- [Sonic Youth, Beastie Boys, Foo Fighters Rock 'The Best Summer' Doc - Variety](https://variety.com/2026/music/news/best-summer-sonic-youth-kim-gordon-tamra-davis-sundance-1236641000/) - Variety
+- [Fleeing the Malibu fires, she found a box of old ’90s videos and emerged with 'The Best Summer' - latimes.com](https://www.latimes.com/entertainment-arts/movies/story/2026-01-24/best-summer-tamra-davis-1990s-sonic-youth-kathleen-hanna-tour-documentary) - Latimes
+- [2026 Sundance Film Festival Preview: The Must-See Films at the Final Year in Park City - The Film Stage](https://thefilmstage.com/2026-sundance-film-festival-preview-the-must-see-films-at-the-final-year-in-park-city/) - Thefilmstage
+- [Sundance 2026: Updates from the final festival in Park City - latimes.com](https://www.latimes.com/entertainment-arts/movies/live/sundance-2026-film-festival-live-updates-park-city-celebrity-photos-videos) - Latimes
