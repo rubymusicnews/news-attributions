@@ -1,0 +1,40 @@
+# Sources for 2026-02-02 News Episode 
+- [Grammys 2026: Burna Boy loses Best Global Music Album to Caetano Veloso, Maria Bethânia](https://punchng.com/?p=2052133) - The Punch
+- [Grammy Awards: Winners List (Updating Live) - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/2026-grammys-winners-list-1236484722/) - Hollywoodreporter
+- [Here's Yungblud's Full Speech for 2026 Grammy Win](https://loudwire.com/yungblud-full-speech-2026-grammy-best-rock-performance/) - Loudwire
+- [Yungblud Wins ? at 2026 Grammy Awards](https://loudwire.com/yungblud-wins-best-rock-performance-2026-grammy-awards/) - Loudwire
+- [Yungblud Honors Ozzy Osbourne Following ‘Changes’ Grammy Win - Ultimate Classic Rock](https://ultimateclassicrock.com/yungblud-ozzy-osbourne-changes-grammys/) - Ultimateclassicrock
+- [Grammy highlights - from a chaotic Cher to Sabrina's stewardess - BBC](https://www.bbc.com/news/articles/c1ev5dq4xvdo) - Bbc
+- [Burna Boy, Davido, Ayra Starr, Tyla battle for Grammy glory](https://punchng.com/burna-boy-davido-ayra-starr-tyla-battle-for-grammy-glory/) - The Punch
+- [Tyla's Reaction After She Wins A Grammy For Bests African Music Performance \| Grammys 2026 - Yahoo](https://www.yahoo.com/entertainment/videos/tylas-reaction-she-wins-grammy-013236068.html) - Yahoo
+- [Ayra Starr, PinkPantheress & More Share Their Feelings on Their Grammy Nominations \| Billboard News - Billboard](https://www.billboard.com/video/pinkpantheress-ayra-starr-feelings-grammy-nominations/) - Billboard
+- [Watch Tyla Get Serenaded by Epic Records Grammy Party for Her 24th Birthday: ‘Make a Wish, T!’ - Billboard](https://www.billboard.com/music/awards/tyla-birthday-epic-records-hennessy-grammy-party-video-1236168774/) - Billboard
+- [Jeff Tweedy: "Music is my savior"](https://www.cbsnews.com/video/jeff-tweedy-music-is-my-savior/) - CBS News
+- [Jeff Tweedy of Wilco on the power of music](https://www.cbsnews.com/news/jeff-tweedy-on-twilight-override-and-wilco/) - CBS News
+- [Peter Gabriel Shares New Song ‘Put the Bucket Down’ From Upcoming Album](http://www.rollingstone.com/music/music-news/peter-gabriel-new-song-put-the-bucket-down-1235508806/) - Rolling Stone
+- ["The ‘bucket’ is all the crap that goes around our head all the time..." Peter Gabriel shares new single Put The Bucket Down](https://www.loudersound.com/bands-artists/the-bucket-is-all-the-crap-that-goes-around-our-head-all-the-time-peter-gabriel-shares-new-single-put-the-bucket-down) - Louder
+- [Laufey Wins Best Traditional Pop Vocal Album at Grammys 2026, Urges Not to Cut Arts Funding](https://www.justjared.com/2026/02/01/laufey-wins-best-traditional-pop-vocal-album-at-grammys-2026-urges-not-to-cut-arts-funding/) - Just Jared
+- [Grammys Winners 2026 (Updating Live) - Variety](https://variety.com/2026/music/awards/grammys-winners-list-1236642224/) - Variety
+- [Grammy Winners 2026: See the Full List - Pitchfork](https://pitchfork.com/news/grammy-winners-2026-see-the-full-list/) - Pitchfork
+- [See the full list of 2026 Grammy winners - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/full-list-2026-grammy-winners/6453305/) - Nbcnewyork
+- [Doechii Wins Best Music Video for “Anxiety” at 2026 Grammys](https://pitchfork.com/news/doechii-wins-best-music-video-for-anxiety-at-2026-grammys/) - Pitchfork
+- [Doechii in Custom Roberto Cavalli at Grammys 2026 - WWD](https://wwd.com/pop-culture/celebrity-news/doechii-roberto-cavalli-grammys-2026-1238534753/) - Wwd
+- [Lily Allen has made a huge comeback — soon she'll be in Australia](https://www.abc.net.au/news/2026-02-01/lily-allen-australia-tour-hottest-100-interview-west-end-girl/106281950) - ABC News (AU)
+- [Lily Allen Announces Australia and New Zealand Shows - Billboard](https://www.billboard.com/music/concerts/lily-allen-australia-new-zealand-west-end-girl-1236168919/) - Billboard
+- [Read Joni Mitchell’s Full 2026 Grammy Acceptance Speech](http://www.vulture.com/article/joni-mitchell-2026-grammys-acceptance-speech.html) - Vulture
+- [Grammys 2026 live updates from Music's Biggest Night - USA Today](https://www.usatoday.com/live-story/entertainment/music/2026/02/01/grammys-2026-live-updates-news/88368656007/) - Usatoday
+- [Grammys 2026 Winners Have Arrived—and 'Kpop Demon Hunters' Already Won - Teen Vogue](https://www.teenvogue.com/story/grammys-winners-2026-see-the-full-list-here) - Teenvogue
+- [The King of Pop strikes a pose in his iconic “Beat It” gear in a new poster for Antoine Fuqua’s Michael Jackson biopic](https://www.joblo.com/michael-antoine-fuqua-poster/) - JoBlo.com
+- ["Michael" Sets International Premiere Date - Variety Australia](https://au.variety.com/2026/film/news/michael-international-premiere-32360/) - Variety
+- ['The Trial': Michael Jackson Channel 4 Doc Airs Remarks About Children - Deadline](https://deadline.com/2026/02/michael-jackson-the-trial-doc-remarks-children-2005-1236705838/) - Deadline
+- [Justin Timberlake performs for first time since Lyme Disease diagnosis at Grammys event](https://pagesix.com/2026/01/31/entertainment/justin-timberlake-performs-for-first-time-since-lyme-disease-diagnosis-at-grammys-event/) - Page Six
+- [Justin Timberlake Performs for the First Time Since Revealing Lyme Diagnosis to Honor Pharrell - Billboard](https://www.billboard.com/music/music-news/justin-timberlake-performs-first-time-lyme-diagnosis-reveal-1236167979/) - Billboard
+- [“We played at a punk club in Germany and this guy was pointing a gun at me the whole time. That was uncomfortable!”: The pioneering European metal queen loved by Dio, Lemmy and Gene Simmons](https://www.loudersound.com/bands-artists/doro-pesch-interview-warlock-lemmy-gene-simmons) - Louder
+- [Shaboozey Gets Emotional as He Wins First Grammy, Dedicates Award to Immigrants](https://www.justjared.com/2026/02/01/shaboozey-gets-emotional-as-he-wins-first-grammy-dedicates-award-to-immigrants/) - Just Jared
+- [Shaboozey Honors Immigrants as He Accepts His First Grammy: ‘You Give America Color’ - Billboard](https://www.billboard.com/music/awards/shaboozey-grammys-acceptance-speech-immigrants-jelly-roll-1236169228/) - Billboard
+- [Stars Speak Up for Immigrants Throughout Grammys Night - The New York Times](https://www.nytimes.com/2026/02/01/arts/music/grammys-ice-immigration-kehlani.html) - Nytimes
+- [Grammys Backstage: A Tearful Shaboozey Shouts Out His Parents, Lineage, Jelly Roll - Forbes](https://www.forbes.com/sites/cathyolson/2026/02/01/a-tearful-shaboozey-shouts-out-his-parents-ancestors-backstage-at-the-grammys/) - Forbes
+- [Grammys live updates: Trevor Noah hosts as awards and performances begin - AP News](https://apnews.com/live/grammys-2026-updates) - Apnews
+- [Grammys 2026: Shaboozey Dedicates First Grammy Win To ‘All Children Of Immigrants’ - Forbes](https://www.forbes.com/sites/matthewleimkuehler/2026/02/01/grammys-2026-shaboozey-dedicates-first-grammy-win-to-all-children-of-immigrants/) - Forbes
+- [Toronto-based Mexican musician cancels U.S. tour after ICE shootings, as artists reconsider American shows](https://www.cbc.ca/news/canada/toronto/quique-escamilla-cancels-us-tour-amid-ice-shootings-9.7066870) - CBC News
+- [Live - Billboard](https://www.billboard.com/p/live-power-100-list-2026/) - Billboard
