@@ -1,0 +1,39 @@
+# Sources for 2026-02-04 News Episode 
+- [BTS to Return With Live Comeback Performance, New Documentary](http://www.rollingstone.com/music/music-news/bts-return-live-comeback-performance-new-documentary-1235510137/) - Rolling Stone
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Is Planning A Massive Free Concert In March - Forbes](https://www.forbes.com/sites/hannahabraham/2026/01/22/bts-is-planning-a-massive-free-concert-in-march/) - Forbes
+- [BTS Gearing Up For Long-Awaited Comeback With Netflix Livestream Concert, ‘BTS: The Return’ Documentary - Billboard](https://www.billboard.com/music/pop/bts-netflix-livestream-performance-the-return-documentary-1236171473/) - Billboard
+- [Netflix to Air Special BTS Comeback Performance and New Documentary - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/netflix-bts-comeback-arirang-live-stream-documentary-1236493416/) - Hollywoodreporter
+- [BTS Announces Livestream Concert and Feature-Length Documentary to Air on Netflix - Variety Australia](https://au.variety.com/2026/music/news/bts-announces-livestream-concert-documentary-netflix-32684/) - Variety
+- [BTS Team Up with Netflix For Comeback Live-Stream And Documentary - Forbes](https://www.forbes.com/sites/laurasirikul/2026/02/02/bts-team-up-with-netflix-for-comeback-performance-and-documentary/) - Forbes
+- [American Football Touring Behind New Album?](https://www.spin.com/2026/02/american-football-tour/) - SPIN
+- [American Football Line Up Sprawling Tour](https://pitchfork.com/news/american-football-line-up-sprawling-tour/) - Pitchfork
+- [American Football Announce 2026 Tour](https://consequence.net/2026/02/american-football-2026-tour/) - Consequence.net
+- [Dua Saleh Announces New Album, Shares Songs with Bon Iver](https://pitchfork.com/news/dua-saleh-announces-new-album-shares-songs-with-bon-iver/) - Pitchfork
+- [Biffy Clyro Announce 2026 North American Tour](https://consequence.net/2026/02/biffy-clyro-2026-tour-dates/) - Consequence.net
+- [Staind Announce 2026 Tour Dates Celebrating Classic Album](https://loudwire.com/staind-2026-north-american-tour-dates/) - Loudwire
+- [STAIND Announce Massive 2026 Headlining Tour Celebrating 25 Years Of Break The Cycle](https://metalinjection.net/tour-dates/staind-announce-massive-2026-headlining-tour-celebrating-25-years-of-break-the-cycle) - Metal Injection.net
+- [8 Great Super Bowl Halftime Show Performances That Have Aged Well](https://www.mentalfloss.com/entertainment/music/super-bowl-halftime-show-performances-that-aged-well) - Mental Floss
+- [How the Super Bowl halftime show evolved from pageantry to pop culture’s biggest stage - Chicago Tribune](https://www.chicagotribune.com/2026/02/02/super-bowl-halftime-show-evolution/) - Chicagotribune
+- [The 10 Best Super Bowl halftime shows of all time - CBS Sports](https://www.cbssports.com/nfl/news/best-super-bowl-halftime-shows/) - Cbssports
+- [Who's performed Super Bowl halftime show: Full list of every performer in history - CBS Sports](https://www.cbssports.com/nfl/news/every-super-bowl-halftime-performer-in-history/) - Cbssports
+- [Mandy, Indiana Enlist billy woods for New Song](https://pitchfork.com/news/mandy-indiana-enlist-billy-woods-for-new-song/) - Pitchfork
+- [billy woods joins forces with Mandy, Indiana, on new track, "Sicko!"](https://www.thelineofbestfit.com/news/billy-woods-joins-forces-with-mandy-indiana-on-new-track-sicko) - Thelineofbestfit.com
+- [Deep Purple announce one-off show at London's iconic Royal Albert Hall](https://www.loudersound.com/bands-artists/deep-purple-royal-albert-hall-20236) - Louder
+- [90 New Rock + Metal Tours Announced The Last 5 Weeks](https://loudwire.com/new-rock-metal-tours-january-2026/) - Loudwire
+- [Megadeth Are Number One … Finally!](http://www.rollingstone.com/music/music-features/megadeth-dave-mustaine-number-one-album-essay-1235510224/) - Rolling Stone
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - Mid Florida Newspapers](https://www.midfloridanewspapers.com/ap/entertainment/music-review-megadeth-is-going-out-on-top-with-ferocious-self-titled-final-album/article_d62e04a7-fcb9-573b-ab19-b1c9cf6635d0.html) - Midfloridanewspapers
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - The Killeen Daily Herald](https://kdhnews.com/living/ae/music-review-megadeth-is-going-out-on-top-with-ferocious-self-titled-final-album/article_96c4cf27-3420-59c1-92a6-180a1295d599.html) - Kdhnews
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - greenwichtime.com](https://www.greenwichtime.com/entertainment/article/music-review-megadeth-is-going-out-on-top-with-21305091.php) - Greenwichtime
+- [Megadeth Earns First No. 1 Album on Billboard 200 - Billboard](https://www.billboard.com/music/chart-beat/megadeth-first-number-one-album-billboard-200-chart-1236169046/) - Billboard
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - indianagazette.com](https://www.indianagazette.com/ap/entertainment/music-review-megadeth-is-going-out-on-top-with-ferocious-self-titled-final-album/article_cc33af52-0ebb-5075-8496-3ffcbf171824.html) - Indianagazette
+- [Megadeth Land First Ever US No. 1 With Final Self Titled Album - Blunt Magazine](https://bluntmag.com.au/news/megadeth-final-album-no-1-us/) - Bluntmag
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album \| News, Sports, Jobs - The Express - lockhaven.com](https://www.lockhaven.com/news/arts-culture-scene/2026/01/music-review-megadeth-is-going-out-on-top-with-ferocious-self-titled-final-album/) - Lockhaven
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - courant.com](https://www.courant.com/2026/01/21/megadeth-review/) - Courant
+- [Kristi Noem lashes out at ‘ill-informed’ musicians who slammed ICE at the Grammy Awards](https://www.the-independent.com/arts-entertainment/music/news/kristi-noem-ice-grammy-awards-b2913304.html) - The-independent.com
+- [Music Stars Protest ICE at Grammys Amid Crackdown Backlash - Newsweek](https://www.newsweek.com/entertainment/music-stars-protest-ice-at-grammys-amid-crackdown-backlash-11450734) - Newsweek
+- ["ICE out": Stars at Grammys slam immigration agency with pins, in speeches - Axios](https://www.axios.com/2026/02/02/ice-out-2026-grammys-protest-pins-bad-bunny-photos) - Axios
+- [68th Grammys awards kicks off in LA - The Jerusalem Post](https://www.jpost.com/international/article-885269) - Jpost
+- ["I miss Ukraine very much. I missed it even more when I realised that I cannot go back there." The Ukrainian heavy metal singer who had to flee war to maker her rock star dreams come true](https://www.loudersound.com/bands-artists/i-miss-ukraine-very-much-i-missed-it-even-more-when-i-realised-that-i-cannot-go-back-there-the-ukrainian-heavy-metal-singer-who-had-to-flee-war-to-maker-her-rock-star-dreams-come-true) - Louder
+- [Quando Guitar Hero e Rock Band rischiavano di disboscare intere foreste](https://multiplayer.it/articoli/quando-guitar-hero-e-rock-band-rischiavano-di-disboscare-intere-foreste.html) - Multiplayer.it
+- [Metric Announce New Album Romanticize the Dive, Reveal “Victim of Luck”: Stream](https://consequence.net/2026/02/metric-romanticize-the-dive-new-album-victim-of-luck-stream/) - Consequence.net
