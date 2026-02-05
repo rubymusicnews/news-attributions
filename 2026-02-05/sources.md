@@ -1,0 +1,44 @@
+# Sources for 2026-02-05 News Episode 
+- [MEGADETH, MESHUGGAH, DEAFHEAVEN, FEAR FACTORY & More Slated For Record Store Day 2026](https://metalinjection.net/news/megadeth-meshuggah-deafheaven-fear-factory-more-slated-for-record-store-day-2026) - Metal Injection.net
+- [＜レコード・ストア・デイ 2026＞　米国・英国で発売される限定盤のリスト公開](https://amass.jp/187630/) - Amass.jp
+- [The Big List of 2026 Rock + Metal Record Store Day Releases](https://loudwire.com/2026-record-store-day-rock-metal-releases/) - Loudwire
+- [“Lost Slipknot Album” Look Outside Your Window to Be Released on Record Store Day 2026](https://consequence.net/2026/02/lost-slipknot-album-outside-your-window-record-store-day/) - Consequence.net
+- [Slipknot Members' 'Look Outside Your Window' Gets Release](https://loudwire.com/slipknot-look-outside-your-window-album-release-date-track-listing/) - Loudwire
+- [SLIPKNOT Announces Look Outside You Window 2026 Release Date, Will Not Be A SLIPKNOT Record](https://metalinjection.net/upcoming-releases/slipknot-announces-look-outside-you-window-2026-release-date-will-not-be-a-slipknot-record) - Metal Injection.net
+- [Chappell Roan is the latest headliner for Fortnite Festival](http://musically.com/2026/02/04/chappell-roan-is-the-latest-headliner-for-fortnite-festival/) - Music Ally
+- [‘Fortnite Festival’ Sets Chappell Roan as Season 13 Icon - Variety](https://variety.com/2026/gaming/news/chappell-roan-fortnite-festival-season-13-icon-1236650971/) - Variety
+- [Chappell Roan Joins ‘Fortnite Festival’ as Season 13 Icon a Year After Asking Game to Make Her a Skin - Billboard](https://www.billboard.com/music/music-news/chappell-roan-fortnite-festival-season-13-icon-1236171638/) - Billboard
+- [Chappell Roan collaborates with Fortnite one year after Radio 1 plea - BBC](https://www.bbc.com/news/articles/cy09eexjq17o) - Bbc
+- [Chappell Roan's bringing the Pink Pony Club to Fortnite - Polygon](https://www.polygon.com/chappell-roan-fortnite-festival-release-date-skins-emotes-jam-tracks/) - Polygon
+- [Chappell Roan is Joining Fortnite, and Here's How She Looks - IGN](https://www.ign.com/articles/chappell-roan-is-joining-fortnite-and-heres-how-she-looks) - Ign
+- [POISON THE WELL Announce Australian Tour Performing The Opposite Of December In Full](https://metalinjection.net/news/poison-the-well-announce-australian-tour-performing-the-opposite-of-december-in-full) - Metal Injection.net
+- [HEAVEN & HELL (BLACK SABBATH) Announces Box Set Of Everything They Ever Did](https://metalinjection.net/upcoming-releases/heaven-hell-black-sabbath-announces-box-set-of-everything-they-ever-did) - Metal Injection.net
+- [Gia Margaret Returns to Singing With New Album and Tour](https://pitchfork.com/news/gia-margaret-returns-to-singing-with-new-album-and-tour/) - Pitchfork
+- [Bad Bunny’s “Immaculate” Transformation Goes Viral After His Historical Grammy Win](https://www.boredpanda.com/bad-bunny-transformation-goes-viral-after-historical-grammy-win/) - Boredpanda.com
+- [Bad Bunny Wins Grammy For Best Música Urbana Album And Calls Out ICE - Forbes](https://www.forbes.com/sites/laurasirikul/2026/02/01/bad-bunny-wins-grammy-for-best-msica-urbana-album-calls-out-ice/) - Forbes
+- [Bad Bunny Calls Out ICE in Grammys Speech: ‘We Are Not Savages … We Are Humans’ - Billboard](https://www.billboard.com/music/awards/bad-bunny-grammys-speech-2026-slams-ice-1236169179/) - Billboard
+- [Bad Bunny’s Super Bowl Halftime Show: A Cultural First That Raises Deeper Questions - JubileeCast](https://www.jubileecast.com/articles/34443/20260201/bad-bunny-super-bowl-2026-halftime-christian-response.htm) - Jubileecast
+- [Drake Maye shares thoughts on Bad Bunny as Super Bowl 60 halftime performer - MassLive.com](https://www.masslive.com/patriots/2026/02/drake-maye-shares-thoughts-on-bad-bunny-as-super-bowl-60-halftime-performer.html) - Masslive
+- [Bad Bunny’s Super Bowl Halftime Show Sparks Debate Over Language, Politics - Newsweek](https://www.newsweek.com/sports/bad-bunny-super-bowl-halftime-ice-nfl-trump-11458494) - Newsweek
+- [Bad Bunny Headlines 2026 Super Bowl Halftime Show: A Look At the Tradition's Evolution](https://screenrant.com/bad-bunny-super-bowl-halftime-show-origins-michael-jackson/) - Screen Rant
+- [The stakes couldn’t be higher for Bad Bunny at the Super Bowl - Andscape](https://andscape.com/features/bad-bunny-super-bowl-preview/) - Andscape
+- [Bad Bunny’s Super Bowl Halftime Show Sparks Debate Over Language, Politics - Newsweek](https://www.newsweek.com/sports/bad-bunny-super-bowl-halftime-ice-nfl-trump-11458494) - Newsweek
+- [Bad Bunny's halftime show is a fight for Puerto Rico's culture \| Opinion - USA Today](https://www.usatoday.com/story/opinion/voices/2026/02/04/bad-bunny-super-bowl-halftime-show-puerto-rico/88477508007/) - Usatoday
+- [8 Great Super Bowl Halftime Show Performances That Have Aged Well - Mental Floss](https://www.mentalfloss.com/entertainment/music/super-bowl-halftime-show-performances-that-aged-well) - Mentalfloss
+- [How the Super Bowl halftime show evolved from pageantry to pop culture's biggest stage - Yahoo](https://www.yahoo.com/entertainment/music/articles/super-bowl-halftime-show-evolved-154741692.html) - Yahoo
+- [How the Super Bowl halftime show evolved from pageantry to pop culture’s biggest stage - Chicago Tribune](https://www.chicagotribune.com/2026/02/02/super-bowl-halftime-show-evolution/) - Chicagotribune
+- [History-making moments of Super Bowl halftime shows past](https://theweek.com/sports/history-making-moments-super-bowl-halftime-shows-rihanna-prince) - The Week Magazine
+- [How the Super Bowl halftime show evolved from pageantry to pop culture's biggest stage - Yahoo](https://www.yahoo.com/entertainment/music/articles/super-bowl-halftime-show-evolved-154741692.html) - Yahoo
+- [The 10 Best Super Bowl halftime shows of all time - CBS Sports](https://www.cbssports.com/nfl/news/best-super-bowl-halftime-shows/) - Cbssports
+- [How the Super Bowl halftime show evolved from pageantry to pop culture’s biggest stage - Chicago Tribune](https://www.chicagotribune.com/2026/02/02/super-bowl-halftime-show-evolution/) - Chicagotribune
+- [HIGH ON FIRE Announce European & UK Dates For Late-Summer Festival Run](https://metalinjection.net/tour-dates/high-on-fire-announce-european-uk-dates-for-late-summer-festival-run) - Metal Injection.net
+- [Olivia Dean: From the London Stadium to the Grammys. Can West Ham tap into her star power?](https://sports.yahoo.com/articles/olivia-dean-london-stadium-grammys-103106127.html) - Yahoo Entertainment
+- [Olivia Dean: From the London Stadium to the Grammys. Can West Ham tap into her star power? - The Athletic - The New York Times](https://www.nytimes.com/athletic/7017901/2026/02/04/olivia-dean-grammy-awards-west-ham-united/) - Nytimes
+- [Jimmy Cliff and the roots of Toronto’s reggae scene, Part 1](https://spacing.ca/toronto/2026/02/04/jimmy-cliff-and-the-roots-of-torontos-reggae-scene-part-1/) - spacing.ca
+- [Budgie, Natanya, and The Alchemist make a heartfelt plea on “FRIEND”](https://www.thefader.com/2026/02/04/budgie-natanya-alchemist-friend-good-book-iii) - The FADER
+- [J. Cole Reveals ‘The Fall-Off’ Tracklist, Explains The Album’s Concept](http://hiphopdx.com/news/j-cole-fall-off-tracklist/) - HipHopDX
+- [J. Cole Drops The Fall-Off Tracklist, Explains Double-Disc Format](https://www.xxlmag.com/j-cole-the-fall-off-tracklist/) - XXLMAG.COM
+- [J. Cole announces new album and fans are ready. See release date. - USA Today](https://www.usatoday.com/story/entertainment/music/2026/01/15/j-cole-the-fall-off-new-album-release-date/88194153007/) - Usatoday
+- [J. Cole Fans Suspect Several New Freestyles Are Dropping Tomorrow - HotNewHipHop](https://www.hotnewhiphop.com/973445-j-cole-fans-suspect-freestyles) - Hotnewhiphop
+- [J. Cole Reveals 'The Fall-Off' Disc 2 Cover Art: 'Re-Inspired' - Billboard](https://www.billboard.com/music/rb-hip-hop/j-cole-disc-2-the-fall-off-cover-art-1236167285/) - Billboard
+- [MALEVOLENCE Announces North American Tour With GUILT TRIP](https://metalinjection.net/tour-dates/malevolence-announces-north-american-tour-with-guilt-trip) - Metal Injection.net
