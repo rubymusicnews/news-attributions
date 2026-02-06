@@ -1,0 +1,36 @@
+# Sources for 2026-02-06 News Episode 
+- [Chris Brown Sued by Songwriter Claiming Star Stiffed Him Out of ‘Sensational’ and ‘Monalisa’ Royalties](http://www.rollingstone.com/music/music-news/chris-brown-sued-sensational-monalisa-song-royalties-1235511251/) - Rolling Stone
+- [Chris Brown Sued by Lyricist Who Says Star Cut Him Out of ‘Sensational’ & ‘Monalisa’ Royalties - Billboard](https://www.billboard.com/pro/chris-brown-lawsuit-sensational-monalisa-royalties/) - Billboard
+- [Al music on Spotify is exploding — here’s how to identify it before you hit play](https://www.androidauthority.com/how-to-spot-ai-music-3637174/) - Android Authority
+- [Deezer makes it easier for rival platforms to take a stance against AI-generated music - TechCrunch](https://techcrunch.com/2026/01/29/deezer-makes-it-easier-for-rival-platforms-to-take-a-stance-against-ai-generated-music/) - Techcrunch
+- [Deezer licenses AI music detection tool to French royalty agency Sacem, plans wider rollout - Reuters](https://www.reuters.com/business/media-telecom/deezer-licenses-ai-detection-tool-french-royalty-agency-sacem-plans-wider-roll-2026-01-29/) - Reuters
+- [Who Is Building the Future of AI Music? Start With These 11 Companies - Billboard](https://www.billboard.com/lists/top-ai-music-companies-2026-future-music/) - Billboard
+- [Spotify Paid Out a Record $11 Billion to the Music Industry in 2025 - Variety](https://variety.com/2026/music/news/spotify-paid-out-11-billion-to-music-industry-2025-1236642550/) - Variety
+- [BRUCE DICKINSON Is Recording His Next Solo Album DAVE GROHL's Studio 606 With Members Of SEPULTURA](https://metalinjection.net/upcoming-releases/in-the-studio/bruce-dickinson-is-recording-his-next-solo-album-dave-grohls-studio-606-with-members-of-sepultura) - Metal Injection.net
+- [ZAYN announces new album KONNAKOL](https://www.thefader.com/2026/02/05/zayn-new-album-konnakol) - The FADER
+- [Zayn Announces Fifth Studio Album ‘Konnakol’: Here’s When It Arrives - Billboard](https://www.billboard.com/music/pop/zayn-new-album-konnakol-release-date-1236172684/) - Billboard
+- [Zayn Announces Fifth Album ‘Konnakol,’ Preps New Single ‘Die for Me’ - Variety](https://variety.com/2026/music/news/zayn-announces-fifth-album-konnakol-new-single-die-for-me-1236652085/) - Variety
+- [The Tim Ferriss Show Transcripts: Tim McGraw — Starting Late with a $20 Guitar, Selling 100M+ Records, and 30+ Years of Creative Longevity (#852)](https://tim.blog/2026/02/05/tim-mcgraw-transcript/) - Tim.blog
+- [Taylor Swift's Opalite Music Video: Release Date, Rumors & More](https://screenrant.com/taylor-swift-opalite-music-video-the-life-of-a-showgirl/) - Screen Rant
+- [Don’t You Sweat It, Baby: Taylor Swift ‘Opalite’ Music Video Is On the Way - Billboard](https://www.billboard.com/music/pop/taylor-swift-opalite-music-video-announced-release-date-1236173572/) - Billboard
+- [Taylor Swift to Debut ‘Opalite’ Music Video This Week - Variety](https://variety.com/2026/music/news/taylor-swift-debut-opalite-music-video-this-week-1236652603/) - Variety
+- [The Black Keys Announce New Album Peaches!, Drop Song](https://pitchfork.com/news/the-black-keys-announce-new-album-peaches-drop-song/) - Pitchfork
+- [Justin Bieber Bares His Soul for Stripped Down Solo Performance at the Grammy Awards](https://mymodernmet.com/justin-bieber-yukon-performance-grammy/) - My Modern Met
+- [Justin Bieber’s Boxers Weren’t Originally Part of the Plan for His Grammys Performance](https://www.cosmopolitan.com/entertainment/celebs/a70257758/justin-bieber-boxers-grammys-performance/) - Cosmopolitan.com
+- [Justin Bieber Returns to the Grammys in Only Shorts and Socks for Raw “Yukon” Performance - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/justin-bieber-2026-grammys-performance-1236491857/) - Hollywoodreporter
+- [Justin Bieber Strips Down for Stripped-Down ‘Yukon’ at 2026 Grammys - Billboard](https://www.billboard.com/music/pop/justin-bieber-grammys-yukon-performance-1236169450/) - Billboard
+- [Justin Bieber Gives a (Quite Literally!) Stripped-Down Performance at the 2026 Grammys - Vogue Philippines](https://vogue.ph/lifestyle/music/justin-bieber-2026-grammys-performance-yukon/) - Vogue
+- [Justin Bieber Performs in His Boxers at the 2026 Grammy Awards: Watch - Consequence of Sound](https://consequence.net/2026/02/justin-bieber-2026-grammys-performance-yukon-watch/) - Consequence
+- [Justin Bieber Gives a (Quite Literally!) Stripped-Down Performance at the 2026 Grammys - Vogue](https://www.vogue.com/article/justin-bieber-2026-grammys-performance-yukon) - Vogue
+- [Don Toliver is a rap star, just not the kind you've been looking for](https://www.npr.org/2026/02/05/nx-s1-5694581/don-toliver-octane-houston-review) - NPR
+- [Don Toliver’s ‘Octane’: All 18 Tracks Ranked - Billboard](https://www.billboard.com/lists/don-toliver-octane-tracks-ranked/) - Billboard
+- [This Record Store Day, Revisit the Grateful Dead’s Stellar 1976 Boston Show](http://www.rollingstone.com/music/music-news/grateful-dead-boston-1976-record-store-day-1235511762/) - Rolling Stone
+- [Record Store Day announces 2026 exclusive titles (full list) - BrooklynVegan](https://www.brooklynvegan.com/record-store-day-announces-2026-exclusive-titles-full-list/) - Brooklynvegan
+- [Milli Vanilli's Fab Morvan Says Grammy Nomination Reattached His Angel Wings](https://www.tmz.com/2026/02/05/fab-morvan-milli-vanilli-grammy-nomination-vindication/) - TMZ
+- [How Fab Morvan of Milli Vanilli mounted one of the greatest comebacks in Grammy history - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-01-30/fab-morvan-grammys-milli-vanilli-you-know-its-true-audiobook) - Latimes
+- [BRIAN MAY On Why QUEEN Won't Tour America Right Now: "It's A Dangerous Place At The Moment"](https://metalinjection.net/news/brian-may-on-why-queen-wont-tour-america-right-now-its-a-dangerous-place-at-the-moment) - Metal Injection.net
+- [Queen rocker Brian May rules out touring in US because it’s become a ‘dangerous place’ - nypost.com](https://nypost.com/2026/01/30/entertainment/queen-rocker-brian-may-rules-out-touring-in-us-because-its-become-a-dangerous-place/) - Nypost
+- [Brian May Rules Out Queen Shows in US: "America Is a Dangerous Place at the Moment" - Consequence of Sound](https://consequence.net/2026/01/brian-may-no-queen-shows-us-dangerous/) - Consequence
+- [Exodus Releases New Music Video "3111"](http://www.metalunderground.com/news/details.cfm?newsid=160748) - Metalunderground.com
+- [Brian May Comments on Trump Using Queen Song in Social Media Post](https://loudwire.com/brian-may-trump-queen-song-response/) - Loudwire
+- [Legendary Musician ‘Thinking Twice’ About Touring In Trump’s America: ‘Too Dangerous’ - HuffPost](https://www.huffpost.com/entry/queen-guitarist-brian-may-says-us-too-dangerous-concerts_n_697d259ae4b0d9ba36c6d2ed?ncid=NEWSSTAND0001) - Huffpost
