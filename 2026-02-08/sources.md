@@ -1,0 +1,57 @@
+# Sources for 2026-02-08 News Episode 
+- [TPUSA's Brantley Gilbert Makes Case for Beyoncé Super Bowl Halftime](https://bleedingcool.com/tv/tpusas-brantley-gilbert-makes-case-for-beyonce-super-bowl-halftime/) - Bleeding Cool News
+- [Bad Bunny lyrics to know before his Super Bowl halftime show](https://www.cbsnews.com/news/bad-bunny-lyrics-2026-super-bowl-halftime-show/) - CBS News
+- [Super Bowl halftime show prop bets 2026: Updated odds for Bad Bunny's songs, guest appearances and more](https://www.sportingnews.com/us/nfl/news/super-bowl-halftime-show-prop-bets-2026-odds-bad-bunny-songs-guests/ae049f605fbd6bf0c2ff86aa) - Sporting News
+- [Danica Patrick takes aim at Bad Bunny and the internet reacts](https://www.marca.com/en/nfl/super-bowl/2026/02/07/69877935ca47413a2b8b45b8.html) - Marca
+- [Why Bad Bunny won’t be paid to perform in front of millions at the Super Bowl](https://www.the-independent.com/arts-entertainment/music/news/bad-bunny-super-bowl-pay-money-b2915989.html) - The-independent.com
+- [Here’s why Super Bowl half-time headliner Bad Bunny proved he is an LGBTQ+ ally](https://www.thepinknews.com/2026/02/07/bad-bunny-lgbtq-ally-super-bowl/) - Thepinknews.com
+- [NFL legend Eric Dickerson calls out Bad Bunny over U.S. comments](https://www.marca.com/en/nfl/super-bowl/2026/02/07/6986b56622601d2b0b8b4595.html) - Marca
+- [Anti-Trump performers litter Super Bowl LX in California](https://www.foxnews.com/sports/anti-trump-performers-litter-super-bowl-lx-california) - Fox News
+- [Quote of the day by Hello singer Adele: 'There’s no room for negotiations when it comes to what I want to do and how I want to do it'](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-by-hello-singer-adele-theres-no-room-for-negotiations-when-it-comes-to-what-i-want-to-do-and-how-i-want-to-do-it/articleshow/128018322.cms) - The Times of India
+- [Neil Young cancels UK and European tour dates](https://www.the-independent.com/arts-entertainment/music/news/neil-young-uk-european-tour-cancelled-b2915862.html) - The-independent.com
+- [Neil Young Cancels 2026 Tour: ‘This Is Not the Time’ - Billboard](https://www.billboard.com/music/rock/neil-young-cancels-2026-tour-dates-uk-europe-1236175439/) - Billboard
+- [Neil Young cancels tour of UK and Europe, including date in Cork - irishtimes.com](https://www.irishtimes.com/culture/music/2026/02/06/neil-young-cancels-tour-of-uk-and-europe-including-date-in-cork/) - Irishtimes
+- ["I have decided to take a break." Neil Young cancels upcoming European tour, saying "This is not the time" - Louder](https://www.loudersound.com/bands-artists/neil-young-cancels-upcoming-european-tour) - Loudersound
+- [Neil Young Cancels All 2026 Concert Dates - Rolling Stone](https://www.rollingstone.com/music/music-news/neil-young-cancels-european-summer-tour-1235512283/) - Rollingstone
+- [Neil Young abruptly cancels 2026 tour plans: ‘This is not the time’ - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/neil-young-tour-canceled-21338836.php) - Sfchronicle
+- [Bad Bunny Is An Environmental Justice Educator: Here’s What His Music Can Teach Us](https://www.commondreams.org/opinion/bad-bunny-environmental-justice) - Common Dreams
+- [‘My People Need Me!!! And I Need Them’: Bad Bunny’s Political Awakening in Puerto Rico - Rolling Stone](https://www.rollingstone.com/music/music-latin/bad-bunny-politics-protests-pfknr-book-excerpt-1235504162/) - Rollingstone
+- [Bad Bunny's halftime show is a fight for Puerto Rico's culture \| Opinion - USA Today](https://www.usatoday.com/story/opinion/voices/2026/02/04/bad-bunny-super-bowl-halftime-show-puerto-rico/88477508007/) - Usatoday
+- [Bad Bunny 101: Your guide to his lyrics and more ahead of the Super Bowl halftime show - NBC News](https://www.nbcnews.com/pop-culture/music/bad-bunny-super-bowl-halftime-show-guide-lyrics-popularity-rcna257181) - Nbcnews
+- [Musik: Frontmann von 3 Doors Down Brad Arnold gestorben](https://www.zeit.de/news/2026-02/07/frontmann-von-3-doors-down-brad-arnold-gestorben) - Die Zeit
+- [Brad Arnold, 3 Doors Down founder and lead singer, dies at 47](https://www.cbsnews.com/news/brad-arnold-3-doors-down-founder-and-lead-singer-dies-at-47/) - CBS News
+- [3 Doors Down Lead Singer Brad Arnold Dead at 47 After Cancer Battle](https://www.usmagazine.com/celebrity-news/news/brad-arnold-dead-at-47-3-doors-down-lead-singer-battled-cancer/) - Us Weekly
+- [Rockers Pay Tribute to Late 3 Doors Down Singer Brad Arnold](https://loudwire.com/rockers-tribute-3-doors-down-brad-arnold/) - Loudwire
+- [Musik: Frontmann von 3 Doors Down Brad Arnold gestorben](https://www.tagesspiegel.de/gesellschaft/musik-frontmann-von-3-doors-down-brad-arnold-gestorben-15229521.html) - Der Tagesspiegel
+- [Musik: Frontmann von 3 Doors Down Brad Arnold gestorben](https://www.stern.de/lifestyle/musik--frontmann-von-3-doors-down-brad-arnold-gestorben-37116602.html) - STERN.de
+- [Musik: Frontmann von 3 Doors Down: Brad Arnold gestorben](https://www.stern.de/lifestyle/musik--frontmann-von-3-doors-down--brad-arnold-gestorben-37116602.html) - STERN.de
+- [Brad Arnold, 3 Doors Down Singer, Dead at 47](http://www.rollingstone.com/music/music-news/brad-arnold-3-doors-down-singer-dead-obituary-1235334853/) - Rolling Stone
+- [Er wurde 47 Jahre alt: Frontmann von 3 Doors Down Brad Arnold gestorben](https://www.tagesspiegel.de/gesellschaft/er-wurde-47-jahre-alt-frontmann-von-3-doors-down-brad-arnold-gestorben-15229521.html) - Der Tagesspiegel
+- [3 Doors Down Frontman Brad Arnold Passes Away at 47](https://www.metalsucks.net/2026/02/07/3-doors-down-frontman-brad-arnold-passes-away-at-47/) - MetalSucks
+- [Brad Arnold, 3 Doors Down Frontman, Dies at 47](https://www.breitbart.com/entertainment/2026/02/07/brad-arnold-3-doors-down-frontman-dies-47/) - Breitbart News
+- [Er wurde 47 Jahre alt: 3-Doors-Down-Sänger Brad Arnold gestorben](https://www.tagesspiegel.de/kultur/er-wurde-47-jahre-alt-frontmann-von-3-doors-down-brad-arnold-gestorben-15229521.html) - Der Tagesspiegel
+- [Brad Arnold of 3 Doors Down Dead at 47](https://exclaim.ca/music/article/brad-arnold-of-3-doors-down-dead-at-47) - Exclaim!
+- [Frontmann von 3 Doors Down Brad Arnold gestorben](https://www.welt.de/vermischtes/article6987b61d232ff4d8d7ff01d3/mit-47-jahren-frontmann-von-3-doors-down-brad-arnold-gestorben.html) - DIE WELT
+- [3 Doors Down: Brad Arnold ist gestorben](https://www.zeit.de/kultur/musik/2026-02/brad-arnold-3-doors-down-tod) - Die Zeit
+- [3 Doors Down singer Brad Arnold dies at 47](https://www.nbcnews.com/news/us-news/3-doors-founder-brad-arnold-dies-47-rcna257945) - NBC News
+- [3 Doors Down Frontman Brad Arnold Dead at 47](https://loudwire.com/3-doors-down-brad-arnold-dead-47-cancer/) - Loudwire
+- [Frontmann von 3 Doors Down gestorben](https://orf.at/stories/3419527/) - Orf.at
+- [3 Doors Down star Brad Arnold, passes away at 47](https://timesofindia.indiatimes.com/entertainment/english/music/news/3-doors-down-lead-singer-brad-arnold-passes-away-at-47-after-battle-with-cancer/articleshow/128052746.cms) - The Times of India
+- [Brad Arnold, 3 Doors Down lead singer, dead at 47](https://pagesix.com/2026/02/07/celebrity-news/brad-arnold-3-doors-down-lead-singer-dead-at-47/) - Page Six
+- [Brad Arnold wurde 47 Jahre alt: Frontmann von 3 Doors Down gestorben](https://www.n-tv.de/leute/Frontmann-von-3-Doors-Down-gestorben-id30337625.html) - N-tv.de
+- [3 Doors Down Founding Member Dead At 47](https://dailycaller.com/2026/02/07/3-doors-down-brad-arnold-dead-cancer-47/) - The Daily Caller
+- [3 Doors Down Singer Brad Arnold Dead at 47](https://www.tmz.com/2026/02/07/3-doors-down-singer-brad-arnold-dead/) - TMZ
+- [Three Doors Down Singer Brad Arnold Dies Of Cancer](https://www.spin.com/2026/02/three-doors-down-brad-arnold-obit/) - SPIN
+- [How Did Brad Arnold Die? 3 Doors Down Singer’s Cancer Type & Cause of Death](https://hollywoodlife.com/feature/how-did-brad-arnold-die-3-doors-down-singer-cancer-cause-of-death-5502416/) - Hollywood Life
+- [It was easier to tour Europe, US than Africa — Mr Eazi](https://punchng.com/it-was-easier-to-tour-europe-us-than-africa-mr-eazi/) - The Punch
+- [Afreximbank announces initial $8bn funding package for South Africa as a new shareholder - Mining Weekly](https://www.miningweekly.com/article/afreximbank-announces-initial-8bn-funding-package-for-south-africa-as-a-new-shareholder-2026-02-04) - Miningweekly
+- [Quiz: How Well Do You Know These Albums Turning 50 This Year?](https://www.mentalfloss.com/quizzes/do-you-know-albums-turning-50-this-year) - Mental Floss
+- [FOTOCRIME Unleash Dystopian Fury On "Unthinkable" Alongside JAY WEINBERG & BARNEY GREENWAY](https://metalinjection.net/video/fotocrime-unleash-dystopian-fury-on-unthinkable-alongside-jay-weinberg-barney-greenway) - Metal Injection.net
+- [No Big Deal, Just Taylor Swift Sending A Sweet Message To Athletes Amid The Winter Olympics](https://www.cinemablend.com/television/taylor-swift-sends-sweet-message-athletes-winter-olympics) - CinemaBlend
+- [Taylor Swift Sends Message to Olympic Athletes During 2026 Opening Ceremony: ‘Wishing You All the Best of Luck’ - Billboard](https://www.billboard.com/music/music-news/taylor-swift-olympic-athletes-best-of-luck-opening-ceremony-1236175008/) - Billboard
+- [Mariah Carey Nails Italian Rendition of ‘Volare’ & ‘Nothing Is Impossible’ at Olympics Opening Ceremony - Billboard](https://www.billboard.com/music/music-news/mariah-carey-sings-italian-winter-olympics-opening-ceremony-1236175031/) - Billboard
+- [PAULA T breaks the silence on self-repression with the bold, honest energy of “Sugar Tits”](https://earmilk.com/2026/02/07/paula-t-breaks-the-silence-on-self-repression-with-the-bold-honest-energy-of-sugar-tits/) - Earmilk.com
+- [From campfire songs to a stadium‑size solo show: Xavier Rudd levels up](https://www.abc.net.au/news/2026-02-08/xavier-rudd-riverboats-tour-live-shows-solo/106299686) - ABC News (AU)
+- [Camper Van Beethoven – Telephone Free Landslide Victory (40th Anniversary Deluxe Edition) (2025)](https://exystence.net/blog/2026/02/07/camper-van-beethoven-telephone-free-landslide-victory-40th-anniversary-deluxe-edition-2025/) - Exystence.net
+- [Carl Allen – Tippin’ (2025)](https://exystence.net/blog/2026/02/07/carl-allen-tippin-2025/) - Exystence.net
+- [Alex Hitchcock – Letters from Afar (2025)](https://exystence.net/blog/2026/02/07/alex-hitchcock-letters-from-afar-2025/) - Exystence.net
