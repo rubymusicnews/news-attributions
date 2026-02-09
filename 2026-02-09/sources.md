@@ -1,0 +1,33 @@
+# Sources for 2026-02-09 News Episode 
+- [How Bad Bunny went from Super Bowl supporting act to headliner with ticket sales to rival Taylor Swift](https://fortune.com/2026/02/08/bad-bunny-super-bowl-halftime-show-grammy-awards-taylor-swift/) - Fortune
+- [Bad Bunny Breaks Monthly Boxscore Record With Biggest Tour of December - Billboard](https://www.billboard.com/pro/bad-bunny-monthly-boxscore-record-december/) - Billboard
+- [Review \| Bad Bunny conquered the world, but he wants to save Puerto Rico - The Washington Post](https://www.washingtonpost.com/books/2026/02/05/bad-bunny-book-review/) - Washingtonpost
+- [What Green Day has said about Trump and MAGA as they’re set to perform at Super Bowl](https://www.the-independent.com/arts-entertainment/music/news/green-day-trump-super-bowl-billie-joe-armstrong-b2916146.html) - The-independent.com
+- [Super Bowl LX: Green Day Lets the Music Do the Talking During Opener](https://bleedingcool.com/tv/super-bowl-lx-green-day-lets-the-music-do-the-talking-during-opener/) - Bleeding Cool News
+- [Green Day avoids making political statement during Super Bowl 2026 opening performance](https://pagesix.com/2026/02/08/entertainment/green-day-super-bowl-2026-performance/) - Page Six
+- [Green Day Just Called Out Trump After the President Refused to Attend the Super Bowl & Called Them a ‘Terrible Choice’](https://stylecaster.com/entertainment/music/1234878404/green-day-trump/) - STYLECASTER
+- [What to expect from Green Day's Super Bowl performance - WBUR](https://www.wbur.org/hereandnow/2026/02/05/green-day-super-bowl) - Wbur
+- [Trump critics take issue with Green Day's Super Bowl LX performance - foxnews.com](https://www.foxnews.com/sports/trump-critics-take-issue-green-days-super-bowl-lx-performance) - Foxnews
+- [Green Day vs. Donald Trump comments timeline, from 'f—ing Hitler' to 'American Idiot' lyrics change - sportingnews.com](https://www.sportingnews.com/us/nfl/news/green-day-donald-trump-comments-timeline/fd03820fac13026cfa4d6acf) - Sportingnews
+- [Anti-Trump performers litter Super Bowl LX in California - foxnews.com](https://www.foxnews.com/sports/anti-trump-performers-litter-super-bowl-lx-california.amp) - Foxnews
+- [Green Day plays it safe during Super Bowl pregame performance - San Francisco Chronicle](https://www.sfchronicle.com/super-bowl-lx/article/green-day-plays-safe-super-bowl-pregame-21332140.php) - Sfchronicle
+- [Soompi’s K-Pop Music Chart 2026, February Week 2](http://www.soompi.com/article/1817914wpp/soompis-k-pop-music-chart-2026-february-week-2) - soompi
+- [Pop provocateur Peaches: ‘People called me a one-trick pony. This isn’t a trick, it’s a way of life’](https://www.the-independent.com/arts-entertainment/music/features/peaches-interview-feminism-trans-rights-marilyn-manson-b2915341.html) - The-independent.com
+- [Looking Ahead: A Release Calendar of New & Upcoming Canadian Albums In 2026 - Billboard Canada](https://ca.billboard.com/music/canadian-albums-2026) - Billboard
+- [Rogers Centre and RBC Amphitheatre Named Two of Billboard’s Top Music Venues - Billboard Canada](https://ca.billboard.com/business/touring/rogers-centre-rbc-amphitheatre-top-music-venues) - Billboard
+- [Morre Ebo Taylor, músico ganense precursor do highlife, aos 90 anos](https://www.metropoles.com/celebridades/morre-ebo-taylor-musico-ganense-precursor-do-highlife-aos-90-anos) - Metropoles.com
+- [Influential Ghanaian highlife musician Ebo Taylor dies at 90 - BBC](https://www.bbc.com/news/articles/c1e9p04n8y9o) - Bbc
+- [Quote of the day by Kurt Cobain: 'I'd rather be hated for who I am, than loved for who I am not...'](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-by-kurt-cobain-id-rather-be-hated-for-who-i-am-than-loved-for-who-i-am-not-/articleshow/128065649.cms) - The Times of India
+- [Reunited After Forever Announce Latin Tour Without Mark Jansen](https://www.metalsucks.net/2026/02/08/reunited-after-forever-announce-latin-tour-without-mark-jansen/) - MetalSucks
+- [Taylor Swift’s obsession with self-mythologising makes for boring art](https://www.the-independent.com/arts-entertainment/music/features/taylor-swift-opalite-video-easter-eggs-songwriting-b2916039.html) - The-independent.com
+- [Taylor Swift’s obsession with self-mythologising makes for boring art - Yahoo News UK](https://uk.news.yahoo.com/taylor-swift-obsession-self-mythologising-060000850.html) - Yahoo
+- [A Lost Ozzy Osbourne + Randy Rhoads Rehearsal Tape Has Been Found](https://loudwire.com/lost-ozzy-osbourne-randy-rhoads-rehearsal-tape-1980-found/) - Loudwire
+- [Lana Del Rey Teases First Single 'White Feather Hawk Tail Deer Hunter' Off of Long-Awaited Country Album](https://www.justjared.com/2026/02/07/lana-del-rey-teases-first-single-white-feather-hawk-tail-deer-hunter-off-of-long-awaited-country-album/) - Just Jared
+- [Lana Del Rey Teases Release Date for New Single, Credits Husband Jeremy Dufrene as a Co-Writer - Billboard](https://www.billboard.com/music/music-news/lana-del-rey-new-single-date-jeremy-dufrene-co-writer-1236175587/) - Billboard
+- [Lana Del Rey Announces New Single "White feather-hawk tail deer hunter" - Consequence of Sound](https://consequence.net/2026/02/lana-del-rey-white-feather-hawk-tail-deer-hunter/) - Consequence
+- [Television Bassist Fred Smith Dies at 77](http://www.vulture.com/article/television-bassist-fred-smith-dies-at-77.html) - Vulture
+- [Television Bassist Fred Smith Dies at 77](https://pitchfork.com/news/television-bassist-fred-smith-dies-at-77/) - Pitchfork
+- [Fred Smith, Bassist for Television, Dies at 77 - Variety](https://variety.com/2026/music/news/fred-smith-dead-bassist-television-1236655346/) - Variety
+- [Javed Akhtar recalls no composer, music company wanted to make ‘Breathless’, made him wait for seven years: ‘If I had not met Shankar Mahadevan…’](https://indianexpress.com/article/entertainment/bollywood/javed-akhtar-recalls-no-composer-music-company-wanted-to-make-breathless-10520126/) - The Indian Express
+- [Cork’s Grammy award-winner Cian Ducrot: ‘I had to deal with a lot of pretty intense things as a kid. So, now I am hyper-capable of dealing with intense situations’](https://www.independent.ie/entertainment/music/corks-grammy-award-winner-cian-ducrot-i-had-to-deal-with-a-lot-of-pretty-intense-things-as-a-kid-so-now-i-am-hyper-capable-of-dealing-with-intense-situations/a1881896211.html) - Independent.ie
+- [Generös och modern retroshow med Raye](https://www.aftonbladet.se/nojesbladet/musik/a/V617ol/raye-pa-avicii-arena-i-stockholm-recension) - Aftonbladet.se
