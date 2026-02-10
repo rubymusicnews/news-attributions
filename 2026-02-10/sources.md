@@ -1,0 +1,24 @@
+# Sources for 2026-02-10 News Episode 
+- [Altın Gün, Austin TV, Karma Sheen and more join line-up for Bear Stone Festival 2026](https://www.thelineofbestfit.com/news/bear-stone-festival-2026-line-up-altin-gun-austin-tv-karma-sheen) - Thelineofbestfit.com
+- [‘I Didn’t Want to Own It’: How Record Store Day’s Co-founder Rejected the Business Model](https://www.spin.com/2026/02/i-didnt-want-to-own-it-how-record-store-days-co-founder-rejected-the-business-model/) - SPIN
+- [Gillian Welch and David Rawlings Announce 2026 Grateful Dead Tribute Tour](https://consequence.net/2026/02/gillian-welch-david-rawlings-grateful-dead-tribute-tour/) - Consequence.net
+- [THE HU & APOCALYPTICA Announce Co-Headline 2026 North American Tour With THE RASMUS](https://metalinjection.net/tour-dates/the-hu-apocalyptica-announce-co-headline-2026-north-american-tour-with-the-rasmus) - Metal Injection.net
+- [Love Rocks NYC 2026: Paul Simon, Mary J. Blige Lead Benefit Concert Lineup](http://www.rollingstone.com/music/music-news/paul-simon-mary-j-blige-love-rocks-nyc-2026-1235512535/) - Rolling Stone
+- [Mary J. Blige, Hozier, Paul Simon, Elvis Costello & More to Play 2026 Love Rocks NYC Benefit - Billboard](https://www.billboard.com/music/concerts/2026-love-rocks-nyc-benefit-mary-j-blige-hozier-lineup-1236176372/) - Billboard
+- [Mary J. Blige, Paul Simon, Hozier, Jon Batiste, Elvis Costello to Headline Love Rocks NYC 10th Anniversary Benefit - Variety](https://variety.com/2026/music/news/mary-j-blige-paul-simon-love-rocks-nyc-10th-anniversary-1236656955/) - Variety
+- [Holly Humberstone Announces 2026 North American Tour](https://consequence.net/2026/02/holly-humberstone-2026-north-american-tour/) - Consequence.net
+- [Naïka dreams of borderless pop music](https://www.thefader.com/2026/02/09/who-is-naika-eclesia-opener-global-pop) - The FADER
+- [From ‘this machine kills fascists’ to ‘King Trump’s private army’: the art of protest music](https://theconversation.com/from-this-machine-kills-fascists-to-king-trumps-private-army-the-art-of-protest-music-274974) - The Conversation Africa
+- [Bruce Springsteen takes aim at Trump in new song ‘Streets of Minneapolis’ - AP News](https://apnews.com/article/bruce-springsteen-song-minneapolis-2f4232553bef164d02b1474627dd3b5f) - Apnews
+- [Bruce Springsteen Earns His First No. 1 On One Chart By Calling Out Trump - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/02/07/bruce-springsteen-earns-his-first-no-1-on-one-chart-by-calling-out-trump/) - Forbes
+- [KATSEYE, HUNTR/X, Madonna & Bruce Springsteen Among Record Store Day 2026 Special Releases - Billboard](https://www.billboard.com/music/music-news/record-store-day-2026-releases-katseye-huntrx-springsteen-1236173374/) - Billboard
+- [Bruce Springsteen Crashes Tom Morello ICE Benefit In Minneapolis - Yahoo](https://www.yahoo.com/entertainment/music/articles/bruce-springsteen-crashes-tom-morello-195631042.html) - Yahoo
+- [Bruce Springsteen and Tom Morello Rouse Anti-Fascist Fervor at First Ave - Racket MN](https://racketmn.com/bruce-springsteen-and-tom-morello-rouse-anti-fascist-fervor-at-first-ave) - Racketmn
+- [The Tragic Familiarity of a New Springsteen Protest Song - The Atlantic](https://www.theatlantic.com/culture/2026/01/bruce-springsteen-streets-of-minneapolis-review/685807/) - Theatlantic
+- [The Boss v The King's Thugs 01/28/2026 - MediaPost](https://www.mediapost.com/publications/article/412369/the-boss-v-the-kings-thugs.html) - Mediapost
+- [Rock for People adds Knocked Loose, Alexisonfire, Militarie Gun to Iron Maiden-headlined fifth day](https://www.thelineofbestfit.com/news/rock-for-people-adds-knocked-loose-alexisonfire-militarie-gun-to-iron-maiden-headlined-fifth-day) - Thelineofbestfit.com
+- ["This is not their most exhilarating release, nor probably their absolute finest, but creativity is at an all-time high": Scorpions mix hard rock, pop and metal on the pre-stardom classic Taken By Force](https://www.loudersound.com/music/albums/scorpions-taken-by-force) - Louder
+- [Puscifer Isn’t Normal (and That’s the Point)](https://www.spin.com/2026/02/puscifer-isnt-normal-and-thats-the-point/) - SPIN
+- [KAMILLE & Spike Stent to receive MPG Awards](https://www.soundonsound.com/news/kamille-spike-stent-receive-mpg-awards) - Soundonsound.com
+- [Issac Ryan Brown thrills with pop/R&B banger "End of the Season"](https://earmilk.com/2026/02/09/issac-ryan-brown-thrills-with-pop-rb-banger-end-of-the-season/) - Earmilk.com
+- [Nilza Costa – Cantigas](https://thequietus.com/quietus-reviews/nilza-costa-cantigas-review/) - The Quietus
