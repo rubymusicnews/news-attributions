@@ -1,0 +1,47 @@
+# Sources for 2026-02-11 News Episode 
+- [DJ and producer Diplo confirms work on BTS album, says it will 'shock the world'](https://cnalifestyle.channelnewsasia.com/entertainment/diplo-bts-arirang-new-album-578296) - CNA
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS announces 2026 comeback album 'Arirang' with member ...](https://www.thedailystar.net/entertainment/music/news/bts-announce-2026-comeback-album-arirang-member-specific-vinyl-editions-4083166) - Thedailystar
+- [What's the meaning behind 'Arirang' - Hey!Hallyu](https://heyhallyu.com/blog/whats-the-meaning-behind-arirang) - Heyhallyu
+- [Arirang (album) - Wikipedia](https://en.wikipedia.org/wiki/Arirang_(album)) - Wikipedia
+- [Diplo Reveals Work On BTS Arirang Album, Praises Act, Jung Kook Vocals - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/02/08/diplo-reveals-involvement-on-bts-arirang-craziest-album-ever/) - Forbes
+- [Diplo Raves About BTS’ ‘Arirang’ Comeback LP, Calling it Their ‘Craziest Album Ever’ - Billboard](https://www.billboard.com/music/pop/diplo-raves-bts-arirang-craziest-album-ever-1236177179/) - Billboard
+- [Netflix to Air Special BTS Comeback Performance and New Documentary - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/netflix-bts-comeback-arirang-live-stream-documentary-1236493416/) - Hollywoodreporter
+- [Carole King's Tapestry: 55 Years Of Impact & Inspiration](https://screenrant.com/carole-king-tapestry-55-years-later/) - Screen Rant
+- [Britney Spears Sells Music Catalog](https://www.eonline.com/news/1428446/britney-spears-sells-music-catalog) - Eonline.com
+- [Britney Spears sells rights to entire music catalogue - BBC](https://www.bbc.com/news/articles/c0ljwyy7rrko) - Bbc
+- [Britney Spears sells the rights to her music catalog - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/britney-spears-sells-rights-music-catalog/6459424/?os&ref=app) - Nbcnewyork
+- [Britney Spears sells rights to iconic music catalog in massive nine-figure deal - Ynetnews](https://www.ynetnews.com/culture/article/hjogzbfdbl) - Ynetnews
+- [Britney Spears Sells Ownership Stake in Music Catalog to Primary Wave - hypebeast.com](https://hypebeast.com/2026/2/britney-spears-sells-music-catalog-primary-wave) - Hypebeast
+- [Britney Spears Reportedly Sells Music Catalog To Primary Wave - mxdwn Music](https://music.mxdwn.com/2026/02/10/news/britney-spears-reportedly-sells-music-catalog-to-primary-wave/) - Mxdwn
+- [Britney Spears Sells Her Song Catalog - The New York Times](https://www.nytimes.com/2026/02/10/arts/music/britney-spears-catalog-deal.html) - Nytimes
+- [Britney Spears Has Sold Her Music Catalog - People.com](https://people.com/britney-spears-has-sold-her-music-catalog-11904057) - People
+- [LCD Soundsystem Face Backlash Over Licensing Song for Elon Musk’s Super Bowl Ad](https://consequence.net/2026/02/lcd-soundsystem-elon-musk-super-bowl-ad/) - Consequence.net
+- [Nach der Funkstille: Kanye West spielt nach über 10 Jahren neue Europa-Konzerte](https://www.giga.de/entertainment/nach-der-funkstille-kanye-west-spielt-nach-ueber-10-jahren-neue-europa-konzerte--01J5QY137RQXPP51PBVSBWR923) - Giga
+- [Kanye West booked for European concert this summer after issuing antisemitism apology](https://www.the-independent.com/arts-entertainment/music/news/kanye-west-netherlands-concert-nazi-apology-b2917630.html) - The-independent.com
+- [Kanye West Pops Up at Deon Cole Show, Reveals New Album Is Coming - Billboard](https://www.billboard.com/music/rb-hip-hop/kanye-west-confirms-new-album-dean-cole-comedy-show-1236146294/) - Billboard
+- [MUNA Announce New Album Dancing on the Wall, Share Title Track: Stream](https://consequence.net/2026/02/muna-dancing-on-the-wall-new-album-title-track-stream/) - Consequence.net
+- [Muna Announce First Album in Four Years, Share Song](https://pitchfork.com/news/muna-announce-first-album-in-four-years-share-song/) - Pitchfork
+- [MUNA Chases Fantasies On ‘Dancing On The Wall’](https://www.spin.com/2026/02/muna-new-single-album/) - SPIN
+- [Muna's 'Dancing on the Wall' captures queer pop euphoria - Iowa Public Radio](https://www.iowapublicradio.org/studioone/news/2026-02-10/munas-dancing-on-the-wall-captures-queer-pop-euphoria) - Iowapublicradio
+- [Lip Critic Announce New Album and Tour, Share Video for New Song](https://pitchfork.com/news/lip-critic-announce-new-album-and-tour-share-video-for-new-song/) - Pitchfork
+- [Lip Critic Plot North American Tour Behind New Album 'Theft World'](https://exclaim.ca/music/article/lip-critic-plot-north-american-tour-behind-new-album-theft-world) - Exclaim!
+- [Lip Critic Announce New Album Theft World, Drop Lead Single “Legs in a Snare”: Stream](https://consequence.net/2026/02/lip-critic-new-album-theft-world-legs-in-a-snare-stream/) - Consequence.net
+- [Lip Critic's new record Theft World - "ode to the power and pervasiveness of stealing" - due in May](https://www.thelineofbestfit.com/news/lip-critic-new-record-theft-world-set-for-may-release) - Thelineofbestfit.com
+- [Charley Crockett Says Country Music “Should Be Taking Notes” from Bad Bunny](https://consequence.net/2026/02/charley-crockett-bad-bunny-trump/) - Consequence.net
+- [Charley Crockett Sounds Off on Bad Bunny, Elon Musk, Donald Trump & More - Billboard](https://www.billboard.com/music/country/charley-crockett-bad-bunny-donald-trump-elon-musk-1236175949/) - Billboard
+- [Country Star Calls Trump An ‘Oppressor’ And Tells Musicians To Take Notes From Bad Bunny - HuffPost](https://www.huffpost.com/entry/charley-crockett-trump-bad-bunny-halftime-show_n_698ba20ee4b0a8e430a52380) - Huffpost
+- [Why everyone is still talking about Geese](https://www.npr.org/2026/02/10/nx-s1-5707243/geese-cameron-winter-podcast) - NPR
+- [Geese: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-02-10/geese-tiny-desk-concert) - Wrvo
+- [Geese: Tiny Desk Concert - Louisville Public Media](https://www.lpm.org/music/2026-02-10/geese-tiny-desk-concert) - Lpm
+- [Geese: Tiny Desk Concert - NPR](https://www.npr.org/2026/02/10/g-s1-107779/geese-tiny-desk-concert) - Npr
+- [Geese: Tiny Desk Concert - Radio Milwaukee](https://radiomilwaukee.org/concerts/2026-02-10/geese-tiny-desk-concert) - Radiomilwaukee
+- [CATTLE DECAPITATION Celebrate 30 Years With North American Tour Featuring BRUJERIA, NO CURE & KNOLL](https://metalinjection.net/tour-dates/cattle-decapitation-celebrate-30-years-with-north-american-tour-featuring-brujeria-no-cure-knoll) - Metal Injection.net
+- [CORROSION OF CONFORMITY Set To Release Monumental Double Album In April, "Gimme Some Moore" Streaming Now](https://metalinjection.net/video/corrosion-of-conformity-set-to-release-monumental-double-album-in-april-gimme-some-moore-streaming-now) - Metal Injection.net
+- [Corrosion of Conformity Release First New Single in Three Years “Gimme Some More”](https://www.metalsucks.net/2026/02/10/corrosion-of-conformity-release-first-new-single-in-three-years-gimme-some-more/) - MetalSucks
+- [Corrosion of Conformity Release First New Single in Three Years “Gimme Some Moore”](https://www.metalsucks.net/2026/02/10/corrosion-of-conformity-release-first-new-single-in-three-years-gimme-some-moore/) - MetalSucks
+- [Momoko Gill - Momoko](https://djmag.com/reviews/momoko-gill-momoko) - DJ Mag
+- [Baby Keem Cashes In With Kendrick On ‘Ca$ino’](https://www.spin.com/2026/02/baby-keem-new-album/) - SPIN
+- [Baby Keem Announces ‘Ca$ino’ Album Release Date & Previews Kendrick Lamar Collaboration - Billboard](https://www.billboard.com/music/rb-hip-hop/baby-keem-new-album-casino-release-date-1236177373/) - Billboard
+- [Chanel Beads: ‘My music feels like taking an edible’](https://www.dazeddigital.com/music/article/69594/1/chanel-beads-my-music-feels-like-taking-an-edible?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=chanel-beads-my-music-feels-like-taking-an-edible) - Dazed
+- [Chanel Beads: ‘My music feels like taking an edible’](https://www.dazeddigital.com/music/article/69594/1/chanel-beads-diy-music-new-york-shane-lavers?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=chanel-beads-my-music-feels-like-taking-an-edible) - Dazed
