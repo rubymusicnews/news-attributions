@@ -1,0 +1,37 @@
+# Sources for 2026-02-12 News Episode 
+- [Anna’s Archive Quietly ‘Releases’ Millions of Spotify Tracks, Despite Legal Pushback](https://torrentfreak.com/annas-archive-quietly-releases-millions-of-spotify-tracks-despite-legal-pushback/) - Torrentfreak.com
+- [Faith, Not Foul-Mouthed Scolds, Shined at the Grammys](https://www.dailysignal.com/2026/02/11/faith-not-foul-mouthed-scolds-shined-at-the-grammys/) - Daily Signal
+- [Zito: Faith ruled moment in the Grammys spotlight](https://www.bostonherald.com/2026/02/11/zito-faith-ruled-moment-in-the-grammys-spotlight/) - Boston Herald
+- [Jelly Roll slammed for 'very MAGA' Grammys speech after veiled Bad Bunny swipe - Daily Express US](https://www.the-express.com/entertainment/tv/197544/jelly-roll-acceptance-speech-grammys) - The-express
+- [Grammys 2026: Jelly Roll Wins Big For ‘Beautifully Broken’ - Forbes](https://www.forbes.com/sites/matthewleimkuehler/2026/02/01/grammys-2026-jelly-roll-wins-big-for-beautifully-broken/) - Forbes
+- [Jelly Roll Shares Message of Faith in Grammys Speech: ‘Jesus Is Not Owned by One Political Party’ - Billboard](https://www.billboard.com/music/awards/jelly-roll-grammys-speech-2026-1236169822/) - Billboard
+- [Jelly Roll Sidesteps Politics at Grammys, Says ‘I’m a Dumb Redneck’ and ‘People Shouldn’t Care to Hear My Opinion’ - Variety](https://variety.com/2026/music/awards/jelly-roll-grammys-politics-dumb-redneck-1236649204/) - Variety
+- [Notoriously Apolitical Jelly Roll Says He Plans To Speak Out About Politics “In The Next Week” - Stereogum](https://stereogum.com/2487704/notoriously-apolitical-jelly-roll-says-he-plans-to-speak-out-about-politics-in-the-next-week/news) - Stereogum
+- [Jelly Roll Wins His First-Ever Grammys and Urges Deeper Relationship With Jesus - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/jelly-roll-wins-grammys-speech-jesus-1236492183/) - Hollywoodreporter
+- [Masterplan To Release New Album "Metalmorphosis" In June; Shares New Music Video "Chase The Light"](http://www.metalunderground.com/news/details.cfm?newsid=160781) - Metalunderground.com
+- [Progressive Extreme Band IATT Announce New Single "Drift Away" From Forthcoming Album "Etheric Realms of the Night"](http://www.metalunderground.com/news/details.cfm?newsid=160785) - Metalunderground.com
+- ['Sauvignon Blanc' English Translation, Meaning & Lyrics: Rosalía Shares Music Video for 'LUX' Song](https://www.justjared.com/2026/02/11/sauvignon-blanc-english-translation-meaning-lyrics-rosalia-shares-music-video-for-lux-song/) - Just Jared
+- [Rosalia’s “Sauvignon Blanc” music video might make M.I.A. mad](https://www.thefader.com/2026/02/11/rosalia-sauvignon-blanc-music-video) - The FADER
+- [ROSALÍA’s New Video for “Sauvignon Blanc”](https://fuckingyoung.es/rosalias-new-video-for-sauvignon-blanc/) - Fuckingyoung.es
+- [Mustafa Said – Maqam Pilgrims (2025)](https://exystence.net/blog/2026/02/11/mustafa-said-maqam-pilgrims-2025/) - Exystence.net
+- [Tiny Desk Radio: Sierra Ferrell, Wyatt Flores, MJ Lenderman](https://www.npr.org/2026/02/11/g-s1-108881/tiny-desk-radio-sierra-ferrell-wyatt-flores-mj-lenderman) - NPR
+- [Tiny Desk Radio: Sierra Ferrell, Wyatt Flores, MJ Lenderman - Iowa Public Radio](https://www.iowapublicradio.org/2026-02-11/tiny-desk-radio-sierra-ferrell-wyatt-flores-mj-lenderman) - Iowapublicradio
+- [Tiny Desk Radio: Yahritza y Su Esencia, Ivy Queen, Carlos Vives](https://www.npr.org/2026/02/11/g-s1-108873/tiny-desk-radio-yahritza-y-su-esencia-ivy-queen-carlos-vives) - NPR
+- [Tiny Desk Radio: Yahritza y Su Esencia, Ivy Queen, Carlos Vives - Iowa Public Radio](https://www.iowapublicradio.org/2026-02-11/tiny-desk-radio-yahritza-y-su-esencia-ivy-queen-carlos-vives) - Iowapublicradio
+- [Tiny Desk Radio: Yahritza y Su Esencia, Ivy Queen, Carlos Vives - VPM](https://www.vpm.org/npr-news/2026-02-11/tiny-desk-radio-yahritza-y-su-esencia-ivy-queen-carlos-vives) - Vpm
+- [Tiny Desk Radio: The Innocence Mission, Raveena, Ludovico Einaudi](https://www.npr.org/2026/02/11/g-s1-108857/tiny-desk-radio-the-innocence-mission-raveena-ludovico-einaudi) - NPR
+- [Tiny Desk Radio: Jordan Rakei, Yasmin Williams, Sabrina Carpenter](https://www.npr.org/2026/02/11/g-s1-108716/tiny-desk-radio-jordan-rakei-yasmin-williams-sabrina-carpenter) - NPR
+- [Tiny Desk Radio: Fabiola Méndez, El Laberinto del Coco, Bad Bunny - NPR](https://www.npr.org/2026/02/05/g-s1-108673/tiny-desk-radio-fabiola-mendez-el-laberinto-del-coco-bad-bunny) - Npr
+- [Tiny Desk Radio: Yahritza y Su Esencia, Ivy Queen, Carlos Vives - VPM](https://www.vpm.org/npr-news/2026-02-11/tiny-desk-radio-yahritza-y-su-esencia-ivy-queen-carlos-vives) - Vpm
+- [NPR Music and Levi’s Announce ‘Tiny Desk Experience’ at Super Bowl LX - WebWire](https://www.webwire.com/ViewPressRel.asp?aId=350141) - Webwire
+- [NPR’s Tiny Desk Concert deadline approaches - ksmu.org](https://www.ksmu.org/news/2026-01-29/nprs-tiny-desk-concert-deadline-approaches) - Ksmu
+- [U2's Discography Ranked: 50 Years of Music Mastery](https://screenrant.com/u2-50-year-ranking-every-album/) - Screen Rant
+- ["Gandalf is rocking out to dwarven metal while the guitarist from Anthrax commandeers soft serve ice cream." Mosh pits in hot tubs and stage dives over the sea: what it's like on the world's biggest heavy metal cruise](https://www.loudersound.com/bands-artists/live-performances/anthrax-paradise-lost-eluveitie-triumph-at-70000-tons-of-metal-2026) - Louder
+- [A country-pop newcomer's debut is your reinvention album of 2026](https://www.npr.org/2026/02/11/g-s1-109633/august-ponthier-everywhere-isnt-texas-review) - NPR
+- [A country-pop newcomer's debut is your reinvention album of 2026 - Iowa Public Radio](https://www.iowapublicradio.org/2026-02-11/a-country-pop-newcomers-debut-is-your-reinvention-album-of-2026) - Iowapublicradio
+- [Anthrax’s Frank Bello Says the Next Album is Coming Out This May](https://www.metalsucks.net/2026/02/11/anthraxs-frank-bello-says-the-next-album-is-coming-out-this-may/) - MetalSucks
+- [Bleachers Reveal New Album, Drop Song “You and Forever”](https://pitchfork.com/news/bleachers-reveal-new-album-drop-song-you-and-forever/) - Pitchfork
+- [Bleachers Announce New Album everyone for ten minutes, Reveal New Song “you and forever”: Stream](https://consequence.net/2026/02/bleachers-everyone-for-ten-minutes-new-album-you-and-forever-stream/) - Consequence.net
+- ['You & Forever' Lyrics: Margaret Qualley Stars in Bleachers Music Video With Husband Jack Antonoff](https://www.justjared.com/2026/02/11/you-forever-lyrics-margaret-qualley-stars-bleachers-music-video-with-husband-jack-antonoff/) - Just Jared
+- [Bleachers Announce Fifth Album 'Everyone For Ten Minutes' - Billboard](https://www.billboard.com/music/rock/margaret-qualley-bleachers-album-everyone-for-ten-minutes-1236177890/) - Billboard
+- [Laibach Detail First New Album of Original Material in 12 Years, Unveil “Allgorhythm”: Stream](https://consequence.net/2026/02/laibach-first-new-album-since-2014-allgorhythm-stream/) - Consequence.net
