@@ -1,0 +1,37 @@
+# Sources for 2026-02-13 News Episode 
+- [Tiny Desk Radio: Hermanos Gutierrez, MARO, Roy Ayers](https://www.npr.org/2026/02/12/g-s1-109615/tiny-desk-radio) - NPR
+- [Tiny Desk Radio: Hermanos Gutierrez, MARO, Roy Ayers - Boise State Public Radio](https://www.boisestatepublicradio.org/music/2026-02-12/tiny-desk-radio-hermanos-gutierrez-maro-roy-ayers) - Boisestatepublicradio
+- [Tiny Desk Radio: Hermanos Gutierrez, MARO, Roy Ayers - Iowa Public Radio](https://www.iowapublicradio.org/2026-02-12/tiny-desk-radio-hermanos-gutierrez-maro-roy-ayers) - Iowapublicradio
+- [Andy Biersack Interview: New Black Veil Brides Album, Song + More](https://loudwire.com/black-veil-brides-andy-biersack-new-song-album-2026-interview/) - Loudwire
+- [TTame Impala’s Psychedelic Pop Revolution: From Indie Darling to 2026 Grammy-Winning Icon](https://screenrant.com/tame-impala-2026-grammy-win-deadbeat-tour/) - Screen Rant
+- [Tame Impala’s ‘End of Summer’ Wins Best Dance/Electronic Recording at 2026 Grammy Awards - Billboard](https://www.billboard.com/music/awards/tame-impala-2026-grammys-best-dance-electronic-recording-1236169065/) - Billboard
+- [Tame Impala, Amyl and The Sniffers, Ninajirachi Shortlisted For APRA Song of the Year - Billboard](https://www.billboard.com/music/awards/shortlist-2026-apra-song-of-the-year-1236172441/) - Billboard
+- [Tame Impala Teases Australia Tour - Billboard](https://www.billboard.com/music/concerts/tame-impala-tease-australia-tour-1236177920/) - Billboard
+- [Kevin Parker’s Orchid Synth Sold More Than 10,000 Units In Year One - Billboard](https://www.billboard.com/pro/kevin-parker-orchid-synth-first-year-sales/) - Billboard
+- [Vera Weber's Award-Nominated Track "Rosebud" redefines and blends pop with cultural resonance](https://earmilk.com/2026/02/12/vera-webers-award-nominated-track-rosebud-redefines-and-blends-pop-with-cultural-resonance/) - Earmilk.com
+- [Hilary Duff Announces 'Lucky Me' World Tour 2026-2027: Pre-Sale Info & How to Buy Tickets!](https://www.justjared.com/2026/02/12/hilary-duff-announces-lucky-me-world-tour-2026-2027-pre-sale-info-how-to-buy-tickets/) - Just Jared
+- [Hilary Duff Announces “the lucky me tour”: How to Get Tickets](https://consequence.net/2026/02/hilary-duff-the-lucky-me-tour-how-to-get-tickets/) - Consequence.net
+- [Hilary Duff announces epic tour for album Luck… or Something](https://pagesix.com/2026/02/12/entertainment/hilary-duffs-world-tour-is-coming-to-california-heres-how-to-get-tickets/) - Page Six
+- [Hilary Duff Announces ‘The Lucky Me’ World Tour, Her First Global Run in Almost Two Decades - Variety](https://variety.com/2026/music/news/hilary-duff-announces-the-lucky-me-world-tour-dates-1236660521/) - Variety
+- [Hilary Duff Announces Sprawling Lucky Me World Tour, Her First in Nearly 2 Decades: See the Dates - Billboard](https://www.billboard.com/music/music-news/hilary-duff-lucky-tour-dates-2026-2027-lucky-me-tour-1236178669/) - Billboard
+- [Hilary Duff, former Disney star, announces first tour in nearly two decades - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/hilary-duff-world-tour-21351013.php) - Sfchronicle
+- [Hilary Duff Announces The Lucky Me World Tour Dates: “The Name Says It All” - Deadline](https://deadline.com/2026/02/hilary-duff-the-lucky-me-world-tour-dates-1236718157/) - Deadline
+- [From Expat to Empire: Luffy Huang Is Building Dance Music’s Most Culturally Ambitious Brand](https://dancingastronaut.com/2026/02/from-expat-to-empire-luffy-huang-is-building-dance-musics-most-culturally-ambitious-brand/) - Dancing Astronaut
+- [Don Toliver and Ella Langley top the Billboard charts](https://www.npr.org/2026/02/12/nx-s1-5708938/don-toliver-ella-langley-billboard-charts) - NPR
+- [Ella Langley’s ‘Choosin’ Texas’ Hits No. 1 on Country Airplay Chart - Billboard](https://www.billboard.com/music/chart-beat/ella-langley-choosin-texas-number-1-country-airplay-chart-1236174899/) - Billboard
+- [Billboard Hot 100 Top 10 Countdown for Feb. 14, 2026 \| Billboard News - Billboard](https://www.billboard.com/video/billboard-hot-100-top-10-countdown-february-14-2026/) - Billboard
+- [RANDY BLYTHE Explains Why LAMB OF GOD Finally Changed Their Logo: "It Looks Like A Falafel Restaurant Menu"](https://metalinjection.net/news/randy-blythe-explains-why-lamb-of-god-finally-changed-their-logo-it-looks-like-a-falafel-restaurant-menu) - Metal Injection.net
+- [Watch Central Cee Turn Back Time for “Iceman Freestyle” Video](https://pitchfork.com/news/watch-central-cee-turn-back-time-in-video-for-new-song-iceman-freestyle/) - Pitchfork
+- ['Iceman Freestyle' Lyrics: Central Cee Releases Song Teased on Drake's Live Stream After 6 Months](https://www.justjared.com/2026/02/12/iceman-freestyle-lyrics-central-cee-releases-song-teased-on-drakes-live-stream-after-6-months/) - Just Jared
+- [Tiny Desk Radio: PJ Sin Suela, Chuwi, Eladio Carrión](https://www.npr.org/2026/02/12/g-s1-109621/tiny-desk-radio) - NPR
+- [Tiny Desk Radio: PJ Sin Suela, Chuwi, Eladio Carrión - VPM](https://www.vpm.org/npr-news/2026-02-12/tiny-desk-radio-pj-sin-suela-chuwi-eladio-carrion) - Vpm
+- [Bon Iver’s Eaux Claires 2026 festival: Lil Yachty, Aimee Mann, and more](https://www.thefader.com/2026/02/12/bon-iver-eaux-claires-2026-festival-announcement) - The FADER
+- [Eaux Claires Festival Returns With Bob Dylan, Dijon, Lil Yachty & More - Billboard](https://www.billboard.com/music/concerts/bon-iver-eaux-claires-festival-returns-lineup-dylan-yachty-1236178652/) - Billboard
+- [Pop music isn’t fun anymore](https://www.dazeddigital.com/music/article/69624/1/ticket-prices-are-sucking-the-fun-out-of-pop-harry-styles-taylor-swift-music?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=pop-music-isn-t-fun-anymore) - Dazed
+- [Harry Styles world tour only hits seven cities: How tours are changing - BBC](https://www.bbc.com/news/articles/czx3q0qw0npo) - Bbc
+- [Concert Residencies in Big Cities Are Here to Stay. That’s Great for Artists — What About Fans? - Billboard](https://www.billboard.com/pro/artists-ditching-tours-residencies-touring-economics/) - Billboard
+- [California Introduces Bill to Cap Resale Ticket Prices - Billboard](https://www.billboard.com/pro/california-resale-ticket-price-cap-bill/) - Billboard
+- [Can New York Stop Ticket Scalpers From Gouging Concertgoers? - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/new-york-introduces-concert-resale-price-caps-1236496561/) - Hollywoodreporter
+- [California introduces a new ticketing bill with a price cap - latimes.com](https://www.latimes.com/entertainment-arts/business/story/2026-02-06/california-introduces-new-ticketing-bill-with-price-cap) - Latimes
+- [Interviews: Frank Turner, Somewhere Inbetween.](https://www.punknews.org/article/87564/interviews-frank-turner-somewhere-inbetween) - Punknews.org
+- [Kid Rock Explains Teaming With Live Nation After Past Testimony](https://loudwire.com/kid-rock-partnering-live-nation-ticketmaster-anti-scalping-policy-2026-tour/) - Loudwire
