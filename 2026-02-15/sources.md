@@ -1,0 +1,24 @@
+# Sources for 2026-02-15 News Episode 
+- [Creepy Nuts Announce and Unveil Their First-Ever North America Tour Following Billboard Success](https://www.animenewsnetwork.com/press-release/2026-02-13/creepy-nuts-announce-and-unveil-their-first-ever-north-america-tour-following-billboard-success/.234162) - Anime News Network
+- [Rob Halford Talks ‘Breaking the Law’ Inspiration in Clip From Judas Priest Documentary](http://www.rollingstone.com/music/music-news/rob-halford-breaking-the-law-judas-priest-documentary-1235516954/) - Rolling Stone
+- [Berlin Hidden Gem: The Ballad of a Metal God (Who Happened to Be Gay) - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-features/berlin-hidden-gem-documentary-the-ballad-of-judas-priest-1236498218/) - Hollywoodreporter
+- [Why did Taylor Swift post an extended 'Opalite' video? #entertainment](https://alltoc.com/entertainment/why-did-taylor-swift-post-an-extended-opalite-video) - Alltoc.com
+- [Taylor Swift Unveils “Opalite” Music Video, A Radiant Call to Hope, Joy, and Renewal - jubileecast.com](https://www.jubileecast.com/articles/34572/20260208/taylor-swift-unveils-opalite-music-video-a-radiant-call-to-hope-joy-and-renewal.htm) - Jubileecast
+- [Taylor Swift Drops Two Extended Versions of 'Opalite' Video - Billboard](https://www.billboard.com/music/pop/taylor-swift-two-extended-versions-opalite-video-outtakes-1236179435/) - Billboard
+- [Taylor Swift's latest business move is another attempt to hack the charts — and it'll probably work - Business Insider](https://www.businessinsider.com/taylor-swift-opalite-music-video-youtube-premiere-billboard-charts-2026-2) - Businessinsider
+- [Courtney Love was villainised after Kurt Cobain’s death. She wants to talk](https://www.washingtonpost.com/entertainment/music/2026/01/29/courtney-love-antiheroine-documentary/) - The Washington Post
+- [Fight The Power: Chuck D on the Politics of Hip Hop](https://thequietus.com/culture/books/fight-the-power-chuck-d-on-the-politics-of-hip-hop/) - The Quietus
+- [Chuck D Responds to Gene Simmons' Hip-Hop Rock Hall 'Ghetto' Diss - Billboard](https://www.billboard.com/music/rb-hip-hop/chuck-d-response-gene-simmons-hip-hop-rock-hall-diss-ghetto-1236179473/) - Billboard
+- [Leicester Music Conference](https://www.soundonsound.com/news/leicester-music-conference) - Soundonsound.com
+- [Hip-Hop Wired’s Artists You Gotta Listen To In February (2026)](https://hiphopwired.com/3043706/rappers-to-listen-to-in-february/) - Hip-Hop Wired
+- [9 Classic Rock Ballads With Women's Names For Titles](https://screenrant.com/classic-rock-ballads-womens-names-titles/) - Screen Rant
+- [Show HN: Vibe Music – Bring Your Own Source (BYOS) Open-Source Music Player](https://github.com/vibe-music/vibe-music-web) - Github.com
+- [How Vibe Coding Is Killing Open Source - Hackaday](https://hackaday.com/2026/02/02/how-vibe-coding-is-killing-open-source/) - Hackaday
+- [Von Mike Singer bis Zoe Wees: Diese Talente starten dank „The Voice Kids“ durch](https://www.focus.de/kultur/stars/von-mike-singer-bis-zoe-wees-diese-talente-starten-dank-the-voice-kids-durch_84818574-0b79-497d-9aa2-7560b789810c.html) - Focus
+- [Tim McGraw announces summer tour, includes stop in Alpharetta](https://www.wsbtv.com/entertainment/things-2-do/tim-mcgraw-announces-summer-tour-includes-stop-alpharetta/KMU7JSVVERAP5KWNPHOTF5NSPI/) - WSB Atlanta
+- [Tim McGraw Is Taking The Chicks & Lady A on His Pawn Shop Guitar Tour: ‘I Dare You to Find More Hits in 1 Show’ - Billboard](https://www.billboard.com/music/country/tim-mcgraw-2026-tour-dates-the-chicks-lady-a-1236171508/) - Billboard
+- [Manchester Orchestra Drummer Tim Very Dead At 42](https://stereogum.com/2489296/manchester-orchestra-drummer-tim-very-dead-at-42/news) - Stereogum
+- [Manchester Orchestra Drummer Timothy Very Dies at 42: Full Statement - Newsweek](https://www.newsweek.com/manchester-orchestra-drummer-timothy-very-dies-at-42-full-statement-11526297) - Newsweek
+- [Manchester Orchestra Drummer Timothy Very Dies, Band Confirms - billboard.com](https://www.billboard.com/music/music-news/timothy-very-death-manchester-orchestra-1236180077/) - Billboard
+- [[Folk Pop] Oscar Blue – Chin Up Kid](https://www.themusicninja.com/folk-pop-oscar-blue-chin-up-kid/) - Themusicninja.com
+- [Watch xaviersobased go on tour in Keep It Going doc](https://www.thefader.com/2026/02/14/watch-xaviersobased-keep-it-going-fader-documentary) - The FADER
