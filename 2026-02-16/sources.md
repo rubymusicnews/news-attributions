@@ -1,0 +1,29 @@
+# Sources for 2026-02-16 News Episode 
+- [Ed Sheeran Reflects on Copyright Lawsuit at Sydney Stadium Show](http://www.billboard.com/music/pop/ed-sheeran-sydney-show-lawsuit-1236180106/) - Billboard
+- [Cardi B Takes a Tumble Off Chair Mid-Performance at Little Miss Drama Show in Las Vegas - Billboard Canada](https://ca.billboard.com/music/music-news/cardi-b-falls-off-chair-mid-concert-little-miss-drama-vegas-1236180126/) - Billboard
+- [Ed Sheeran Reflects on Copyright Lawsuit at Sydney Stadium Show - billboard.com](https://www.billboard.com/music/pop/ed-sheeran-sydney-show-lawsuit-1236180106/) - Billboard
+- [Ed Sheeran Reveals Why He Hasn’t Owned a Phone Since 2015 - Billboard Canada](https://ca.billboard.com/music/pop/ed-sheeran-sydney-show-lawsuit-1236180106/) - Billboard
+- [Don Henley sul futuro degli Eagles, 'il 2026 è l'anno della fine'](https://www.ansa.it/sito/photogallery/spettacolo/2026/02/15/don-henley-sul-futuro-degli-eagles-il-2026-e-lanno-della-fine_b7d24d01-0fa0-4f6d-b20e-4bd28dda5cae.html) - ANSA.it
+- [Don Henley sul futuro degli Eagles, 'il 2026 è l'anno della fine'](https://www.ansa.it/sito/notizie/cultura/musica/2026/02/15/don-henley-sul-futuro-degli-eagles-il-2026-e-lanno-della-fine_44a5e891-8e00-4100-9243-eb1e8c8d6ae9.html) - ANSA.it
+- [Eagles Add Two Sphere Dates After Don Henley Says Band Will ‘Probably’ Come to an End This Year - Variety](https://variety.com/2026/music/news/eagles-add-two-sphere-dates-don-henley-end-this-year-1236659760/) - Variety
+- [Eagles Announce New 2026 Dates at Las Vegas Sphere - Billboard](https://www.billboard.com/music/rock/eagles-announce-final-2026-dates-at-sphere-las-vegas-1236110164/) - Billboard
+- [Global Breakout Japanese Hip-Hop Duo Creepy Nuts Make History With First-Ever RIAA Gold Certifications for Two Japanese Language Songs](https://www.animenewsnetwork.com/press-release/2026-02-14/global-breakout-japanese-hip-hop-duo-creepy-nuts-make-history-with-first-ever-riaa-gold-/.234195) - Anime News Network
+- [Winners Of Hanteo Music Awards 2025](http://www.soompi.com/article/1819569wpp/winners-of-hanteo-music-awards-2025) - soompi
+- [Obituary: Andrew Ranken, drummer with The Pogues known for his ‘warrior’ beats who helped power the notorious trad outfit to international success](https://www.independent.ie/irish-news/obituary-andrew-ranken-drummer-with-the-pogues-known-for-his-warrior-beats-who-helped-power-the-notorious-trad-outfit-to-international-success/a1613148092.html) - Independent.ie
+- [Andrew Ranken, drummer for the Pogues, dies at 72 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-02-11/andrew-ranken-pogues-drummer-dead) - Latimes
+- [3 Doors Down Were Post-Grunge Hitmakers. But the Band Couldn’t Outrun Tragedy](http://www.rollingstone.com/music/music-features/3-doors-down-brad-arnold-tragedy-politics-1235517117/) - Rolling Stone
+- [3 Doors Down Frontman Brad Arnold Dies at 47 - Vulture](https://www.vulture.com/article/3-doors-down-frontman-brad-arnold-death.html) - Vulture
+- [3 Doors Down frontman Brad Arnold dead at 47 - foxnews.com](https://www.foxnews.com/entertainment/3-doors-down-frontman-brad-arnold-dead-47) - Foxnews
+- [Brad Arnold, Lead Singer of 3 Doors Down, Dies at 47 - Variety Australia](https://au.variety.com/2026/music/news/brad-arnold-dead-3-doors-down-kryptonite-32843/) - Variety
+- [Rockers Pay Tribute to 3 Doors Down Frontman Brad Arnold - Yahoo](https://www.yahoo.com/entertainment/music/articles/rockers-pay-tribute-3-doors-082928547.html) - Yahoo
+- [Rockers Pay Tribute to 3 Doors Down’s Brad Arnold After His Death - Billboard](https://www.billboard.com/music/rock/3-doors-down-brad-arnold-dies-tributes-1236175812/) - Billboard
+- [Creed Pays Emotional Tribute to Brad Arnold After Singer’s Death at 47 - Newsweek](https://www.newsweek.com/creed-pays-emotional-tribute-to-brad-arnold-after-singers-death-at-47-11487904) - Newsweek
+- [Are Pop Stars Having the Conversations They’ve Always Wanted on Substack?](http://www.rollingstone.com/music/music-features/pop-star-substack-charli-xcx-doechii-troye-sivan-1235510641/) - Rolling Stone
+- [The Party’s Over When Charli XCX Says So - The New York Times](https://www.nytimes.com/2026/02/07/movies/charli-xcx-the-moment-sundance.html) - Nytimes
+- [Ishay Ribo sings against enslavement to the digital world](https://www.israelnationalnews.com/news/422442) - Israelnationalnews.com
+- [The Fabulous Thunderbirds power up for Bay State show](https://www.bostonherald.com/2026/02/15/the-fabulous-thunderbirds-powers-up-for-bay-state-show/) - Boston Herald
+- [This Is Spinal Tap 1984 1080p AMZN WEB-DL H264-Kitsune](https://post.rlsbb.to/this-is-spinal-tap-1984-1080p-amzn-web-dl-h264-kitsune/) - Rlsbb.to
+- [Neda Mohamadpour, Mehdi Rostami, Isa Farah, Dhaivat Jani – Where the Rain Is Stored (2025)](https://exystence.net/blog/2026/02/15/neda-mohamadpour-mehdi-rostami-isa-farah-dhaivat-jani-where-the-rain-is-stored-2025/) - Exystence.net
+- [Cruz of Life releases two-track EP](https://punchng.com/cruz-of-life-releases-two-track-ep/) - The Punch
+- [RODDY BOTTUM Reflects On Being Gay In The Hair-Metal Era: "It Was A Really Weird World To Be In"](https://metalinjection.net/news/roddy-bottum-reflects-on-being-gay-in-the-hair-metal-era-it-was-a-really-weird-world-to-be-in) - Metal Injection.net
+- [The Molotovs – Wasted On Youth (2026)](https://exystence.net/blog/2026/02/15/the-molotovs-wasted-on-youth-2026/) - Exystence.net
