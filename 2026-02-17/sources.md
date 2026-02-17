@@ -1,0 +1,30 @@
+# Sources for 2026-02-17 News Episode 
+- [Harry Styles to Curate London Festival and Headline Intimate Show](http://www.billboard.com/music/music-news/harry-styles-southbank-centre-london-meltdown-festival-2026-1236180205/) - Billboard
+- [Harry Styles to curate 2026 Meltdown festival at Southbank Centre](https://www.thelineofbestfit.com/news/harry-styles-curate-2026-meltdown-festival-at-southbank-centre-p) - Thelineofbestfit.com
+- [Harry Styles to curate 2026 Meltdown Festival](https://www.the-independent.com/arts-entertainment/music/news/harry-styles-meltdown-festival-2026-lineup-tickets-b2920958.html) - The-independent.com
+- [Harry Styles named as curator of 2026 Meltdown Festival - BBC](https://www.bbc.com/news/articles/cx28q0wxgw0o) - Bbc
+- [Harry Styles to Curate London Festival and Headline Show in Intimate Venue - Billboard](https://www.billboard.com/music/music-news/harry-styles-southbank-centre-london-meltdown-festival-2026-1236180205/) - Billboard
+- [Harry Styles to Curate and Perform at London’s Meltdown Festival - Variety](https://variety.com/2026/music/global/harry-styles-curate-perform-london-meltdown-festival-1236664466/) - Variety
+- [Kanye West & Travis Scott Reportedly Working On Joint Album](http://hiphopdx.com/news/kanye-west-travis-scott-joint-album-havoc/) - HipHopDX
+- [Tool Drummer Proposes Sphere Residency to Coincide With New Album](https://loudwire.com/tool-danny-carey-sphere-residency-new-album-timeline/) - Loudwire
+- [Tool ‘Talking To’ Sphere About 2027 Residency](https://www.spin.com/2026/02/tool-sphere-residency/) - SPIN
+- [TOOL Is In Talks For Las Vegas Sphere Residency: 'We're The Perfect Band For That', Says DANNY CAREY - BLABBERMOUTH.NET](https://blabbermouth.net/news/tool-is-in-talks-for-las-vegas-sphere-residency-were-the-perfect-band-for-that-says-danny-carey) - Blabbermouth
+- [Tool in Talks for Sphere Residency in 2027 - Consequence of Sound](https://consequence.net/2026/02/tool-residency-sphere/) - Consequence
+- [Motörhead: Piraten auf dem Dampfer der Konsumkultur](https://www.nzz.ch/feuilleton/motoerhead-biografie-der-lautesten-band-der-welt-ld.1924741) - Www.nzz.ch
+- [‘Like a Virgin’ and ‘Eternal Flame’ songwriter Billy Steinberg dies at 75](https://www.the-independent.com/arts-entertainment/music/news/billy-steinberg-death-age-songwriter-like-a-virgin-b2921548.html) - The-independent.com
+- [Billy Steinberg Death: Grammy-Winning Songwriter Dies at 74](http://www.billboard.com/pro/billy-steinberg-death-grammy-winning-songwriter-dies/) - Billboard
+- [Billy Steinberg, Madonna's Like a Virgin songwriter, dies at 75 - BBC](https://www.bbc.com/news/articles/cvgveqzld59o) - Bbc
+- [Songwriter Billy Steinberg, Co-Writer of ‘Like a Virgin’ and ‘True Colors,’ Dies at 74 - Billboard](https://www.billboard.com/pro/billy-steinberg-death-grammy-winning-songwriter-dies/) - Billboard
+- [Grammy-Winning Songwriter Passes Away at 74 – Our Hearts Go Out - entertainmentnow.com](https://entertainmentnow.com/music/billy-steinberg-passes-away-74/) - Entertainmentnow
+- [Carré - Hibiscus EP](https://djmag.com/reviews/carre-hibiscus-ep) - DJ Mag
+- [Friday Dance Music Guide: New Tracks From Of The Trees, DJ Minx & More - Billboard](https://www.billboard.com/lists/friday-dance-music-guide-best-new-tracks-of-the-trees-minx/) - Billboard
+- [J. Cole's The Fall-Off Album Lands at No. 1 on Billboard 200](https://www.xxlmag.com/j-cole-no-1-album-the-fall-off-billboard-200/) - XXLMAG.COM
+- [J. Cole Debuts at No. 1; Bad Bunny Hits New Sales Peak Post-Super Bowl - Variety](https://variety.com/2026/music/news/j-cole-album-chart-billboard-200-bad-bunny-sales-1236664122/) - Variety
+- [Cory Wong’s Pop Pivot](https://www.spin.com/2026/02/cory-wongs-pop-pivot/) - SPIN
+- [Nightingale Floor – Five Stagings](https://thequietus.com/quietus-reviews/nightingale-floor-five-stagings-review/) - The Quietus
+- [Dark Tranquillity Premiere New Live Video For "The Last Imagination"](http://www.metalunderground.com/news/details.cfm?newsid=160823) - Metalunderground.com
+- [KORN May Be In The Studio Mixing New Music](https://metalinjection.net/news/rumors/korn-may-be-in-the-studio-mixing-new-music) - Metal Injection.net
+- [Gogol Bordello Learns to Love the Synth Again on ‘We Mean It, Man!’](https://www.spin.com/2026/02/gogol-bordello-learns-to-love-the-synth-again-on-we-mean-it-man/) - SPIN
+- [Every musician rising against Donald Trump's ICE - Far Out Magazine](https://faroutmagazine.co.uk/all-the-artists-singing-against-ice/) - Faroutmagazine
+- [Lucy Kruger & The Lost Boys – Pale Bloom (2026)](https://exystence.net/blog/2026/02/16/lucy-kruger-the-lost-boys-pale-bloom-2026/) - Exystence.net
+- [Brilliantly vulnerable Cypress, Mine! see their return as all about the here and now](https://www.irishtimes.com/culture/music/2026/02/16/brilliantly-vulnerable-cypress-mine-see-their-return-as-all-about-the-here-and-now/) - The Irish Times
