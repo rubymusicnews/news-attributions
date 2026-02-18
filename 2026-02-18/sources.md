@@ -1,0 +1,40 @@
+# Sources for 2026-02-18 News Episode 
+- [Shinedown Announce New Album and 2026 World Tour, Unveil Single “Safe and Sound”: Stream](https://consequence.net/2026/02/shinedown-new-album-2026-world-tour-safe-and-sound/) - Consequence.net
+- [SHINEDOWN Announce New Album EI8HT, Drop "Safe And Sound" & Unveil 54-Date World Tour](https://metalinjection.net/news/shinedown-announce-new-album-ei8ht-drop-safe-and-sound-unveil-54-date-world-tour) - Metal Injection.net
+- [Shinedown Announce 2026 North American Tour + New Album](https://loudwire.com/shinedown-announce-2026-north-american-tour-dates-new-album-details/) - Loudwire
+- [SHINEDOWN Announces New Album 'Ei8ht', Shares 'Safe And Sound' Single And Unveils 2026 World Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/shinedown-announces-new-album-ei8ht-shares-safe-and-sound-single-and-unveils-2026-world-tour) - Blabbermouth
+- [2027 Super Bowl Odds: Which Artist Will Headline the Halftime Show?](https://www.foxsports.com/stories/nfl/2027-super-bowl-odds-halftime-headliner) - Fox Sports
+- [Iron Maiden Reveal Massive Festival Event for 50th Annviersary](https://loudwire.com/iron-maiden-eddfest-2026/) - Loudwire
+- [IRON MAIDEN Reveal EddFest Lineup For Two-Day UK Festival, Joined By THE DARKNESS, THE HU, AIRBORNE & More](https://metalinjection.net/news/iron-maiden-reveal-eddfest-lineup-for-two-day-uk-festival-joined-by-the-darkness-the-hu-airborne-more) - Metal Injection.net
+- [Santana and The Doobie Brothers Announce 2026 Co-Headlining Tour](https://consequence.net/2026/02/santana-doobie-brothers-2026-tour-dates/) - Consequence.net
+- [Santana and The Doobie Brothers bring 'Oneness' tour to El Paso](https://www.elpasotimes.com/story/entertainment/music/2026/02/17/santana-doobie-brothers-oneness-2026-tour-coming-to-el-paso-how-to-get-tickets/88716846007/) - El Paso Times
+- [SANTANA And THE DOOBIE BROTHERS Announce 'Oneness' 2026 Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/santana-and-the-doobie-brothers-announce-oneness-2026-tour) - Blabbermouth
+- [Bay Area Rock and Roll Hall of Fame acts reunite for massive tour - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/santana-doobie-brothers-tour-21358517.php) - Sfchronicle
+- [RÜFÜS DU SOL Announce 2026 North American Tour: How to Get Tickets](https://consequence.net/2026/02/rufus-du-sol-2026-tour-how-to-get-tickets/) - Consequence.net
+- [Lolla headliner Rüfüs Du Sol will play Wrigley Field this summer - Chicago Tribune](https://www.chicagotribune.com/2026/02/17/rufus-du-sol-wrigley/) - Chicagotribune
+- [NMIXX And Pabllo Vittar Drop 1st Teaser For New Collab Single “TIC TIC”](http://www.soompi.com/article/1819753wpp/nmixx-and-pabllo-vittar-drop-1st-teaser-for-new-collab-tic-tic) - soompi
+- [Bruce Springsteen Announces Surprise 2026 Tour Dates](https://ultimateclassicrock.com/bruce-springsteen-2026-tour-dates/) - Ultimate Classic Rock
+- [Bruce Springsteen and E Street Band to launch 'Land of Hope and Dreams' US tour next month](https://japantoday.com/category/entertainment/bruce-springsteen-and-e-street-band-to-launch-%27land-of-hope-and-dreams%27-us-tour-next-month) - Japan Today
+- [Bruce Springsteen to launch 'Land of Hope and Dreams' US tour next month](https://abcnews.com/Entertainment/wireStory/bruce-springsteen-street-band-launch-land-hope-dreams-130240769) - Abcnews.com
+- [Bruce Springsteen and E Street Band to launch 'Land of Hope and Dreams' US tour next month - AP News](https://apnews.com/article/bruce-springsteen-tour-db6d615d92287e1ccdea7ec3a7948cce) - Apnews
+- [Bruce Springsteen and the E Street Band Announce 'Land of Hope and Dreams' American Tour - Variety Australia](https://au.variety.com/2026/music/news/bruce-springsteen-announces-land-of-hope-and-dreams-tour-33178/) - Variety
+- [Bruce Springsteen and the E Street Band Announce ‘Land of Hope and Dreams’ American Tour - Variety](https://variety.com/2026/music/news/bruce-springsteen-announces-land-of-hope-and-dreams-tour-1236665557/) - Variety
+- [Thundercat Releases New Single “She Knows Too Much” with Mac Miller: Stream](https://consequence.net/2026/02/thundercat-new-single-she-knows-too-much-mac-miller/) - Consequence.net
+- [Lana Del Rey releases new single “White Feather Hawk Tail Deer Hunter”](https://pitchfork.com/news/lana-del-rey-releases-new-single-white-feather-hawk-tail-deer-hunter/) - Pitchfork
+- ['White Feather Hawk Tail Deer Hunter' Lyrics: Lana Del Rey Wrote New Song With Husband Jeremy Dufrene](https://www.justjared.com/2026/02/17/white-feather-hawk-tail-deer-hunter-lyrics-lana-del-rey-wrote-new-song-with-husband-jeremy-dufrene/) - Just Jared
+- [Lana Del Rey Teases Release Date for New Single, Credits Husband Jeremy Dufrene as a Co-Writer - Billboard](https://www.billboard.com/music/music-news/lana-del-rey-new-single-date-jeremy-dufrene-co-writer-1236175587/) - Billboard
+- [Lana Del Rey Announces New Single "White feather-hawk tail deer hunter" - Consequence of Sound](https://consequence.net/2026/02/lana-del-rey-white-feather-hawk-tail-deer-hunter/) - Consequence
+- [Lana Del Rey's New Theatrical Single Off Forthcoming Album Was Co-Written by Her Husband - People.com](https://people.com/lana-del-rey-new-single-was-cowritten-by-her-husband-jeremy-dufrene-11908389) - People
+- [Lana Del Rey Drops New Song Written With Husband Jeremy Dufrene About ‘Voodoo’ in Their Marriage - Billboard](https://www.billboard.com/music/music-news/lana-del-rey-new-song-written-husband-jeremy-dufrene-1236180777/) - Billboard
+- [Nile Rodgers on the Best and Grooviest Music of His Career](http://www.vulture.com/article/nile-rodgers-chic-best-songs.html) - Vulture
+- [4 New iOS 26.4 Features Coming To Apple Music](https://www.bgr.com/2103197/ios-26-4-apple-music-new-features/) - BGR
+- [iOS 26.4 beta adds new ‘Playlist Playground’ AI feature for Apple Music - 9to5Mac](https://9to5mac.com/2026/02/16/ios-26-4-beta-adds-new-playlist-playground-ai-feature-in-music/) - 9to5mac
+- [Apple Music 'Playlist Playground' in iOS 26.4 Creates Playlists From Text Prompts - MacRumors](https://www.macrumors.com/2026/02/16/apple-music-playlist-playground-ios-26-4/) - Macrumors
+- [Everything New in iOS 26.4 Beta 1 - MacRumors](https://www.macrumors.com/guide/ios-26-4-beta-features/) - Macrumors
+- [iOS 26.4 beta 1: Here’s everything new - 9to5Mac](https://9to5mac.com/2026/02/16/ios-26-4-beta-1-heres-everything-new/) - 9to5mac
+- [Helicon x Al Lover – Arise (2026)](https://exystence.net/blog/2026/02/17/helicon-x-al-lover-arise-2026/) - Exystence.net
+- [Forever Grateful: John Mayer Remembers Bob Weir](http://www.rollingstone.com/music/music-features/john-mayer-bob-weir-tribute-interview-1235511875/) - Rolling Stone
+- [Forever Grateful: John Mayer Remembers Bob Weir - Rolling Stone](https://www.rollingstone.com/music/music-features/john-mayer-bob-weir-tribute-interview-1235511875/) - Rollingstone
+- [Playing in the Band: Mickey Hart Remembers Bob Weir - Rolling Stone](https://www.rollingstone.com/music/music-features/bob-weir-mickey-hart-tribute-essay-1235511863/) - Rollingstone
+- [Bob Weir’s Beautiful Second Act - Rolling Stone](https://www.rollingstone.com/music/music-features/bob-weir-grateful-dead-jerry-garcia-1235511871/) - Rollingstone
+- [Worshipping at the Altar of Robyn](http://www.thecut.com/article/robyn-sexistential-album-interview-cut-cover-2026.html) - The Cut
