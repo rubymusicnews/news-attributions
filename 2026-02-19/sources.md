@@ -1,0 +1,45 @@
+# Sources for 2026-02-19 News Episode 
+- [Taylor Swift bags best-selling artist of 2025 award: industry body](https://japantoday.com/category/entertainment/taylor-swift-bags-best-selling-artist-of-2025-award-industry-body) - Japan Today
+- [Taylor Swift Named IFPI’s Biggest-Selling Global Artist in 2025, Her Fourth Year in a Row - Billboard](https://www.billboard.com/music/chart-beat/taylor-swift-biggest-selling-artist-globally-2025-ifpi-list-1236181162/) - Billboard
+- [Stray Kids And SEVENTEEN Make Top 15 Of IFPI’s Global Artist Chart For 2025](http://www.soompi.com/article/1820005wpp/stray-kids-and-seventeen-make-top-20-of-ifpis-global-artist-chart-for-2025) - soompi
+- [U2 Surprises With Six-Track ‘Days Of Ash’ EP](https://www.spin.com/2026/02/u2-new-ep/) - SPIN
+- [U2 stun fans with surprise release ‘Days of Ash’ featuring six politically-charged tracks](https://www.independent.ie/entertainment/u2-stun-fans-with-surprise-release-days-of-ash-featuring-six-politically-charged-tracks/a690260933.html) - Independent.ie
+- [U2 Surprise Drop Politically-Charged ‘Days of Ash’ EP With Six New Songs](http://www.rollingstone.com/music/music-news/u2-days-of-ash-ep-six-new-songs-1235518020/) - Rolling Stone
+- [U2 surprise fans with first new music since 2017](https://www.rte.ie/entertainment/2026/0218/1559193-u2-surprise-fans-with-first-new-music-since-2017/) - RTE
+- ['U2 - Days of Ash' New EP Out Now - U2 > Home](https://www.u2.com/news/title/u2--days-of-ash-new-ep-out-now) - U2
+- [U2 Are Recording a ‘Defiantly Joyful’ Album with Larry Mullen Jr. Back on Drums - Rolling Stone](https://www.rollingstone.com/music/music-news/u2-new-album-larry-mullen-jr-returns-1235518335/) - Rollingstone
+- [U2 Release 'Days of Ash' EP With Songs About Renée Good, Ukraine War - Billboard](https://www.billboard.com/music/rock/u2-days-of-ash-ep-renee-good-gaza-ukraine-wars-propaganda-mag-1236181232/) - Billboard
+- [U2 releases Renee Good tribute song 'American Obituary' - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/u2-releases-renee-good-tribute-song-american-obituary-rcna259592) - Nbcnews
+- [Rap music isn’t dead – it’s evolving](https://www.dazeddigital.com/music/article/69665/1/is-rap-music-dead-hip-hop-k-pop-reggaeton?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=rap-music-isn-t-dead-it-s-evolving) - Dazed
+- [SoundCloud Data Finds Electronic Music ‘Surging’ and Hip-Hop ‘Rapidly Evolving’ - Billboard](https://www.billboard.com/pro/soundcloud-fastest-growing-genres-techno-dubstep-report/) - Billboard
+- [R&B/Hip-Hop Fresh Picks of the Week: Shae Universe, Isaia Huron, Feng & More - Billboard](https://www.billboard.com/lists/best-new-rb-hip-hop-larry-june-feng-leon-thomas-currensy/) - Billboard
+- [Bad Bunny’s Super Bowl: A win for unity](https://theweek.com/culture-life/music/bad-bunny-super-bowl-unity) - The Week Magazine
+- [Bad Bunny Steals The Show At The Super Bowl With A Culture-Defining Performance - Forbes](https://www.forbes.com/sites/oliviashalhoup/2026/02/08/bad-bunny-steals-the-show-at-the-super-bowl-with-a-culture-defining-performance/) - Forbes
+- [Review: Bad Bunny turned halftime show into cultural reckoning - The Columbia Chronicle](https://columbiachronicle.com/arts-culture/review-bad-bunny-turned-halftime-show-into-cultural-reckoning/) - Columbiachronicle
+- [How Bad Bunny’s Super Bowl Halftime Show Put Boricua Culture on the World’s Stage - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/bad-bunny-super-bowl-2026-halftime-show-cultural-take-1236500226/) - Hollywoodreporter
+- [Trump calls Bad Bunny’s Super Bowl performance ‘absolutely terrible’ – US politics live - The Guardian](https://www.theguardian.com/us-news/live/2026/feb/09/donald-trump-bad-bunny-super-bowl-politics-latest-updates) - Theguardian
+- [Bad Bunny to meet political moment as Maga fumes over Super Bowl show - The Guardian](https://www.theguardian.com/us-news/2026/feb/08/bad-bunny-super-bowl-trump-maga) - Theguardian
+- [Trump Got Bad Bunny’s Message — And He Didn’t Like It - Rolling Stone](https://www.rollingstone.com/politics/politics-news/trump-bad-bunny-super-bowl-halftime-show-1235513077/) - Rollingstone
+- [Willow Leaves Expectations at the Door in Intimate Blue Note Performance](http://www.rollingstone.com/music/music-live-reviews/willow-petal-rock-black-blue-note-los-angeles-1235518474/) - Rolling Stone
+- [Foo Fighters Announce Symphonic Concert at the Hollywood Bowl](https://consequence.net/2026/02/foo-fighters-symphonic-concert-hollywood-bowl-la-philharmonic/) - Consequence.net
+- [Hollywood Bowl Announces 2026 Calendar: Dudamel Meets Foo Fighters - Variety](https://variety.com/2026/music/news/hollywood-bowl-2026-summer-season-calendar-dudamel-phil-1236666371/) - Variety
+- [Gustavo Dudamel delivers his ‘love letter to L.A.’ in his final summer at the Hollywood Bowl - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-02-18/la-phil-hollywood-bowl-summer-season-gustavo-dudamel) - Latimes
+- [Nach Chaos und Rückzugs-Gerüchten: Kanye West kehrt endlich nach Europa zurück – aber nur für ganz wenige Fans](https://www.giga.de/entertainment/nach-chaos-und-rueckzugs-geruechten-kanye-west-kehrt-endlich-nach-europa-zurueck-aber-nur-fuer-ganz-wenige-fans--01J5QY137RQXPP51PBVSBWR923) - Giga
+- [Kanye West Pops Up at Deon Cole Show, Reveals New Album Is Coming - Billboard](https://www.billboard.com/music/rb-hip-hop/kanye-west-confirms-new-album-dean-cole-comedy-show-1236146294/) - Billboard
+- [Imagine Dragons Is Latest Act to Exit Beleaguered Wasserman \| Exclusive](https://www.thewrap.com/creative-content/music/imagine-dragons-leaves-wasserman/) - TheWrap
+- [Wasserman to Sell Talent Agency After ‘Past Personal Mistakes’ - Bloomberg Law News](https://news.bloomberglaw.com/mergers-and-acquisitions/casey-wasserman-to-put-talent-agency-up-for-sale-wsj-says) - Bloomberglaw
+- [Wasserman Agency to Be Renamed After Founder Casey Wasserman Sells His Stake \| Exclusive - TheWrap](https://www.thewrap.com/industry-news/business/wasserman-agency-renamed-after-casey-sale/) - Thewrap
+- [Casey Wasserman Exits Telemundo’s Playmakers Event Amid Epstein Files Fallout - The Hollywood Reporter](https://www.hollywoodreporter.com/news/general-news/casey-wasserman-ghislaine-maxwell-jeffrey-epstein-emails-1236501904/) - Hollywoodreporter
+- [Best Coast Frontwoman Demands Casey Wasserman’s Removal From Namesake Company Over Epstein Emails - The Hollywood Reporter](https://www.hollywoodreporter.com/news/general-news/casey-wasserman-ghislaine-maxwell-epstein-2028-olympics-1236497549/) - Hollywoodreporter
+- [Casey Wasserman Faces Artist Rebellion Amid Epstein Fallout - The Hollywood Reporter](https://www.hollywoodreporter.com/business/business-news/casey-wasserman-epstein-fallout-1236500784/) - Hollywoodreporter
+- [Wasserman Music Agency's Fate to Be Decided Amid Epstein Revelations - Variety](https://variety.com/2026/music/news/wasserman-music-agency-fate-to-be-decided-epstein-revelations-1236657485/) - Variety
+- [Casey Wasserman to sell talent agency after links to Ghislaine Maxwell exposed in Epstein files - The Guardian](https://www.theguardian.com/us-news/2026/feb/14/casey-wasserman-selling-talent-agency-ghislaine-maxwell-epstein-files) - Theguardian
+- [Wasserman’s Epstein ties cause chaos at his music agency. Artists and staff want him out - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-02-11/wasserman-artists-staff-want-him-out-after-epstein-files-chaos) - Latimes
+- [Bourbon & Beyond Announces 2026 Lineup: Foo Fighters, Dave Matthews Band, and Queens of the Stone Age](https://consequence.net/2026/02/bourbon-and-beyond-2026-lineup/) - Consequence.net
+- [Foos, Mumford, DMB Bound For Bourbon & Beyond](https://www.spin.com/2026/02/bourbon-and-beyond-lineup-2/) - SPIN
+- [Bourbon & Beyond Lineup: Chris Stapleton, Foo Fighters & More - Billboard](https://www.billboard.com/music/concerts/bourbon-beyond-festival-lineup-2026-1236181387/) - Billboard
+- [Phish Announce 2026 Summer Tour](https://consequence.net/2026/02/phish-2026-summer-tour/) - Consequence.net
+- [THE BLACK QUEEN Celebrate 10th Anniversary Of Fever Daydream With North American Tour](https://metalinjection.net/tour-dates/the-black-queen-celebrate-10th-anniversary-of-fever-daydream-with-north-american-tour) - Metal Injection.net
+- [Sunflower Bean’s Julia Cumming Goes Solo](http://www.rollingstone.com/music/music-news/julia-cumming-sunflower-bean-solo-album-1235518197/) - Rolling Stone
+- ["A joyous space for the misfits":Julia Cumming announces debut solo album Julia](https://www.thelineofbestfit.com/news/julia-cumming-announces-debut-solo-album-julia) - Thelineofbestfit.com
+- [Teaser Trailer for 'Los Lobos: Native Sons' Doc About the East LA Band](https://www.firstshowing.net/2026/teaser-trailer-for-los-lobos-native-sons-doc-about-the-east-la-band/) - First Showing
