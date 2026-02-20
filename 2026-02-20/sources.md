@@ -1,0 +1,25 @@
+# Sources for 2026-02-20 News Episode 
+- [Everything we know about Beyoncé’s rumoured rock era](https://www.dazeddigital.com/music/article/69686/1/beyonce-rumoured-rock-era-black-betty-glastonbury-act-iii-2026-album?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=everything-we-know-about-beyonce-s-rumoured-rock-era) - Dazed
+- ['5-7' Lyrics & English Translation: Karan Aujla Song Goes Viral With Music Video Starring Actress & Model Alankrita Sahai](https://www.justjared.com/2026/02/19/5-7-lyrics-english-translation-karan-aujla-song-goes-viral-with-music-video-starring-actress-model-alankrita-sahai/) - Just Jared
+- [FOO FIGHTERS Stream New Single "Your Favorite Toy," Announce 12th Studio Album](https://metalinjection.net/new-music/foo-fighters-stream-new-single-your-favorite-toy-announce-12th-studio-album) - Metal Injection.net
+- [Foo Fighters veröffentlichten neuen Song und kündigen neues Album an](https://www.diepresse.com/20610595/foo-fighters-veroeffentlichten-neuen-song-und-kuendigen-neues-album-an) - Diepresse.com
+- [Foo Fighters: Rockband kündigt neues Album an](https://www.stern.de/kultur/foo-fighters--rockband-kuendigt-neues-album-an-37153356.html) - STERN.de
+- [Foo Fighters Come Raging Back With Ragged, Rocking ‘Your Favorite Toy,’ Title Track For Upcoming 12th Album - Billboard](https://www.billboard.com/music/rock/foo-fighters-your-favorite-toy-title-track-12th-album-listen-1236182149/) - Billboard
+- [Foo Fighters Preview Batch of Riotous New Songs From Untitled 12th Album on Interactive Throwback Site - Billboard](https://www.billboard.com/music/rock/foo-fighters-preview-new-songs-12th-album-interactive-site-1236179454/) - Billboard
+- [Interpol, Mannequin Pussy, Salem, and more added to line-up for Outbreak Festival London 2026](https://www.thelineofbestfit.com/news/interpol-mannequin-pussy-salem-and-more-added-to-line-up-for-outbreak-festival-london-2026) - Thelineofbestfit.com
+- [SoundCloud Data Finds Electronic Music ‘Surging’ and Hip-Hop ‘Rapidly Evolving’ - Billboard](https://www.billboard.com/pro/soundcloud-fastest-growing-genres-techno-dubstep-report/) - Billboard
+- [Sunn O))) Reveal New Track “Butch’s Guns” and U.K. and European Tour](https://www.metalsucks.net/2026/02/19/sunn-o-reveal-new-track-butchs-guns-and-u-k-and-european-tour/) - MetalSucks
+- [SUNN O))) Brings The Sonic Destruction With New Single "Butch's Guns"](https://metalinjection.net/new-music/sunn-o-brings-the-sonic-destruction-with-new-single-butchs-guns) - Metal Injection.net
+- [130 Tracks of Guitar Per Song? Sunn O))) Is Back, and Going Big. - The New York Times](https://www.nytimes.com/2026/01/13/arts/music/sunn-o-new-album-sub-pop.html) - Nytimes
+- [Idén lép fel először a Budapest Parkban Koszovó kedvenc énekesnője](https://index.hu/fomo/2026/02/19/rita-ora-enekesno-budapest-park-koncert/) - Index.hu
+- [Lovebites Surprise Releases New Album Digitally; Signs With Napalm Records](http://www.metalunderground.com/news/details.cfm?newsid=160848) - Metalunderground.com
+- [Arch Enemy Introduces New Vocalist Lauren Hart; Shares New Music Video "To The Last Breath"](http://www.metalunderground.com/news/details.cfm?newsid=160864) - Metalunderground.com
+- [ARCH ENEMY Reveals New Vocalist With Vicious Single "To The Last Breath", European Tour Announced](https://metalinjection.net/video/arch-enemy-reveals-new-vocalist-with-vicious-single-to-the-last-breath-european-tour-announced) - Metal Injection.net
+- [Power(house) moves: Anirudh announces new label, concert series](http://musically.com/2026/02/19/powerhouse-moves-anirudh-announces-new-label-concert-series/) - Music Ally
+- [Award-winning singer José van Dam dies at age 85](https://abcnews.com/International/wireStory/award-winning-singer-jos-van-dam-dies-age-130314447) - Abcnews.com
+- [Sarah McLachlan, Allison Russell and Cameron Whitcomb to perform at the 2026 Juno Awards](https://www.cbc.ca/music/junos/sarah-mclachlan-allison-russell-cameron-whitcomb-juno-awards-2026-9.7096058) - CBC News
+- [Sarah McLachlan & Allison Russell to Perform in Tribute to Joni Mitchell at 2026 Juno Awards - Billboard](https://www.billboard.com/music/awards/joni-mitchell-tribute-performance-2026-juno-awards-1236182360/) - Billboard
+- [Joni Mitchell Set for 2026 Juno Awards Career Tribute - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/joni-mitchell-2026-juno-awards-1236509721/) - Hollywoodreporter
+- [WILLIAM SHATNER Announces New Heavy Metal Album Feat. BLACK SABBATH & JUDAS PRIEST Covers](https://metalinjection.net/upcoming-releases/william-shatner-announces-new-heavy-metal-album-feat-black-sabbath-judas-priest-covers) - Metal Injection.net
+- [Diljit Dosanjh sets new records with ‘Aura’ world tour](http://musically.com/2026/02/19/diljit-dosanjh-sets-new-records-with-aura-world-tour/) - Music Ally
+- [Steve Perry Is Apparently Considering a Journey Reunion](https://ultimateclassicrock.com/journey-steve-perry-farewell-tour/) - Ultimate Classic Rock
