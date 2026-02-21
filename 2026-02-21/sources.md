@@ -1,0 +1,44 @@
+# Sources for 2026-02-21 News Episode 
+- [Dave Grohl Explains Firing of Josh Freese From Foo Fighters](https://ultimateclassicrock.com/dave-grohl-josh-freese-foo-fighters-fired/) - Ultimate Classic Rock
+- [Dave Grohl äußert sich zu Trennung von Foo-Fighters-Drummer Josh Freese](https://www.visions.de/news/dave-grohl-aeussert-sich-zu-trennung-von-foo-fighters-drummer-josh-freese/) - Visions.de
+- [Dave Grohl Breaks Silence on Foo Fighters Firing Josh Freese](https://consequence.net/2026/02/dave-grohl-breaks-silence-foo-fighters-firing-josh-freese/) - Consequence.net
+- [Dave Grohl Explains His Side of Josh Freese's Firing from the Foo Fighters](https://exclaim.ca/music/article/dave-grohl-explains-his-side-of-josh-freese-s-firing-from-the-foo-fighters) - Exclaim!
+- [Why was continuing Foo Fighters complicated? #entertainment](https://alltoc.com/entertainment/why-was-continuing-foo-fighters-complicated) - Alltoc.com
+- [VIRGIN MUSIC GROUP COMPLETES ACQUISITION OF DOWNTOWN](https://www.prnewswire.co.uk/news-releases/virgin-music-group-completes-acquisition-of-downtown-302693654.html) - PR Newswire UK
+- [Virgin Music Group Completes Downtown Takeover, Names Pieter van Rijn COO - Billboard](https://www.billboard.com/pro/virgin-music-downtown-acquisition-pieter-van-rijn-coo/) - Billboard
+- [Universal and Virgin Music Complete $775 Million Acquisition of Downtown - Variety](https://variety.com/2026/music/news/universal-virgin-music-complete-775-million-acquisition-downtown-1236668336/) - Variety
+- [Done Deal: UMG’s Downtown acquisition approved by EU competition regulator - Music Business Worldwide](https://www.musicbusinessworldwide.com/universa-music-downtown-acquisition-cleared-by-eu-competition-regulator/) - Musicbusinessworldwide
+- [Universal Music, Virgin Close $775 Million Deal to Buy Downtown In Major Expansion - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/umg-and-virgin-music-complete-downtown-acquisition-1236510700/) - Hollywoodreporter
+- [Mumford & Sons Book International Tour](https://exclaim.ca/music/article/mumford-and-sons-book-international-tour) - Exclaim!
+- [Mumford & Sons Announce 2026 North American Tour](https://consequence.net/2026/02/mumford-sons-2026-north-american-tour/) - Consequence.net
+- [Mumford & Sons Going Big On North American Tour](https://www.spin.com/2026/02/mumford-and-sons-tour/) - SPIN
+- [Mumford and Sons' frontman talks about the band's new album - NPR](https://www.npr.org/2026/02/18/nx-s1-5591397/mumford-and-sons-frontman-talks-about-the-bands-new-album) - Npr
+- [Megan Moroney, Poet of Gen Z Heartbreak, Digs Deep on ‘Cloud 9’](http://www.rollingstone.com/music/music-album-reviews/megan-moroney-cloud-9-review-1235514235/) - Rolling Stone
+- [Megan Moroney Is Never Coming Back Down to Earth](https://www.esquire.com/entertainment/music/a70394243/megan-moroney-interview-2026/) - esquire.com
+- [Megan Moroney Soars Above 'Cloud 9' In Her 'Most Self-Assured' Chapter - iHeart](https://1063thebear.iheart.com/featured/wayne-and-tay/content/2026-02-20-megan-moroney-soars-above-cloud-9-in-her-most-self-assured-chapter/) - Iheart
+- [Megan Moroney Soars Above 'Cloud 9' In Her 'Most Self-Assured' Chapter - Buckeye Country 105.5](https://buckeyecountry105.iheart.com/content/2026-02-20-megan-moroney-soars-above-cloud-9-in-her-most-self-assured-chapter/) - Iheart
+- [Shakira India Tour 2026: 'Hips don't lie' singer to perform in Delhi and Mumbai, check tickets and dates](https://economictimes.indiatimes.com/news/new-updates/shakira-india-tour-2026-hips-dont-lie-singer-to-perform-in-delhi-and-mumbai-check-tickets-and-dates/articleshow/128595896.cms) - The Times of India
+- [Shakira Is Returning To India After 19 Years - Forbes](https://www.forbes.com/sites/hannahabraham/2026/02/20/shakira-is-returning-to-india-after-19-years/) - Forbes
+- [Violinist Pekka Kuusisto is not afraid to ruffle a few feathers](https://www.npr.org/2026/02/20/nx-s1-5667271/pekka-kuusisto-willows-album-review) - NPR
+- [Violinist Pekka Kuusisto is not afraid to ruffle a few feathers - VPM](https://www.vpm.org/npr-news/2026-02-20/violinist-pekka-kuusisto-is-not-afraid-to-ruffle-a-few-feathers) - Vpm
+- [Violinist Pekka Kuusisto is not afraid to ruffle a few feathers - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2026-02-20/violinist-pekka-kuusisto-is-not-afraid-to-ruffle-a-few-feathers) - Kansaspublicradio
+- [Violinist Pekka Kuusisto is not afraid to ruffle a few feathers - WKMS](https://www.wkms.org/npr-news/2026-02-20/violinist-pekka-kuusisto-is-not-afraid-to-ruffle-a-few-feathers) - Wkms
+- [Violinist Pekka Kuusisto is not afraid to ruffle a few feathers - WBGO Jazz](https://www.wbgo.org/npr-news/2026-02-20/violinist-pekka-kuusisto-is-not-afraid-to-ruffle-a-few-feathers) - Wbgo
+- [DEAFHEAVEN Confirms Summer 2026 European Tour With SHOW ME THE BODY](https://metalinjection.net/tour-dates/deafheaven-confirms-summer-2026-european-tour-with-show-me-the-body) - Metal Injection.net
+- [IIMW recap: The India opportunity for Australian artists (and vice versa)](http://musically.com/2026/02/20/iimw-recap-the-india-opportunity-for-australian-artists-and-vice-versa/) - Music Ally
+- [Tiësto announces 2026 [UNVRS] Ibiza residency](https://djmag.com/news/tiesto-announces-2026-unvrs-ibiza-residency) - DJ Mag
+- [The Moment: How A.G. Cook turned Brat summer into a nightmare](https://www.dazeddigital.com/music/article/69695/1/ag-cook-charli-xcx-brat-moment-sundance-interview-first-film-score-2026?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=the-moment-how-a-g-cook-turned-brat-summer-into-a-nightmare) - Dazed
+- [Charli xcx has her movie star moment, and says goodbye to Brat - bozemandailychronicle.com](https://www.bozemandailychronicle.com/ap_news/entertainment/charli-xcx-has-her-movie-star-moment-and-says-goodbye-to-brat/article_71949731-cbf5-59ae-8a4e-49fc246f152b.html) - Bozemandailychronicle
+- [Charli xcx has her movie star moment, and says goodbye to Brat - AP News](https://apnews.com/article/charli-xcx-moment-movie-sundance-film-festival-2570e0929916591fd4d32555a4b194cc) - Apnews
+- [“The Moment” is Charli xcx’s disturbing sellout fantasy - Salon.com](https://www.salon.com/2026/02/08/the-moment-is-charli-xcxs-disturbing-sellout-fantasy/) - Salon
+- [Charli xcx On Why She Went The Festival Route With ‘The Moment': - Deadline](https://deadline.com/2026/02/charli-xcx-a24-the-moment-berlin-1236724824/) - Deadline
+- [Charli xcx Brings 'Brat' to Berlin With 'The Moment' Premiere - Variety](https://variety.com/2026/film/festivals/charli-xcx-brat-berlin-the-moment-premiere-1236663546/) - Variety
+- [The xx announce date for first full show since 2018](https://djmag.com/news/xx-announce-date-first-full-show-2018) - DJ Mag
+- [AUGUST BURNS RED Unleash Crushing New Single "Behemoth" As They Return To Fearless Records](https://metalinjection.net/new-music/august-burns-red-unleash-crushing-new-single-behemoth-as-they-return-to-fearless-records) - Metal Injection.net
+- [Here’s How to Buy Tickets to Hilary Duff’s The Lucky Me Tour Online](http://www.rollingstone.com/product-recommendations/tickets/how-to-buy-hilary-duff-the-lucky-me-tour-tickets-deals-discounts-1235519955/) - Rolling Stone
+- [Metric Is a ‘Victim of Luck’ on the Billboard Canada Modern Rock Airplay Chart - Billboard Canada](https://ca.billboard.com/music/chart-beat/metric-billboard-canada-airplay-charts) - Billboard
+- [Hilary Duff Announces Sprawling Lucky Me World Tour, Her First in Nearly 2 Decades: See the Dates - Billboard](https://www.billboard.com/music/music-news/hilary-duff-lucky-tour-dates-2026-2027-lucky-me-tour-1236178669/) - Billboard
+- [Hilary Duff Announces The Lucky Me World Tour Dates: “The Name Says It All” - Deadline](https://deadline.com/2026/02/hilary-duff-the-lucky-me-world-tour-dates-1236718157/) - Deadline
+- [Hilary Duff, former Disney star, announces first tour in nearly two decades - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/hilary-duff-world-tour-21351013.php) - Sfchronicle
+- [Hilary Duff hits the stage with joyful throwbacks, new songs as her comeback amps up - USA Today](https://www.usatoday.com/story/entertainment/music/2026/02/14/hilary-duff-concert-review-las-vegas/88670142007/) - Usatoday
+- [Jonny Greenwood Doubles Down on Stance That Music Is “Above and Beyond” Politics](https://consequence.net/2026/02/jonny-greenwood-defends-israel-collaborations/) - Consequence.net
