@@ -1,0 +1,41 @@
+# Sources for 2026-02-22 News Episode 
+- [Dobře ty, vysekl mu poklonu Bob Dylan. MGK dodnes nechápe, jak k tomu došlo](https://www.idnes.cz/kultura/hudba/dobre-ty-vysekl-mu-poklonu-bob-dylan-mgk-dodnes-nechape-jak-k-tomu-doslo.A260220_152710_hudba_hrat) - Idnes.cz
+- [Liam St. John Is Carving a Lane in the Roots Music World by Keeping It Raw](http://www.rollingstone.com/music/music-features/liam-st-john-man-of-the-north-1235520364/) - Rolling Stone
+- [Liam Grant – Prodigal Son (2025)](https://exystence.net/blog/2026/02/21/liam-grant-prodigal-son-2025/) - Exystence.net
+- [BLACKPINK Becomes 1st Artist In YouTube History To Surpass 100 Million Subscribers](http://www.soompi.com/article/1820468wpp/blackpink-becomes-1st-artist-in-youtube-history-to-surpass-100-million-subscribers) - soompi
+- [Willie Colón Death: Salsa Legend & Master Trombonist Was 75](http://www.billboard.com/music/latin/willie-colon-dead-salsa-1236184449/) - Billboard
+- [Grammy-nominated salsa music icon Willie Colón dies at 75](https://apnews.com/article/willie-colon-salsa-musician-death-66ecf4eeec614e156d0c88382aec64b7) - Associated Press
+- [Willie Colón, salsa pioneer, has died at 75](https://www.npr.org/2026/02/21/nx-s1-5722320/willie-colon-obituary) - NPR
+- [Willie Colón, salsa singer and musician, dies aged 75](https://www.the-independent.com/arts-entertainment/music/news/willie-colon-salsa-death-b2925027.html) - The-independent.com
+- [Willie Colón, Salsa Music Legend and Activist, Dies at 75 - Newsweek](https://www.newsweek.com/entertainment/willie-colon-salsa-music-legend-and-activist-dies-at-75-11562249) - Newsweek
+- [Willie Colón, Trailblazing Salsa Musician, Dies at 75 - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/willie-colon-dead-salsa-musician-1236511655/) - Hollywoodreporter
+- [Remembering salsa legend Willie Colon - WSIU](https://www.wsiu.org/music/2026-02-21/remembering-salsa-legend-willie-colon) - Wsiu
+- [Willie Colón, salsa pioneer, has died at 75 - Houston Public Media](https://www.houstonpublicmedia.org/npr/2026/02/21/nx-s1-5722320/willie-colon-salsa-pioneer-has-died-at-75/) - Houstonpublicmedia
+- [Willie Colón, salsa pioneer, has died at 75 - Northern Public Radio](https://www.northernpublicradio.org/2026-02-21/willie-colon-salsa-pioneer-has-died-at-75) - Northernpublicradio
+- [Willie Colón, salsa pioneer, has died at 75 - WKMS](https://www.wkms.org/npr-news/2026-02-21/willie-colon-salsa-pioneer-has-died-at-75) - Wkms
+- [Latin Music World Mourns Willie Colón: ‘Maestro, Thank You for Your Legacy’ - Billboard](https://www.billboard.com/music/latin/willie-colon-dead-reactions-latin-music-stars-1236184469/) - Billboard
+- [Spotify 1.2.80.354](https://post.rlsbb.to/spotify-1-2-80-354/) - Rlsbb.to
+- [5 Uncomfortable Truths About Using Spotify - bgr.com](https://www.bgr.com/2063706/uncomfortable-truths-spotify-privacy-payment-ai/) - Bgr
+- [3 Cheaper Alternatives To Spotify Premium You Should Switch To - bgr.com](https://www.bgr.com/2050986/spotify-premium-cheaper-alternatives-worth-trying/) - Bgr
+- [Spotify Surges After Record-Breaking Quarter - Forbes](https://www.forbes.com/sites/tylerroush/2026/02/10/spotify-rallies-19-pacing-best-day-ever-after-record-user-growth/) - Forbes
+- [Forbes Daily: Spotify Stock Hits A High Note After Best-Ever ‘Wrapped’ - Forbes](https://www.forbes.com/sites/daniellechemtob/2026/02/11/forbes-daily-spotify-stock-hits-a-high-note-after-best-ever-wrapped/) - Forbes
+- [Spotify Launches In-App SeatGeek Ticketing for Concert Purchases - MLQ.ai](https://mlq.ai/news/spotify-launches-in-app-seatgeek-ticketing-for-concert-purchases/) - Mlq
+- [Spotify hits a record 751M monthly users thanks to Wrapped, new free features - TechCrunch](https://techcrunch.com/2026/02/10/spotify-hits-a-record-751m-monthly-users-thanks-to-wrapped-new-free-features/) - Techcrunch
+- [Spotify Keeps Adding Subscribers as Features Expand - The Wall Street Journal](https://www.wsj.com/business/earnings/spotify-earnings-q4-2025-spot-stock-88665806?gaa_at=eafs&gaa_n=AWEtsqd_FWRX1BfLVadNCzM7UHc32g0j9eb6dU6-6jqpB0GklXJUj8N1EFqo&gaa_ts=698b17e1&gaa_sig=diPIwsFR5iKPzRWW3MtYYOPQWoYO0TIeYe91xX0lWh0KQ8MY9nZWTW5z-7SJNcLNs8sRjeI4uQJvB3bkPPjynQ%3D%3D) - Wsj
+- [Spotify Q4 2025 Earnings See Record MAU Adds, 2026 'Year of Raising Ambition' - Variety](https://variety.com/2026/digital/news/spotify-q4-2025-earnings-record-monthly-users-year-of-raising-ambition-1236657863/) - Variety
+- [Primal Fear Premieres New Music Video "One"](http://www.metalunderground.com/news/details.cfm?newsid=160878) - Metalunderground.com
+- [‘It’s Never Over, Jeff Buckley’ is a heartbreaking portrait of generational talent and trauma](https://freerepublic.com/focus/f-chat/4367790/posts) - Freerepublic.com
+- [New Jeff Buckley Documentary Set for Local Release - Variety Australia](https://au.variety.com/2026/music/news/jeff-buckley-documentary-release-australia-new-zealand-33158/) - Variety
+- [Four Legendary Photographers Remember Working With Bob Weir](http://www.rollingstone.com/music/music-features/bob-weir-photographers-jay-blakeberg-rosie-mcgee-1235515262/) - Rolling Stone
+- [Bob Weir’s Beautiful Second Act - Rolling Stone](https://www.rollingstone.com/music/music-features/bob-weir-grateful-dead-jerry-garcia-1235511871/) - Rollingstone
+- [Playing in the Band: Mickey Hart Remembers Bob Weir - Rolling Stone](https://www.rollingstone.com/music/music-features/bob-weir-mickey-hart-tribute-essay-1235511863/) - Rollingstone
+- [‘Welcome to the Grateful Dead’: Mickey Hart recalls Bob Weir’s first words - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/mickey-hart-bob-weir-21358667.php) - Sfchronicle
+- [CENTRAL MUSIC & ENTERTAINMENT FESTIVAL 2026](https://central-fest.com/s/central/?ima=4008) - Central-fest.com
+- [Powerwolf Tops The German Charts For The Fifth Time With New Live Album "Wildlive (Live At Olympiahalle)"](http://www.metalunderground.com/news/details.cfm?newsid=160877) - Metalunderground.com
+- ["To Whom This May Concern" von Jill Scott](https://laut.de/Jill-Scott/Alben/To-Whom-This-May-Concern-126530) - Laut.de
+- [Jill Scott Returns With First Album In 11 Years, ‘To Whom This May Concern’: Stream It Now - Billboard Canada](https://ca.billboard.com/music/rb-hip-hop/jill-scott-whom-this-may-concern-stream-it-now-1236179411/) - Billboard
+- [Jill Scott Is Ending Her 10-Year Album Hiatus: ‘I Needed to Take a Break … So That I Could Live Life’ - Billboard](https://www.billboard.com/music/rb-hip-hop/jill-scott-new-album-to-whom-this-may-concern-billboard-video-1236178717/) - Billboard
+- [R&B stars consider two ways to serve an audience - WXXI News](https://www.wxxinews.org/npr-news/2026-02-19/r-b-stars-consider-two-ways-to-serve-an-audience) - Wxxinews
+- [PAUL RODGERS Shoots Down Rumors About His Health: 'I Feel Fit And Strong'](https://blabbermouth.net/news/paul-rodgers-shoots-down-rumors-about-his-health-i-feel-fit-and-strong) - BLABBERMOUTH.NET
+- [Avatar, Alien Weaponry & Witch Club Satan Take On The Bristol Academy](http://www.metalunderground.com/news/details.cfm?newsid=160880) - Metalunderground.com
+- [OMG, a Q&A with Peaches](https://omg.blog/peaches-qa/) - Omg.blog
