@@ -1,0 +1,21 @@
+# Sources for 2026-02-23 News Episode 
+- [Frontside Announces New Album, "Nemesis"; Releases New Music Video, "Omen"](http://www.metalunderground.com/news/details.cfm?newsid=160881) - Metalunderground.com
+- [Foo Fighters Announce Surprise Trio of Shows in England + Ireland](https://loudwire.com/foo-fighters-announce-shows-england-ireland/) - Loudwire
+- [Foo Fighters announce last-minute Dublin gig](https://www.rte.ie/entertainment/music/2026/0222/1559798-foo-fighters-dublin/) - RTE
+- [Deftones to Return to Japan for First Headlining Shows in 10 Years](https://www.metalsucks.net/2026/02/22/deftones-to-return-to-japan-for-first-headlining-shows-in-10-years/) - MetalSucks
+- [Deftones bet against Y2K nostalgia. The move paid off on 'private music' : World Cafe Words and Music Podcast - NPR](https://www.npr.org/2026/01/02/nx-s1-5649858/deftones-album-private-music) - Npr
+- [Stoned Cold Country 2023 1080p WEB H264-HYMN](https://post.rlsbb.to/stoned-cold-country-2023-1080p-web-h264-hymn/) - Rlsbb.to
+- [Why U2’s 'The Joshua Tree' 1988 Grammy Win Is Still Controversial](https://screenrant.com/u2-joshua-tree-grammy-win-1988-controversy-explained/) - Screen Rant
+- [KPOP Demon Hunters: EJAE, Audrey Nuna & Rei Ami's "Golden" 2026 BAFTAs](https://bleedingcool.com/tv/kpop-demon-hunters-ejae-audrey-nuna-rei-amis-golden-2026-baftas/) - Bleeding Cool News
+- [‘KPop Demon Hunters’ Singing Voice Stars Get BAFTA Awards Grooving With “Golden” - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-news/kpop-demon-hunters-stars-sing-golden-bafta-awards-london-1236511777/) - Hollywoodreporter
+- [The ‘KPop Demon Hunters’ Writer-Directors Are Very Aware of the Sequel Pressure - Gizmodo](https://gizmodo.com/kpop-demon-hunters-sequel-pressure-netflix-2000719824) - Gizmodo
+- ['KPop Demon Hunters' Performance Gets Crowd Singing at BAFTAs - Variety](https://variety.com/2026/film/awards/kpop-demon-hunters-performance-baftas-1236665304/) - Variety
+- [Stars arrive for the UK’s BAFTA film awards, in photos - AP News](https://apnews.com/photo-gallery/britain-film-bafta-awards-top-photos-gallery-fa24785343ee31e705cf314ba48fd081) - Apnews
+- [Streaming \| Genug vom Musik-Fastfood? Es geht auch ohne Spotify!](https://www.freitag.de/autoren/kristoffer-cornils/genug-vom-musik-fastfood-es-geht-auch-ohne-spotify) - Freitag.de
+- [The Dear Hunter Announce New Album Sunya, Share First Single “The Glass Desert I – Giants”: Stream](https://consequence.net/2026/02/the-dear-hunter-sunya-the-glass-desert-i-giants/) - Consequence.net
+- [Winged Wheel – Desert So Green (2026)](https://exystence.net/blog/2026/02/22/winged-wheel-desert-so-green-2026/) - Exystence.net
+- [Merzbow to bring noise to Newport](https://northern.starweekly.com.au/news/merzbow-to-bring-noise-to-newport/) - Starweekly.com.au
+- [Stereolab at NCH review: Eloquent Anglo-French favourites rise to the occasion](https://www.irishtimes.com/culture/music/review/2026/02/22/stereolab-at-nch-review-eloquent-anglo-french-favourites-rise-to-the-occasion/) - The Irish Times
+- [HEAVEN & HELL (BLACK SABBATH) Show Off Their Upcoming Box Set, Breaking Out Of Heaven 2007-2009](https://metalinjection.net/metal-merch/heaven-hell-black-sabbath-show-off-their-upcoming-box-set-breaking-out-of-heaven-2007-2009) - Metal Injection.net
+- [Malena Zavala – If This Life Could Start Again (2026)](https://exystence.net/blog/2026/02/22/malena-zavala-if-this-life-could-start-again-2026/) - Exystence.net
+- [Black Sea Dahu – Everything (2026)](https://exystence.net/blog/2026/02/22/black-sea-dahu-everything-2026/) - Exystence.net
