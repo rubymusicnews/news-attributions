@@ -1,0 +1,30 @@
+# Sources for 2026-02-24 News Episode 
+- [RUSH Expand Fifty Something World Tour Into 2027](https://metalinjection.net/tour-dates/rush-expand-fifty-something-world-tour-into-2027) - Metal Injection.net
+- [RUSH Announce 2027 International Tour](https://consequence.net/2026/02/rush-2027-international-tour/) - Consequence.net
+- [Rush Bringing Reunion Tour To Europe, South America](https://www.spin.com/2026/02/rush-reunion-tour-update/) - SPIN
+- [Rush Reveal New Keyboardist for Reunion Tour](https://ultimateclassicrock.com/rush-keyboardist-loren-gold/) - Ultimate Classic Rock
+- [BTS’ j-hope Calls J. Cole His ‘GOAT,’ Congratulates Rapper on ‘Crazy’ New Album - Billboard Canada](https://ca.billboard.com/music/music-news/bts-j-hope-j-cole-goat-congratulates-new-album-1236182283/) - Billboard
+- [Newly Restored Version of Pink Floyd’s Live at Pompeii Arriving on 4K Ultra HD Blu-Ray](https://consequence.net/2026/02/pink-floyd-live-at-pompeii-restored-4k-ultra-hd-blu-ray/) - Consequence.net
+- [Linda Perry Revamps ‘Beautiful’ for 2026 — And It’s Just as Relevant Today](http://www.rollingstone.com/music/music-features/linda-perry-beautiful-let-it-die-here-solo-1235519384/) - Rolling Stone
+- [Linda Perry Announces New Album Let It Die Here, Shares First Single “Beautiful”: Stream](https://consequence.net/2026/02/linda-perry-let-it-die-here-beautiful/) - Consequence.net
+- [Watch an Exclusive Clip from Linda Perry’s Doc, 'Let It Die Here' - Billboard](https://www.billboard.com/music/pop/exclusive-clip-linda-perry-doc-let-it-die-here-1236182064/) - Billboard
+- [Multiple Academy Award Winning Composer Hans Zimmer to Score Netflix Thriller Series "All the Sinners Bleed"](http://www.thefutoncritic.com/news/2026/02/23/multiple-academy-award-winning-composer-hans-zimmer-to-score-netflix-thriller-series-all-the-sinners-bleed-922515/20260223netflix02/) - Thefutoncritic.com
+- [Hans Zimmer to Score Netflix Series ‘All the Sinners Bleed’ From Higher Ground, Amblin Television - Variety](https://variety.com/2026/music/news/hans-zimmer-netflix-all-the-sinners-bleed-1236670318/) - Variety
+- [Jelly Roll Announces 2026 “The Little ASS Shed Tour”](https://consequence.net/2026/02/jelly-roll-2026-the-little-ass-shed-tour/) - Consequence.net
+- [Jelly Roll Announces His Headlining Little Ass Shed Tour: Here Are the Dates - Billboard](https://www.billboard.com/music/music-news/jelly-roll-2026-the-little-ass-shed-tour-dates-1236184757/) - Billboard
+- [Lil Hawa is shaky and sprung on “Malfunction”](https://www.thefader.com/2026/02/23/lil-hawa-is-shaky-and-sprung-on-malfunction) - The FADER
+- [Bon Iver Launches Archival Series with Live Album](https://exclaim.ca/music/article/bon-iver-launches-archival-series-announces-live-album) - Exclaim!
+- [Bon Iver to Launch Archival Series With New Live Album](https://pitchfork.com/news/bon-iver-to-launch-archival-series-with-new-live-album/) - Pitchfork
+- [Bon Iver launches archival series with new album, VOLUMES: ONE](https://www.thelineofbestfit.com/news/bon-iver-launches-archival-series-with-new-album-volumes-one) - Thelineofbestfit.com
+- [Bon Iver Looks Back With ‘Volumes’ Archival Series](https://www.spin.com/2026/02/bon-iver-volumes-archival-series/) - SPIN
+- [Bon Iver Announces VOLUMES Archive Series, Shares “HEAVENLY FATHER”: Stream](https://consequence.net/2026/02/bon-iver-volumes-archive-heavenly-father/) - Consequence.net
+- [DEATH ANGEL Announce Second Leg of Act III U.S. Tour With VIO-LENCE & INCITE](https://metalinjection.net/tour-dates/death-angel-announce-second-leg-of-act-iii-u-s-tour-with-vio-lence-incite) - Metal Injection.net
+- [Death Angel to Perform All of ‘Act III’ During Spring Tour with Vio-Lence and Incite](https://www.metalsucks.net/2026/02/23/death-angel-to-perform-all-of-act-iii-during-spring-tour-with-vio-lence-and-incite/) - MetalSucks
+- [‘Rein Me In’ tops UK singles chart… 35 weeks after release](http://musically.com/2026/02/23/rein-me-in-tops-uk-singles-chart-35-weeks-after-release/) - Music Ally
+- [Pop dreamer Gabriela Richardson shares her internet obsessions](https://www.dazeddigital.com/music/article/69722/1/soft-pop-spanish-gabriela-richardson-internet-obsessions-isola?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=pop-dreamer-gabriela-richardson-shares-her-internet-obsessions) - Dazed
+- [1tbsp announces tour dates with emphatic new single "Soulseek" featuring Soltera](https://earmilk.com/2026/02/23/1tbsp-announces-tour-dates-with-emphatic-new-single-soulseek-featuring-soltera/) - Earmilk.com
+- [Swanand Kirkire on Arijit Singh's retirement: Maybe he'll refresh and come back](https://timesofindia.indiatimes.com/entertainment/hindi/music/news/swanand-kirkire-on-arijit-singhs-retirement-maybe-hell-refresh-and-come-back/articleshow/128700759.cms) - The Times of India
+- [Hurray for the Riff Raff Announce Live Album Live Forever](https://pitchfork.com/news/hurray-for-the-riff-raff-announce-new-live-album-live-forever/) - Pitchfork
+- [Hurray For The Riff Raff announces new live album, “Live Forever”](https://www.thefader.com/2026/02/23/hurray-for-the-riff-raff-announcement-new-live-album-live-forever) - The FADER
+- [Hurray for the Riff Raff announces new live album, Live Forever](https://www.thelineofbestfit.com/news/hurray-for-the-riff-raff-announces-new-live-album-live-forever) - Thelineofbestfit.com
+- [Twat Union is London's New Favorite Feminist Band With New EP Don't Blame the Peach](https://earmilk.com/2026/02/23/twat-union-is-londons-new-favorite-feminist-band-with-new-ep-dont-blame-the-peach/) - Earmilk.com
