@@ -1,0 +1,31 @@
+# Sources for 2026-02-25 News Episode 
+- [KAMELOT Announce Monumental 2026 World Tour & KamFest Event](https://metalinjection.net/tour-dates/kamelot-announce-monumental-2026-world-tour-kamfest-event) - Metal Injection.net
+- [PinkPantheress becomes first woman to win BRITs Producer of the Year award](https://djmag.com/news/pinkpantheress-becomes-first-woman-win-brits-producer-of-year-award) - DJ Mag
+- [PinkPantheress Is the First Woman To Win BRIT Awards’ Producer of the Year Prize - Billboard](https://www.billboard.com/music/awards/pinkpantheress-brit-awards-producer-prize-first-woman-1236180533/) - Billboard
+- [Taylor Swift: Gleichstand mit Rihanna](https://www.stern.de/kultur/taylor-swift--gleichstand-mit-rihanna-37167170.html) - STERN.de
+- [Taylor Swift goes makeup-free in the studio for ‘Opalite’ behind-the-scenes video](https://pagesix.com/2026/02/24/style/taylor-swift-goes-makeup-free-for-opalite-behind-the-scenes-video/) - Page Six
+- [Here’s Why Taylor Swift’s ‘Opalite’ Will Contend for No. 1 on the Hot 100 Next Week - Billboard](https://www.billboard.com/music/chart-beat/taylor-swift-opalite-hot-100-number-one-contender-1236183807/) - Billboard
+- [Which Artists Have the Most Albums With Multiple Hot 100 No. 1 Hits? - Billboard](https://www.billboard.com/lists/artists-albums-multiple-number-one-hits-taylor-swift/) - Billboard
+- [Taylor Swift 'blown away' by chart success of Opalite - Yahoo](https://www.yahoo.com/entertainment/music/articles/taylor-swift-blown-away-chart-081628918.html) - Yahoo
+- [ProducerAI: Your music creation partner, now in Google Labs](https://blog.google/innovation-and-ai/models-and-research/google-labs/producerai/) - Blog.google
+- [Music generator ProducerAI joins Google Labs - TechCrunch](https://techcrunch.com/2026/02/24/music-generator-producerai-joins-google-labs/) - Techcrunch
+- [This Chainsmokers-approved AI music producer is joining Google - The Verge](https://www.theverge.com/tech/883307/google-producerai-deal-music) - Theverge
+- [Google Acquires AI Music Startup ProducerAI - Billboard](https://www.billboard.com/pro/google-acquires-producerai-ai-music-startup/) - Billboard
+- [Google Launches Music Generation Model to Make Songs 30-Seconds at a Time - Gizmodo](https://gizmodo.com/google-launches-music-generation-model-to-make-songs-30-seconds-at-a-time-2000723549) - Gizmodo
+- [Iron Maiden Announce Theatrical Release of New Documentary Burning Ambition](https://consequence.net/2026/02/iron-maiden-theatrical-documentary-burning-ambition/) - Consequence.net
+- [IRON MAIDEN Announce Burning Ambition Documentary Hitting Cinemas This May](https://metalinjection.net/tour-dates/iron-maiden-announce-burning-ambition-documentary-hitting-cinemas-this-may) - Metal Injection.net
+- [Iron Maiden Gets Documentary Treatment With ‘Burning Ambition’ - Billboard](https://www.billboard.com/music/rock/iron-maiden-documentary-treatment-burning-ambition-1236186237/) - Billboard
+- [Brazilian Grammy Nominee Anitta Signs With WME](http://deadline.com/2026/02/anitta-signs-wme-1236734518/) - Deadline
+- [4 years into the war, a Ukrainian pianist processes Russia's invasion](https://www.npr.org/2026/02/24/nx-s1-5672417/vadim-neselovskyi-album-interview) - NPR
+- [4 years into the war, a Ukrainian pianist processes Russia's invasion - WWNO](https://www.wwno.org/npr-news/2026-02-24/4-years-into-the-war-a-ukrainian-pianist-processes-russias-invasion) - Wwno
+- [4 years into the war, a Ukrainian pianist processes Russia's invasion - HPPR](https://www.hppr.org/npr-news/2026-02-24/4-years-into-the-war-a-ukrainian-pianist-processes-russias-invasion) - Hppr
+- [4 years into the war, a Ukrainian pianist processes Russia's invasion - STLPR](https://www.stlpr.org/npr/2026-02-24/4-years-into-the-war-a-ukrainian-pianist-processes-russias-invasion) - Stlpr
+- [Hyperspecific: Electronic Music for February Reviewed by Jaša Bužinel](https://thequietus.com/quietus-reviews/electronic/best-new-electronic-music-february-2026-review/) - The Quietus
+- [IVE Becomes 1st Girl Group Ever To Score Perfect All-Kills With 6 Different Songs](http://www.soompi.com/article/1821225wpp/ive-becomes-1st-girl-group-to-score-perfect-all-kills-with-6-different-songs) - soompi
+- [Adelaide quartet Swapmeet sign to Winspear, share new single "I Know!"](https://www.thelineofbestfit.com/news/adelaide-quartet-swapmeet-sign-winspear-share-single-i-know) - Thelineofbestfit.com
+- [Winspear Signs Australia’s Swapmeet: Exclusive - Billboard](https://www.billboard.com/pro/winspear-signs-swapmeet-exclusive/) - Billboard
+- [Accept Tour 2026: Hier gibt es Tickets – ist das der Abschied?](https://www.giga.de/entertainment/accept-tour-2026-hier-gibt-es-tickets-ist-das-der-abschied--01JX27CB9KKRNS5EG081KBSK2W) - Giga
+- [Flyleaf Announce 20th Anniversary Tour with Original Singer Lacey Sturm](https://consequence.net/2026/02/flyleaf-20th-anniversary-tour/) - Consequence.net
+- [Flyleaf Announce 20th Anniversary Tour with Former Vocalist Lacey Sturm](https://www.metalsucks.net/2026/02/24/flyleaf-announce-20th-anniversary-tour-with-former-vocalist-lacey-sturm/) - MetalSucks
+- [Why is Massive Attack touring Europe? #entertainment](https://alltoc.com/entertainment/why-is-massive-attack-touring-europe) - Alltoc.com
+- [VA – Soul Jazz Records Presents: 600% DYNAMITE! Ska, Soul, Rocksteady, Funk and Dub in Jamaica (2026)](https://exystence.net/blog/2026/02/24/va-soul-jazz-records-presents-600-dynamite-ska-soul-rocksteady-funk-and-dub-in-jamaica-2026/) - Exystence.net
