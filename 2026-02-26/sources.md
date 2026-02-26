@@ -1,0 +1,47 @@
+# Sources for 2026-02-26 News Episode 
+- [Phil Collins, Wu-Tang Clan, Mariah Carey Lead Rock And Roll Hall Of Fame Nominations](https://dailycaller.com/2026/02/25/phil-collins-wu-tang-clan-mariah-carey-rock-roll-hall-fame-nominations/) - The Daily Caller
+- [2026 Rock & Roll Hall of Fame nominees announce, full list of artists](https://www.thebiglead.com/2026-rock-roll-hall-of-fame-nominees-announce-full-list-artists/) - The Big Lead
+- [Rock & Roll Hall of Fame Unveils 2026 Nominees: See the Complete List - Billboard](https://www.billboard.com/music/awards/rock-hall-fame-nominees-2026-list-1236186061/) - Billboard
+- [Phil Collins, Mariah Carey, Sade, and Oasis Nominated for Rock Hall of Fame - Pitchfork](https://pitchfork.com/news/phil-collins-sade-and-liam-gallagher-nominated-for-rock-hall-of-fame-2026/) - Pitchfork
+- [Shakira, Mariah Carey, More Nominated For Rock & Roll Hall Of Fame - Forbes](https://www.forbes.com/sites/martinadilicosa/2026/02/25/shakira-mariah-carey-more-nominated-for-rock--roll-hall-of-fame/) - Forbes
+- [Phil Collins, Lauryn Hill, INXS, Iron Maiden, Luther Vandross and Shakira get Rock Hall nominations - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/phil-collins-lauryn-hill-inxs-iron-maiden-luther-vandross-shakira-get-rcna260593) - Nbcnews
+- [Download Apple Music to MP3 on iPhone: Complete Beginner’s Guide](https://www.androidheadlines.com/2026/02/download-apple-music-to-mp3-on-iphone-complete-beginners-guide.html) - Android Headlines
+- [Enter to Win Trip to See Metallica at the Sphere in Las Vegas!](https://loudwire.com/enter-win-metallica-sphere-las-vegas-2026/) - Loudwire
+- [Metallica Announces Las Vegas Residency](https://dailycaller.com/2026/02/25/metallica-las-vegas-residency-sphere-concert-ticketmaster-life-burns-faster/) - The Daily Caller
+- [What is Metallica’s Sphere residency? #entertainment](https://alltoc.com/entertainment/what-is-metallicas-sphere-residency) - Alltoc.com
+- [What is Metallica's Sphere residency plan? #entertainment](https://alltoc.com/entertainment/what-is-metallica-s-sphere-residency-plan) - Alltoc.com
+- [Metallica Announce 2026 Residency at Las Vegas’ Sphere - Consequence of Sound](https://consequence.net/2026/02/metallica-2026-residency-las-vegas-sphere/) - Consequence
+- [Metallica announces ‘Life Burns Faster’ residency at Sphere in Las Vegas - FOX5 Vegas](https://www.fox5vegas.com/2026/02/25/metallica-announces-life-burns-faster-residency-sphere-las-vegas/) - Fox5vegas
+- [Metallica Announces Las Vegas Sphere Residency, With ‘No Repeat Weekends’ - Yahoo News UK](https://uk.news.yahoo.com/metallica-announce-las-vegas-sphere-150850931.html) - Yahoo
+- ["We have to do this, it’s completely uncharted territory!" Metallica announce Life Burns Faster residency at Sphere, Las Vegas - Louder](https://www.loudersound.com/bands-artists/metallica-announce-life-burns-faster-residency-at-sphere) - Loudersound
+- [Rock & Roll Hall of Famers Metallica Doing Las Vegas Sphere Residency - Military.com](https://www.military.com/feature/2026/02/25/rock-roll-hall-of-famers-metallica-doing-las-vegas-sphere-residency.html) - Military
+- [American Football Share Video for New Song “Bad Moons”](https://pitchfork.com/news/american-football-share-video-for-new-song-bad-moons/) - Pitchfork
+- [American Football Share “Bad Moons,” First Single From Upcoming Fourth Album: Stream](https://consequence.net/2026/02/american-football-bad-moons-fourth-album/) - Consequence.net
+- [American Football Go From Boys To Men On ‘Bad Moons’](https://www.spin.com/2026/02/american-football-bad-moons/) - SPIN
+- [American Football return with first new song in eight years, "Bad Moons"](https://www.thelineofbestfit.com/news/american-football-first-new-song-in-eight-years-bad-moons) - Thelineofbestfit.com
+- [American Football Confirms Fourth Self-Titled LP - spin.com](https://www.spin.com/2026/02/american-football-fourth-album/) - Spin
+- [CMA Fest 2026: Bailey Zimmerman, Ella Langley, Shaboozey Will Perform](http://www.rollingstone.com/music/music-country/2026-cma-fest-lineup-1235522006/) - Rolling Stone
+- [Pop Music’s New Independent Force: Inside the Studio with Tina Win](https://www.spin.com/2026/02/pop-musics-new-independent-force-inside-the-studio-with-tina-win/) - SPIN
+- [Return of the King: Elvis Presley brought alive in a lively concert film](https://indianexpress.com/article/entertainment/movie-review/return-of-the-king-elvis-presley-brought-alive-in-a-lively-concert-film-10551309/) - The Indian Express
+- [Baz Luhrmann on the Burning Love Behind 'EPiC: Elvis Presley in Concert' - Variety](https://variety.com/2026/music/news/baz-luhrmann-epic-elvis-presley-in-concert-imax-interview-1236669914/) - Variety
+- [EPiC: Elvis Presley in Concert Review - IGN](https://www.ign.com/articles/epic-elvis-presley-in-concert-baz-luhrmann-review) - Ign
+- [You’ve Never Seen The King Quite Like This Before - The Daily Beast](https://www.thedailybeast.com/obsessed/epic-elvis-presley-in-concert-review-baz-luhrmanns-concert-documentary-is-spectacular/) - Thedailybeast
+- ['EPiC: Elvis Presley in Concert' Review: Baz Luhrmann Fetes the King - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-reviews/epic-elvis-presley-in-concert-review-baz-luhrmann-1236477394/) - Hollywoodreporter
+- [America Is More Obsessed With Elvis Than Ever. The New Concert Movie 'EPiC' Shows Why - Rolling Stone](https://www.rollingstone.com/music/music-features/elvis-presley-concert-film-epic-baz-luhrmann-1235519007/) - Rollingstone
+- [Elvis in IMAX: How Newly Found Footage Became an Immersive Documentary - The New York Times](https://www.nytimes.com/2026/02/20/movies/epic-elvis-presley-in-concert-imax-baz-luhrmann.html) - Nytimes
+- [Iron Maiden Nominated for 2026 Rock Hall Class, But Would They Refuse Induction?](https://consequence.net/2026/02/iron-maiden-2026-rock-hall-will-they-refuse/) - Consequence.net
+- [Rock & Roll Hall of Fame Unveils 2026 Nominees: See the Complete List - Billboard](https://www.billboard.com/music/awards/rock-hall-fame-nominees-2026-list-1236186061/) - Billboard
+- [Phil Collins, Lauryn Hill, INXS, Iron Maiden, Luther Vandross and Shakira get Rock Hall nominations - Greenwich Time](https://www.greenwichtime.com/entertainment/article/phil-collins-lauryn-hill-inxs-iron-maiden-21940280.php) - Greenwichtime
+- [INXS Nominated For 2026 Rock & Roll Hall of Fame Alongside Oasis, Phil Collins & More - Variety Australia](https://au.variety.com/2026/music/news/rock-roll-hall-of-fame-nominees-2026-shakira-lauryn-hill-pink-33575/) - Variety
+- [Relentless Alloys: MENT in review](https://thequietus.com/quietus-reviews/live-reviews/ment-2026-review/) - The Quietus
+- [J. Cole Gets Asked If He'll Appear on Drake's Iceman Album](https://www.xxlmag.com/j-cole-drake-iceman-album/) - XXLMAG.COM
+- [Drake Calls Out ‘People Who Look Up to’ Him as Wait for ‘Iceman’ Continues - Billboard](https://www.billboard.com/music/rb-hip-hop/drake-calls-out-people-who-look-up-to-him-iceman-wait-1236152092/) - Billboard
+- [Here’s What J. Cole Had to Say When Asked About Potentially Appearing on Drake’s ‘Iceman’ Album - Billboard](https://www.billboard.com/music/rb-hip-hop/j-cole-will-he-appear-on-drake-iceman-album-1236186480/) - Billboard
+- [Social Distortion’s Mike Ness on Kicking Cancer, New Album, and Learning to Love Oasis](http://www.rollingstone.com/music/music-features/social-distortion-mike-ness-cancer-new-album-interview-1235521551/) - Rolling Stone
+- [Social Distortion Announce First Album in 15 Years, Unleash Title Track “Born To Kill”: Stream](https://consequence.net/2026/02/social-distortion-new-album-born-to-kill/) - Consequence.net
+- [Never miss a live show in your hometown with Apple Music Concerts](https://www.cultofmac.com/how-to/apple-music-concerts) - Cult of Mac
+- [Apple Music in iOS 26.4 has new design for albums, playlists, and more - 9to5Mac](https://9to5mac.com/2026/02/16/apple-music-in-ios-26-4-has-new-design-for-albums-playlists-and-more/) - 9to5mac
+- [Apple Music in iOS 26.4: Five new features coming to iPhone - 9to5Mac](https://9to5mac.com/2026/02/18/apple-music-in-ios-26-4-five-new-features-coming-to-iphone/) - 9to5mac
+- [It’s Slayyyter season](https://www.thefader.com/2026/02/25/slayyyyter-worst-girl-in-america-interview) - The FADER
+- [Slayyyter Announces Third Album ‘Wor$t Girl in America,’ Preps New Single ‘Dance…’ - Variety](https://variety.com/2026/music/news/slayyyter-announces-third-album-worst-girl-in-america-1236629872/) - Variety
+- [‘The sound stopped suddenly’](https://news.harvard.edu/gazette/story/2026/02/the-sound-stopped-suddenly/) - Harvard School of Engineering and Applied Sciences
