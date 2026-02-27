@@ -1,0 +1,33 @@
+# Sources for 2026-02-27 News Episode 
+- [Spotify paid out more than £860m for UK artists’ music in 2025](http://musically.com/2026/02/26/spotify-paid-out-more-than-860m-for-uk-artists-music-in-2025/) - Music Ally
+- [Sepultura To Release Farewell EP "The Cloud Of Unknowing" In April; Shares New Lyric Video "The Place"](http://www.metalunderground.com/news/details.cfm?newsid=160921) - Metalunderground.com
+- [Sepultura Announce Farewell EP, Unleash Single “The Place”: Stream](https://consequence.net/2026/02/sepultura-farewell-ep-single-the-place/) - Consequence.net
+- [SEPULTURA Announce Farewell EP The Cloud Of Unknowing, Stream "The Place"](https://metalinjection.net/video/sepultura-announce-farewell-ep-the-cloud-of-unknowing-stream-the-place) - Metal Injection.net
+- [AI Music Platform Suno Reaches 2 Million Subscribers—As Industry Backlash Grows](https://www.forbes.com/sites/conormurray/2026/02/26/ai-music-platform-suno-reaches-2-million-subscribers-as-industry-backlash-grows/) - Forbes
+- [The Industry’s Biggest AI Music Generator Just Surpassed 2 Million Subscribers - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/suno-ai-music-reaches-two-million-subscribers-1236516241/) - Hollywoodreporter
+- [‘Say No to Suno’: Artist Rights Groups Push Back Against AI Music Company - Billboard](https://www.billboard.com/pro/say-no-to-suno-artist-groups-challenge-ai-music-training/) - Billboard
+- [AI song generator startups Suno and Udio angered the music industry. Now they're hoping to join it - Los Angeles Times](https://www.latimes.com/business/story/2026-02-26/ai-song-generator-startups-suno-udio-angered-music-industry-now-theyre-hoping-to-join-it) - Latimes
+- [AI song generator startups Suno and Udio angered the music industry. Now they're hoping to join it - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/ai-song-generator-startups-suno-and-udio-angered-21941893.php) - Sfchronicle
+- ['It gives us pride': Bad Bunny tour unites Sydney's Latin diaspora](https://www.abc.net.au/news/2026-02-27/nsw-fans-prepare-for-bad-bunny-sydney-tour-latin-dispora/106387764) - ABC News (AU)
+- [Bad Bunny Drops Exclusive Merch Ahead of First-Ever Australia Shows - Billboard](https://www.billboard.com/music/latin/bad-bunny-exclusive-merch-first-ever-australia-concerts-1236178504/) - Billboard
+- [Spanish-speaking Bad Bunny stirs lost Latin identity among Brazil’s music fans - The Guardian](https://www.theguardian.com/music/2026/feb/20/bad-bunny-spanish-speaking-brazil-music) - Theguardian
+- [Artist services firm MGMH expands offerings, books Wild Wild Women for Sziget](http://musically.com/2026/02/26/artist-services-firm-mgmh-expands-offerings-books-wild-wild-women-for-sziget/) - Music Ally
+- [Chloë Sevigny, a Lifelong Deadhead, Is Producing a Film About Deadheads](http://www.rollingstone.com/music/music-features/chloe-sevigny-grateful-dead-summer-tour-movie-1235521989/) - Rolling Stone
+- [Chloë Sevigny turns her lifelong Grateful Dead devotion into a documentary - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/chloe-sevigny-deadheads-documentary-21944138.php) - Sfchronicle
+- [Korean Music Awards 2026: Jennie, Sik-K, Lee Chan-Hyuk Dominate](https://www.forbes.com/sites/hannahabraham/2026/02/26/korean-music-awards-2026-jennie-sik-k-lee-chan-hyuk-dominate/) - Forbes
+- [Iron Maiden to Take a Break From Touring for All of 2027](https://ultimateclassicrock.com/iron-maiden-2027-touring-break/) - Ultimate Classic Rock
+- [IRON MAIDEN Announce Final Run For Your Lives Tour Dates, Will Not Tour Again Until At Least 2028](https://metalinjection.net/news/bummer-alert/iron-maiden-announce-final-run-for-your-lives-tour-dates-will-not-tour-again-until-at-least-2028) - Metal Injection.net
+- [Iron Maiden is Taking a Break from Touring in 2027, Won’t Return Until at Least 2028](https://www.metalsucks.net/2026/02/26/iron-maiden-is-taking-a-break-from-touring-in-2027-wont-return-until-at-least-2028/) - MetalSucks
+- [Baby Keem's boulevard of broken dreams](https://www.npr.org/2026/02/26/nx-s1-5724242/baby-keems-casino-pglang-review) - NPR
+- [Baby Keem’s ‘Ca$ino’: All 11 Tracks Ranked - Billboard](https://www.billboard.com/lists/baby-keem-casino-tracks-ranked/) - Billboard
+- [Baby Keem's boulevard of broken dreams - Iowa Public Radio](https://www.iowapublicradio.org/2026-02-26/baby-keems-boulevard-of-broken-dreams) - Iowapublicradio
+- [Baby Keem's boulevard of broken dreams - WVXU](https://www.wvxu.org/news-from-npr/2026-02-26/baby-keems-boulevard-of-broken-dreams) - Wvxu
+- [Bleed From Within Drops New Live Video "Zenith" Ahead Of UK/Ireland Tour](http://www.metalunderground.com/news/details.cfm?newsid=160911) - Metalunderground.com
+- [Bruno Mars Ties One Of The Most Successful Female Singers Of All Time](https://www.forbes.com/sites/hughmcintyre/2026/02/26/bruno-mars-ties-one-of-the-most-successful-female-singers-of-all-time/) - Forbes
+- [What do cats think of Mitski’s new album? Find out in this new video](https://www.dazeddigital.com/music/article/69762/1/do-cats-like-mitski-new-album-find-out-in-this-new-video?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=what-do-cats-think-of-mitski-s-new-album-find-out-in-this-new-video) - Dazed
+- [Mitski consolidates her position on Nothing's About To Happen To Me](https://www.thelineofbestfit.com/albums/mitski-nothings-about-to-happen-to-me-consolidates-her-position) - Thelineofbestfit.com
+- [Nothing's About to Happen to Me (hmv Exclusive) Blue Cat Eye LP - HMV](https://hmv.com/store/music/vinyl/nothing-s-about-to-happen-to-me-(hmv-exclusive)-bl) - Hmv
+- [Mitski, Flea: 8 Songs We’re Talking About This Week - The New York Times](https://www.nytimes.com/2026/01/17/arts/music/mitski-flea-new-songs.html) - Nytimes
+- [Mitski: Nothing’s About to Happen to Me review \| Alexis Petridis's album of the week - The Guardian](https://www.theguardian.com/music/2026/feb/19/mitski-nothings-about-to-happen-to-me-review-alt-rock) - Theguardian
+- [Frederic. Confirms 2026 Festival Appearances](https://www.attackmagazine.com/news/frederic-confirms-2026-festival-appearances/) - Attackmagazine.com
+- [11 Alternative Rock Greatest Hits Albums You Need on Vinyl](https://loudwire.com/greatest-hits-albums-alternative-rock/) - Loudwire
