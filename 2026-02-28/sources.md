@@ -1,0 +1,56 @@
+# Sources for 2026-02-28 News Episode 
+- [The Story Behind William Basinski’s Seminal Ambient Album](https://www.anothermag.com/design-living/16904/the-story-behind-william-basinskis-seminal-album-the-disintegration-loops?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=the-story-behind-william-basinski-s-seminal-ambient-album) - AnOther Magazine
+- [Bad Bunny Returns To No. 1 On The American Albums Charts](https://www.forbes.com/sites/hughmcintyre/2026/02/27/bad-bunny-returns-to-no-1-on-the-american-albums-charts/) - Forbes
+- [Bad Bunny’s ‘DeBÍ TiRAR MáS FOToS’ Returns to No. 1 on Billboard 200 Chart - Billboard](https://www.billboard.com/music/chart-beat/bad-bunny-dtmf-returns-number-one-billboard-200-chart-1236184580/) - Billboard
+- [Bad Bunny’s ‘DtMF’ Holds Atop Global Charts - Billboard](https://www.billboard.com/music/chart-beat/bad-bunny-dtmf-global-charts-1236185001/) - Billboard
+- [Bad Bunny Charts A New Top 10 At The Same Time He Soars Back To No. 1 - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/02/22/bad-bunny-charts-a-new-top-10-at-the-same-time-he-soars-back-to-no-1/) - Forbes
+- [J. Cole Achieves Seventh No. 1 Album on Billboard 200 With ‘The Fall-Off’ - billboard.com](https://www.billboard.com/music/chart-beat/j-cole-the-fall-off-number-one-billboard-200-chart-1236180124/) - Billboard
+- [ELDER Return With Mind-Bending New Album Through Zero, European & U.S. Tour Announced](https://metalinjection.net/upcoming-releases/elder-return-with-mind-bending-new-album-through-zero-european-u-s-tour-announced) - Metal Injection.net
+- [Elder Announce Their Next Album ‘Through Zero’, Unveil U.S. and European Tour](https://www.metalsucks.net/2026/02/27/elder-announce-their-next-album-through-zero-unveil-u-s-and-european-tour/) - MetalSucks
+- [Watch Bruno Mars Front a Mariachi Band in “Risk It All” Music Video](https://pitchfork.com/news/watch-bruno-mars-front-a-mariachi-band-in-risk-it-all-music-video/) - Pitchfork
+- [Is ‘The Romantic’ Bruno Mars’ Most Latin Album Yet?](http://www.rollingstone.com/music/music-latin/bruno-mars-the-romantic-latin-music-influences-1235522820/) - Rolling Stone
+- [Neues Album von Bruno Mars: Sänger legt Rekord-Comeback hin](https://www.stern.de/kultur/neues-album-von-bruno-mars--saenger-legt-rekord-comeback-hin-37176722.html) - STERN.de
+- [How Bruno Mars Debuted One Of Music’s Most Creative Comeback Rollouts](https://www.forbes.com/sites/oliviashalhoup/2026/02/27/how-bruno-mars-debuted-one-of-musics-most-creative-comeback-rollouts/) - Forbes
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars Is the Love Doctor With New Album ‘The Romantic’: Stream It Now - Billboard](https://www.billboard.com/music/rb-hip-hop/bruno-mars-the-romantic-stream-1236187630/) - Billboard
+- [Bruno Mars Unveils ‘The Romantic’ Tracklist After Decade Between LPs - Billboard](https://www.billboard.com/music/pop/bruno-mars-the-romantic-tracklist-1236184390/) - Billboard
+- [Bruno Mars to Play Love Doctor & Debut New Songs in Live ‘Romantic Radio’ Broadcast Ahead of New Album - Billboard](https://www.billboard.com/music/pop/bruno-mars-romantic-radio-broadcast-iheartradio-tiktok-1236182592/) - Billboard
+- [Bruno Mars’ ‘The Romantic’: All 9 Tracks Ranked - Billboard](https://www.billboard.com/lists/bruno-mars-the-romantic-tracks-ranked/) - Billboard
+- [Is ‘The Romantic’ Bruno Mars’ Most Latin Album Yet? - Rolling Stone](https://www.rollingstone.com/music/music-latin/bruno-mars-the-romantic-latin-music-influences-1235522820/) - Rollingstone
+- [BLACKPINK Collaborate with Dr. Luke on Two Songs from New Mini Album DEADLINE](https://consequence.net/2026/02/blackpink-dr-luke-deadline-controversy/) - Consequence.net
+- [BLACKPINK Unveil New Mini Album DEADLINE: Stream](https://consequence.net/2026/02/blackpink-mini-album-deadline-stream/) - Consequence.net
+- [BLACKPINK Is Returning With Its 3rd Mini Album — and It’s Coming Soon! - Billboard](https://www.billboard.com/music/music-news/blackpink-new-album-deadline-release-date-1236154808/) - Billboard
+- [BLACKPINK Is Returning With Its 3rd Mini Album — and It’s Coming Soon! - Billboard Canada](https://ca.billboard.com/music/pop/blackpink-new-album-2026) - Billboard
+- [Music Review: K-pop group Blackpink's 'Deadline' is a fantastic, if too short, return to form - Greenwich Time](https://www.greenwichtime.com/entertainment/article/music-review-k-pop-group-blackpink-s-deadline-21945601.php) - Greenwichtime
+- [BLACKPINK Lights Up South Korea’s Most-Visited Museum in Pink: Photos From the ‘DEADLINE’ Listening Session - Billboard](https://www.billboard.com/music/pop/blackpink-south-korea-museum-deadline-listening-session-1236187997/) - Billboard
+- [BLACKPINK, Bruno Mars, RAYE & More: Which Is Your Favorite New Music Release This Week? Vote! - Billboard](https://www.billboard.com/music/music-news/blackpink-bruno-mars-best-new-music-release-this-week-poll-1236188487/) - Billboard
+- [11 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/news/new-albums-you-should-listen-to-now-mitski-bill-callahan-gorillaz-and-more/) - Pitchfork
+- [Rihanna Posts Documentary Proof She Is Recording Music](http://www.rollingstone.com/music/music-news/rihanna-recording-new-album-video-recording-studio-1235522707/) - Rolling Stone
+- [Fenty Fake-Out Of For RIH-l? Rihanna RIHignites R9 Rumors After She’s Spotted Spending Time In The Studio](https://bossip.com/4470248/rihanna-teases-music-night-in-the-life/) - Bossip
+- [Rihanna Teases New Music as She Shares Video from Late-Night Studio Session!](https://www.justjared.com/2026/02/27/rihanna-teases-new-music-as-she-shares-video-from-late-night-studio-session/) - Just Jared
+- [Is Rihanna controlling the timeline?](https://www.laineygossip.com/could-rihanna-bump-us-onto-brighter-timeline-by-releasing-new-music/) - LaineyGossip
+- [Rihanna Raising Hopes Again With Day-In-The-Life Video Montage Featuring Recording Studio Session - Billboard](https://www.billboard.com/music/rb-hip-hop/rihanna-day-in-life-video-montage-recording-studio-session-1236188229/) - Billboard
+- [Rihanna Suggests She’s Working On New Music, But Her Billion-Dollar Fortune Was Built Elsewhere - Forbes](https://www.forbes.com/sites/martinadilicosa/2026/02/27/rihanna-prompts-new-music-rumors-but-her-fortune-is-outside-the-studio/) - Forbes
+- [FROZEN SOUL Emerge With New Album No Place Of Warmth, New Single Drops Feat. MY CHEMICAL ROMANCE's GERARD WAY](https://metalinjection.net/video/frozen-soul-emerge-with-new-album-no-place-of-warmth-new-single-drops-feat-my-chemical-romances-gerard-way) - Metal Injection.net
+- [Frozen Soul Collab with My Chemical Romance’s Gerard Way for “No Place of Warmth”](https://www.metalsucks.net/2026/02/27/frozen-soul-collab-with-my-chemical-romances-gerard-way-for-no-place-of-warmth/) - MetalSucks
+- [Ed Sheeran caught the train to Melbourne to protect the climate. But what about his thousands of fans?](https://theconversation.com/ed-sheeran-caught-the-train-to-melbourne-to-protect-the-climate-but-what-about-his-thousands-of-fans-276971) - The Conversation Africa
+- [Jason Aldean Dominates iTunes With Multiple New Bestsellers](https://www.forbes.com/sites/hughmcintyre/2026/02/27/jason-aldean-dominates-itunes-with-multiple-new-bestsellers/) - Forbes
+- [Deutscher ESC-Vorentscheid 2026: Die Musikerinnen und Musiker im Check](https://www.stern.de/kultur/deutscher-esc-vorentscheid-2026--die-musikerinnen-und-musiker-im-check-37178178.html) - STERN.de
+- [Lana Del Rey’s New Song Immediately Becomes A Top 10 Bestselling Smash](https://www.forbes.com/sites/hughmcintyre/2026/02/27/lana-del-reys-new-song-immediately-becomes-a-top-10-bestselling-smash/) - Forbes
+- [U2, Lana Del Rey: 9 Songs We’re Talking About This Week - The New York Times](https://www.nytimes.com/2026/02/21/arts/music/u2-lana-del-rey-new-songs.html) - Nytimes
+- [Gorillaz Climb Higher: The Mountain, The Moon Cave and The Sad God](https://www.kuriositas.com/2026/02/gorillaz-climb-higher-mountain-moon.html) - Kuriositas.com
+- [Watch: Gorillaz's 'The Mountain, The Moon Cave, The Sad God' Short](https://www.firstshowing.net/2026/watch-gorillazs-the-mountain-the-moon-cave-the-sad-god-short/) - First Showing
+- [On The Mountain, Gorillaz Turn Grief and Global Collaboration into Their Most Ambitious Album Yet - Consequence of Sound](https://consequence.net/cover/gorillaz-the-mountain-interview/) - Consequence
+- [This Gorillaz Short Film Is The Kind Of Art AI Simply Can't Make - GameSpot](https://www.gamespot.com/articles/this-gorillaz-short-film-is-the-kind-of-art-ai-simply-cant-make/1100-6538483/) - Gamespot
+- [Buddy Guy: Tiny Desk Concert](https://www.npr.org/2026/02/27/g-s1-110938/buddy-guy-tiny-desk-concert) - NPR
+- [90 Year Old Blues Legend Buddy Guy Plays a NPR Tiny Desk Concert With Miles Caton of ‘Sinners’](https://laughingsquid.com/buddy-guy-tiny-desk-concert/) - Laughingsquid.com
+- [Buddy Guy Makes NPR Tiny Desk Debut - Block Club Chicago](https://blockclubchicago.org/2026/02/27/buddy-guy-makes-npr-tiny-desk-debut/) - Blockclubchicago
+- [Buddy Guy: Tiny Desk Concert - Iowa Public Radio](https://www.iowapublicradio.org/2026-02-27/buddy-guy-tiny-desk-concert) - Iowapublicradio
+- [Radiohead Decries ‘Let Down’ Use In ICE Video](https://www.spin.com/2026/02/radiohead-let-down-ice-video/) - SPIN
+- [Radiohead To ICE: “Go F*ck Yourselves”](http://deadline.com/2026/02/radiohead-ice-immigration-customs-enforcement-1236738900/) - Deadline
+- [Radiohead tells Trump's ICE to take down a video using their song](https://www.nbcnews.com/pop-culture/pop-culture-news/radiohead-tells-trumps-ice-take-video-using-song-rcna261010) - NBC News
+- [Radiohead Tells ICE to ‘Go F–k Yourselves’ After Using Song in Social Media Video: ‘It Ain’t Funny’](https://www.thewrap.com/media-platforms/politics/radiohead-ice-video-response/) - TheWrap
+- [Radiohead Slams ‘Amateurs’ Behind ICE’s Social Media for Using Band’s Song in Video: ‘Go F–k Yourselves’ - Billboard](https://www.billboard.com/music/music-news/radiohead-slams-ice-using-song-let-down-social-media-video-1236188571/) - Billboard
+- [Rock band Radiohead urges US ICE to take down video using its song - Reuters](https://www.reuters.com/world/us/rock-band-radiohead-urges-us-ice-take-down-video-using-its-song-2026-02-28/) - Reuters
+- [Radiohead Tells Trump’s Homeland Security to ‘Go F— Yourselves’ After Song Used in ICE Video - Variety](https://variety.com/2026/music/news/radiohead-song-ice-video-responds-dhs-1236674808/) - Variety
+- [Radiohead Tells Trump’s Homeland Security to ‘Go F— Yourselves’ After Song Used in ICE Video - Variety](https://variety.com/2026/politics/news/radiohead-song-ice-video-responds-dhs-1236674808/) - Variety
