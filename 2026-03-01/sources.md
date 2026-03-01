@@ -1,0 +1,45 @@
+# Sources for 2026-03-01 News Episode 
+- [The BRIT Awards 2026 Viewing Guide: When/Where to Watch & Much More!](https://bleedingcool.com/tv/the-brit-awards-2026-viewing-guide-when-where-to-watch-much-more/) - Bleeding Cool News
+- [BRIT Awards 2026: Full Winners List](http://www.hollywoodreporter.com/music/music-news/brit-awards-2026-olivia-dean-rules-the-night-with-artist-and-album-of-the-year-wins-1236518297/) - Hollywood Reporter
+- [Ozzy Osbourne Honored with Lifetime Achievement Award and All-Star Tribute at 2026 BRIT Awards: Watch](https://consequence.net/2026/02/ozzy-osbourne-lifetime-achievement-award-all-star-tribute-2026-brit-awards/) - Consequence.net
+- [Brit Awards 2026: Nominations in full with Olivia Dean, Lily Allen and Sam Fender vying for top prizes](https://www.the-independent.com/arts-entertainment/music/news/brit-awards-nominations-2026-full-list-b2929444.html) - The-independent.com
+- [RAYE Celebrates Her New Era with “Where Is My Husband!” and “Nightingale Lane” at the 2026 BRIT Awards: Watch](https://consequence.net/2026/02/raye-2026-brit-awards/) - Consequence.net
+- [BRIT Awards 2026 Winners: Geese, Rosalía, Olivia Dean and More](https://pitchfork.com/news/brit-awards-2026-winners-geese-rosalia-olivia-dean-and-more/) - Pitchfork
+- [Brit Awards 2026: Winners in full – updated live as Olivia Dean and Sam Fender take first prize of the night](https://www.the-independent.com/arts-entertainment/music/news/brit-awards-2026-winners-full-list-live-b2929524.html) - The-independent.com
+- [Olivia Dean dominates Brit Awards, winning album of the year](https://news.sky.com/story/brits-2026-olivia-dean-dominates-awards-winning-album-of-the-year-13513671) - Sky.com
+- [Lola Young & Olivia Dean Lead Nominees for 2026 BRIT Awards: Full List - Billboard](https://www.billboard.com/music/awards/2026-brit-awards-nominees-list-1236157503/) - Billboard
+- [All the winners at the 2026 Brit Awards - BBC](https://www.bbc.com/news/articles/cpw0vge4lleo) - Bbc
+- [Brit Awards 2026: The real winners and losers - BBC](https://www.bbc.com/news/articles/c79572zx234o) - Bbc
+- [Here Are All the Performers for the 2026 BRIT Awards - Billboard](https://www.billboard.com/music/awards/2026-brit-awards-performers-list-1236186463/) - Billboard
+- [BRIT Awards 2026: Snubs & Surprises - Billboard](https://www.billboard.com/lists/brits-2026-snubs-and-surprises/) - Billboard
+- [Micky Dolenz Pays Tribute to Neil Sedaka: A Rare Songwriter ‘Who Could Do It All’](http://www.rollingstone.com/music/music-news/neil-sedaka-tributes-micky-dolenz-1235523246/) - Rolling Stone
+- [Breaking Up is Hard to Do: Singer-Songwriter, and Legendary Artist Neil Sedaka, Dead at 86](https://redstate.com/jenniferoo/2026/02/28/breaking-up-is-hard-to-do-songwriter-singer-and-showman-neil-sedaka-dead-at-86-n2199660) - Redstate.com
+- [Neil Sedaka, singer-songwriter of 1960-70s fame, dies at 86](https://www.dw.com/en/neil-sedaka-singer-songwriter-of-1960-70s-fame-dies-at-86/a-76160062) - DW (English)
+- [Neil Sedaka, the singer-songwriter behind dozens of hits of the 1960s and ‘70s, dies at age 86 - CNN](https://www.cnn.com/2026/02/27/entertainment/neil-sedaka-death) - Cnn
+- [Neil Sedaka, the singer-songwriter behind dozens of hits of the 1960s and '70s, dies at age 86 - AP News](https://apnews.com/article/neil-sedaka-dead-c1002e2c903a458380d2078a47ab75b5) - Apnews
+- [Neil Sedaka, The Singer-Songwriter Behind Dozens Of Hits Of The ‘60s And '70s, Dies - HuffPost](https://www.huffpost.com/entry/neil-sedaka-singer-songwriter-60s-70s-dies_n_69a21ae6e4b03f5cc1b40750?origin=home-latest-news-unit) - Huffpost
+- [Neil Sedaka, songwriter and hitmaker over multiple generations, dies at 86 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-02-27/neil-sedaka-songwriter-hitmaker-dies-86) - Latimes
+- [Neil Sedaka, ‘Breaking Up Is Hard to Do’ Singer and Songwriter, Dies at 86 - Newsweek](https://www.newsweek.com/neil-sedaka-breaking-up-is-hard-to-do-dies-86-11596154) - Newsweek
+- [From Tennessee to today: Why we still love Arrested Development](https://www.abc.net.au/news/2026-03-01/arrested-development-speech-interview-womadelaide-hip-hop/106358486) - ABC News (AU)
+- [JONAS BJÖRLER On The Future Of AT THE GATES: "We Are Not Sure About Anything Right Now"](https://metalinjection.net/news/jonas-bjorler-on-the-future-of-at-the-gates-we-are-not-sure-about-anything-right-now) - Metal Injection.net
+- [Duran Duran To Re-Release ‘The Wedding Album’ And ‘Thank You’ As 2-LP Sets](https://www.forbes.com/sites/davidchiu/2026/02/28/duran-duran-to-re-release-the-wedding-album-and-thank-you-as-2-lp-sets/) - Forbes
+- [Leigh-Anne Names Manon and Normani as Dream Collaborators](http://www.billboard.com/music/music-news/leigh-anne-manon-normani-dream-collaborators-1236188968/) - Billboard
+- [Leigh-Anne Says She Wants to Collaborate With Manon and Normani - Billboard](https://www.billboard.com/music/music-news/leigh-anne-manon-normani-dream-collaborators-1236188968/) - Billboard
+- [All the Celebrities Who Have Supported Manon Following KATSEYE Hiatus Announcement - Billboard](https://www.billboard.com/lists/manon-katseye-hiatus-announcement-celebrity-support/) - Billboard
+- [Everything That’s Happened Since KATSEYE Announced Manon Bannerman’s Hiatus - Forbes](https://www.forbes.com/sites/hannahabraham/2026/02/24/everything-thats-happened-since-katseye-announced-manon-bannermans-hiatus/) - Forbes
+- [Manon’s Hiatus From KATSEYE: A Complete Timeline - Teen Vogue](https://www.teenvogue.com/story/manon-hiatus-katseye-timeline) - Teenvogue
+- [The Real Guess Who Finally Have Their Name Back and Are Hitting the Road](http://www.rollingstone.com/music/music-features/the-guess-who-have-name-back-1235522329/) - Rolling Stone
+- [Bob Dylan Positively 4th Street Meaning: The Original Diss Track Explained](https://screenrant.com/bob-dylan-positively-4th-street-diss-track-explained/) - Screen Rant
+- [RedOctane unveils Stage Tour, a Guitar Hero spiritual successor for Fall 2026](https://www.notebookcheck.net/RedOctane-unveils-Stage-Tour-a-Guitar-Hero-spiritual-successor-for-Fall-2026.1237959.0.html) - Notebookcheck.net
+- [Guitar Hero Studio RedOctane Is Back with Stage Tour, a New Plastic Instrument Rhythm Game - Push Square](https://www.pushsquare.com/news/2026/02/guitar-hero-studio-redoctane-is-back-with-stage-tour-a-new-plastic-instrument-rhythm-game) - Pushsquare
+- [Original Guitar Hero Devs Reveal New Rock Band -Like Game - Kotaku](https://kotaku.com/original-guitar-hero-devs-reveal-new-rock-band-like-game-2000674127) - Kotaku
+- [RedOctane Games announces rhythm action game Stage Tour for consoles, PC - Gematsu](https://www.gematsu.com/2026/02/redoctane-games-announces-rhythm-action-game-stage-tour-for-consoles-pc) - Gematsu
+- [Red Octane Games Unveils ‘Rock Band’/’Guitar Hero’ Successor, ‘Stage Tour’ - Newsweek](https://www.newsweek.com/entertainment/red-octane-games-unveils-rock-band-guitar-hero-successor-stage-tour-11589405) - Newsweek
+- [Sanremo 2026, Carlo Conti: 'Stefano De Martino conduttore e direttore artistico di Sanremo 2027' - DIRETTA](https://www.ansa.it/sito/notizie/cultura/musica/speciali/sanremo_2026/2026/02/28/sanremo-2026-carlo-conti-stefano-de-martino-conduttore-e-direttore-artistico-di-sanremo_94420b92-197c-46ed-a778-856bd5ab4d4e.html) - ANSA.it
+- [Musik: Wo alles begann: Carpendale 60 Jahre auf der Bühne](https://www.zeit.de/news/2026-02/28/wo-alles-begann-carpendale-60-jahre-auf-der-buehne) - Die Zeit
+- [Musik: Wo alles begann: Carpendale 60 Jahre auf der Bühne](https://www.stern.de/gesellschaft/regional/nordrhein-westfalen/musik--wo-alles-begann--carpendale-60-jahre-auf-der-buehne-37178548.html) - STERN.de
+- [Musik: Wo alles begann: Carpendale 60 Jahre auf der Bühne](https://www.tagesspiegel.de/gesellschaft/musik-wo-alles-begann-carpendale-60-jahre-auf-der-buhne-15303085.html) - Der Tagesspiegel
+- [Soulful Supernova Durand Bernar Says His Price Went Up After His Grammy, GLAAD-ly Reflects On ‘A Night Of Pride’ [Exclusive]](https://bossip.com/4449129/durand-bernar-glaad-grammys/) - Bossip
+- [Durand Bernarr Talks Grammy Win, Bloom Deluxe & Viral Run And Speech - Billboard](https://www.billboard.com/music/features/durand-bernarr-talks-grammy-win-viral-speech-bloom-deluxe-1236185760/) - Billboard
+- [HUNTER YOUNG of MOODRING: "When I Get That Low, I'm Like, ‘Oh F*ck, What If I Don't Come Out Of This?’ Because Some People Don't.”](https://metalinjection.net/on-the-way-up/on-the-way-up-moodring-when-i-get-that-low-im-like-oh-fck-what-if-i-dont-come-out-of-this-because-some-people-dont) - Metal Injection.net
+- [Moodring Post Full 'death fetish' Album Teaser, Tease Song Snippets](https://numetalagenda.com/moodring-post-full-death-fetish-album-teaser-tease-song-snippets/) - Numetalagenda
