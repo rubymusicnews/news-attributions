@@ -1,0 +1,32 @@
+# Sources for 2026-03-02 News Episode 
+- [Delta Goodrem to represent Australia at 2026 Eurovision](https://www.abc.net.au/news/2026-03-02/delta-goodrem-to-represent-australia-at-2026-eurovision/106403962) - ABC News (AU)
+- [Delta Goodrem to Represent Australia at Eurovision 2026 in Vienna - Billboard](https://www.billboard.com/culture/tv-film/delta-goodrem-australia-eurovision-2026-1236189497/) - Billboard
+- [Music Icon Delta Goodrem to Represent Australia at Eurovision Song Contest - Variety Australia](https://au.variety.com/2026/music/news/delta-goodrem-to-represent-australia-at-eurovision-song-contest-33694/) - Variety
+- [A huge pop star has been announced as this year's Australia entrant for the Eurovision Song Contest and the musician has said she's convinced she is going to win. - facebook.com](https://www.facebook.com/SkyNewsAustralia/posts/a-huge-pop-star-has-been-announced-as-this-years-australia-entrant-for-the-eurov/1364584095699185/) - Facebook
+- [BLACKPINK’s Rose becomes first K-Pop idol to win Brit Award](https://economictimes.indiatimes.com/magazines/panache/blackpinks-rose-becomes-first-k-pop-idol-to-win-brit-award/articleshow/128913456.cms) - The Times of India
+- [Watch: BLACKPINK’s Rosé Becomes 1st K-Pop Artist Ever To Win A BRIT Award](http://www.soompi.com/article/1822093wpp/watch-blackpinks-rose-becomes-1st-k-pop-artist-ever-to-win-a-brit-award) - soompi
+- [Rosé Makes History For K-Pop With BRIT Awards 2026 Win for 'APT.' - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/03/01/ros-makes-history-for-k-pop-with-brit-awards-2026-win/) - Forbes
+- [Rosé Shows Off Saint Laurent’s Slingback Pumps at the Brit Awards 2026 - WWD](https://wwd.com/footwear-news/shoe-trends/rose-shows-saint-laurent-slingback-pumps-brit-awards-2026-1238639540/) - Wwd
+- [BRIT Awards 2026: Snubs & Surprises - Billboard](https://www.billboard.com/lists/brits-2026-snubs-and-surprises/) - Billboard
+- [Jean-Michel Jarre to Make Ibiza Debut at Amnesia This Summer](http://www.billboard.com/music/concerts/jean-michel-jarre-ibiza-debut-amnesia-this-summer-1236189327/) - Billboard
+- [Jean-Michel Jarre to Make Ibiza Debut at Amnesia This Summer - Billboard](https://www.billboard.com/music/concerts/jean-michel-jarre-ibiza-debut-amnesia-this-summer-1236189327/) - Billboard
+- [Finland picks "Flamethrower" as Eurovision entry amid anti-Israel protests](https://yle.fi/a/74-20212974) - YLE News
+- [Dua Lipa Delivers Show-Stopping Surprise Medley at 2026 Brit Awards](https://www.justjared.com/2026/02/28/dua-lipa-delivers-show-stopping-surprise-medley-at-2026-brit-awards/) - Just Jared
+- [Dua Lipa Dazzles on Stage at the Brit Awards 2026 in Glittering Knee-High Boots - WWD](https://wwd.com/footwear-news/shoe-trends/dua-lipa-glittering-boots-brit-awards-2026-1238639107/) - Wwd
+- [Quote of the day by Grammy-winner Adele: ‘I have insecurities, of course, but I don't hang out with anyone who points them out to me’ - Someone Like You singer’s thoughts on beauty and art](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-by-grammy-winner-adele-i-have-insecurities-of-course-but-i-dont-hang-out-with-anyone-who-points-them-out-to-me-someone-like-you-singers-thoughts-on-beauty-and-art/articleshow/128904607.cms) - The Times of India
+- [The Split Inside Body Positivity Boils Down To This One Thing - Forbes](https://www.forbes.com/sites/virgietovar/2026/02/22/the-split-inside-body-positivity-boils-down-to-this-one-thing/) - Forbes
+- [VA – International Pop Overthrow Vol. 26 (2025)](https://exystence.net/blog/2026/03/01/va-international-pop-overthrow-vol-26-2025/) - Exystence.net
+- [Metalite Signs With Perception Music; Releases New Single "Our Time Has Come"](http://www.metalunderground.com/news/details.cfm?newsid=160929) - Metalunderground.com
+- [Bollywood acts as discovery gateway for international music artists in India](https://www.livemint.com/industry/bollywood-discovery-gateway-global-music-artists-in-india-akon-songs-actors-cinema-11772349961775.html) - Livemint
+- [Olivia Dean wins big at BRITs as ITV censors remarks](https://www.rte.ie/entertainment/2026/0301/1561028-olivia-dean-wins-big-at-brits-as-itv-censors-remarks/) - RTE
+- [CMAT defends artists speaking out as ITV censors live remarks at the BRIT Awards](https://www.thejournal.ie/cmat-brit-awards-censorship-ceremony-6971068-Mar2026/) - TheJournal.ie
+- [ITV Censors Political Statements At Brit Awards Including “Free Palestine” & “F*** ICE” - Deadline](https://deadline.com/2026/03/itv-censors-political-statements-brit-awards-free-palestine-1236740312/) - Deadline
+- [Brit Awards Host Jack Whitehall Takes Jab At BAFTAs Over Racial Slur Incident: "We've Got The Best In The Business On The Bleep Button" - Deadline](https://deadline.com/2026/02/brit-awards-jack-whitehall-baftas-racial-slur-incident-1236739701/) - Deadline
+- ["There's no tanks, fantastical swordfights or bloody executions, just sweat, songs and almighty sing-alongs: rock'n'roll at its very best." Foo Fighters return to their punk roots in a very sweaty Manchester club](https://www.loudersound.com/bands-artists/live-performances/foo-fighters-live-review-manchester-2026) - Louder
+- [MARK MORTON Names The Swedish Metal Albums That Influenced LAMB OF GOD's Upcoming Record](https://metalinjection.net/news/mark-morton-names-the-swedish-metal-albums-that-influenced-lamb-of-gods-upcoming-record) - Metal Injection.net
+- [Lamb Of God Shares New Visualizer Video "Blunt Force Blues" From New Album "Into Oblivion"](http://www.metalunderground.com/news/details.cfm?newsid=160928) - Metalunderground.com
+- [Mumford & Sons Surprise With Hozier, Dessner On ‘SNL’](https://www.spin.com/2026/03/mumford-and-sons-snl/) - SPIN
+- [Mumford and Sons' frontman talks about the band's new album - NPR](https://www.npr.org/2026/02/18/nx-s1-5591397/mumford-and-sons-frontman-talks-about-the-bands-new-album) - Npr
+- ['SNL' recap: Connor Storrie debuts as host, Hudson Williams cameos - Entertainment Weekly](https://ew.com/snl-recap-season-51-connor-storrie-11916036) - Ew
+- [Mumford & Sons Bring Out Hozier for Surprise ‘Rubber Band Man’ Performance on ‘SNL’ - Billboard](https://www.billboard.com/culture/tv-film/mumford-sons-hozier-rubber-band-man-snl-1236189339/) - Billboard
+- [Remember ‘sad girl rock’? Snail Mail, one of its key musicians, doesn’t think it ever existed](https://www.the-independent.com/arts-entertainment/music/features/snail-mail-interview-lindsey-jordan-ricochet-new-album-b2927252.html) - The-independent.com
