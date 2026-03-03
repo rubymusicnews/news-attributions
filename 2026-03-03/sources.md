@@ -1,0 +1,34 @@
+# Sources for 2026-03-03 News Episode 
+- [Harry Styles Is Bringing ‘Kiss All the Time. Disco, Occasionally’ One Night Only Concert to Netflix](http://www.rollingstone.com/music/music-news/harry-styles-kiss-all-the-time-concert-netflix-1235523738/) - Rolling Stone
+- [Video: "Harry Styles. One Night in Manchester." - Announcement - Netflix](http://www.thefutoncritic.com/video/2026/03/02/video-harry-styles-one-night-in-manchester-announcement-netflix-625311/20260302netflix04/) - Thefutoncritic.com
+- [Harry Styles To Perform New Music In Netflix Live Special ‘Harry Styles. One Night In Manchester’](https://decider.com/2026/03/02/harry-styles-netflix-live-special-harry-styles-one-night-in-manchester/) - Decider
+- [Harry Styles Bringing One Night Only Concert to Netflix - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/harry-styles-one-night-only-concert-netflix-1236519598/) - Hollywoodreporter
+- [Harry Styles Concert Coming To Netflix - Deadline](https://deadline.com/2026/03/harry-styles-live-concert-coming-to-netflix-1236741082/) - Deadline
+- [Harry Styles Is Making Sure All of His Fans Can Watch the Manchester Album Release Show: Here’s How - Billboard](https://www.billboard.com/music/music-news/harry-styles-manchester-album-release-show-how-to-watch-1236189650/) - Billboard
+- [Sex Pistols and Frank Carter Reschedule ‘Never Mind the Bollocks’ Tour](http://www.rollingstone.com/music/music-news/sex-pistols-frank-carter-rescheduled-2026-tour-dates-1235523722/) - Rolling Stone
+- [Sex Pistols Featuring Frank Carter Announce 2026 North American Tour](https://consequence.net/2026/03/sex-pistols-featuring-frank-carter-2026-north-american-tour/) - Consequence.net
+- [THE SEX PISTOLS FEAT. FRANK CARTER To Celebrate '50 Years of Punk' On Tour Starting September](https://metalinjection.net/tour-dates/the-sex-pistols-feat-frank-carter-reschedule-and-add-dates-to-2026-tour) - Metal Injection.net
+- [Sex Pistols and Frank Carter Announce Rescheduled North American Tour Dates for 2026](https://exclaim.ca/music/article/sex-pistols-and-frank-carter-announce-rescheduled-north-american-tour-dates-for-2026) - Exclaim!
+- [Where to find BTS tickets: Buy seats for the sold-out 2026 tour](https://www.businessinsider.com/guides/tickets/where-to-find-bts-tickets-concert-tour) - Business Insider
+- [How to Get Sold-Out BTS World Tour Tickets - The Hollywood Reporter](https://www.hollywoodreporter.com/lifestyle/shopping/buy-bts-concert-tickets-2026-2027-arirang-world-tour-deals-1236513025/) - Hollywoodreporter
+- [BTS ‘ARIRANG’ Goyang And Tokyo Concerts To Stream Live In Theaters - Forbes](https://www.forbes.com/sites/laurasirikul/2026/02/25/bts-arirang-goyang-and-tokyo-concerts-to-stream-live-in-theaters/) - Forbes
+- [Didn't Get Tickets to BTS' 2026 Arirang Tour? Here's How You Can Still See the Boy Group at a Theater Near You - Billboard](https://www.billboard.com/culture/product-recommendations/bts-arirang-world-tour-live-viewing-tickets-shop-online-1236185846/) - Billboard
+- [The Brains Behind Carnegie Hall’s ‘Best Of’ Series Has His Sights Set on Billy Joel](http://www.rollingstone.com/music/music-features/billy-joel-best-of-tribute-show-carnegie-hall-1235522853/) - Rolling Stone
+- [Top UK music acts awarded £1.4 million funding to raise profile](https://www.gov.uk/government/news/topuk-music-acts-awarded14millionfunding-toraise-profile) - Www.gov.uk
+- [Clout-Chasing DJs Are Faking Co-Signs by Dubbing Over Crowd Videos. Will Labels Bite?](http://www.rollingstone.com/music/music-features/edm-djs-deepfake-cosigns-crowd-video-deadmau5-chainsmokers-1235523636/) - Rolling Stone
+- [Warner Bros.’ Cease-and-Desist Says TikTok Owner Made “Deliberate Design Choice” to Rip Off Its IP - The Hollywood Reporter](https://www.hollywoodreporter.com/business/business-news/warner-bros-cease-and-desist-says-tiktok-owner-ip-1236508224/) - Hollywoodreporter
+- [Tiwa Savage is taking Berklee teaching to musicians in Nigeria](http://musically.com/2026/03/02/tiwa-savage-is-taking-berklee-teaching-to-musicians-in-nigeria/) - Music Ally
+- [Tiwa Savage to train 100 emerging creators in Nigeria - Vanguard Allure](https://allure.vanguardngr.com/2026/02/tiwa-savage-8/) - Vanguardngr
+- [Justice join Angèle for rare collaboration on new single, “What You Want”](https://www.thelineofbestfit.com/news/justice-angele-new-single-what-you-want) - Thelineofbestfit.com
+- [Friday Music Guide: New Music From Bruno Mars, BLACKPINK, RAYE & More - Billboard](https://www.billboard.com/music/pop/friday-music-guide-bruno-mars-blackpink-raye-1236188046/) - Billboard
+- [Friday Dance Music Guide: The Week’s Best New Tracks From Angèle & Justice, Jayda G & More - Billboard](https://www.billboard.com/lists/best-new-dance-songs-justice-angele-john-summit/) - Billboard
+- [Nine Inch Nails’ Trent Reznor: “I Don’t Know If We’re Gonna Be Touring Anymore After This”](https://consequence.net/2026/03/nine-inch-nails-trent-reznor-dont-know-touring-anymore/) - Consequence.net
+- [Nine Inch Nails Surprise Releases ‘Tron: Ares’ Companion Soundtrack - Billboard](https://www.billboard.com/music/music-news/nine-inch-nails-tron-ares-divergence-companion-album-1236188448/) - Billboard
+- [Nine Inch Nails Live Review: Trent Reznor Brings Film Music Into Show - Variety](https://variety.com/2026/music/reviews/nine-inch-nails-live-review-trent-reznor-film-music-1236664560/) - Variety
+- [Zlatan Ibile Wants to Be Your Symbol of Hope](https://www.spin.com/2026/03/zlatan-ibile-wants-to-be-your-symbol-of-hope/) - SPIN
+- [How Fab 5 Freddy Introduced Debbie Harry and Chris Stein of Blondie to Rap](https://www.vanityfair.com/culture/story/fab-5-freddy-debbie-harry-chris-stein-blondie) - Vanity Fair
+- [People Get in Way More Fatal Car Crashes on Days Hot New Music Drops...](http://www.vice.com/en/article/people-get-in-way-more-fatal-car-crashes-on-days-hot-new-music-drops/) - Vice News
+- [Case Oats Plot International Tour](https://exclaim.ca/music/article/case-oats-plot-international-tour) - Exclaim!
+- [Sturgill Simpson Drops New Album Early, and You Actually Can Stream It](http://www.rollingstone.com/music/music-country/sturgill-simpson-new-album-mutiny-after-midnight-early-1235523669/) - Rolling Stone
+- [Did Sturgill Simpson upload his new album early on YouTube? #entertainment](https://alltoc.com/entertainment/did-sturgill-simpson-upload-his-new-album-early-on-youtube) - Alltoc.com
+- [Johnny Blue Skies & The Dark Clouds Surprise-Release New Album 'Mutiny After Midnight' - stereogum.com](https://stereogum.com/2490818/johnny-blue-skies-the-dark-clouds-surprise-release-new-album-mutiny-after-midnight/music) - Stereogum
