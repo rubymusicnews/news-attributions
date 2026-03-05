@@ -1,0 +1,43 @@
+# Sources for 2026-03-05 News Episode 
+- [Harry Styles zoekt naar gelukzalige ontlading op de dansvloer](https://www.nrc.nl/nieuws/2026/03/04/harry-styles-zoekt-naar-gelukzalige-ontlading-op-de-dansvloer-a4921943) - Www.nrc.nl
+- [‘Compellingly knotty’ or ‘strange and shallow’: Critics divided over Harry Styles’ new album](https://www.the-independent.com/arts-entertainment/music/news/harry-styles-album-reviews-b2931993.html) - The-independent.com
+- [Harry Styles – ‘Kiss All The Time. Disco, Occasionally’ review: pop superstar lets the light in - NME](https://www.nme.com/reviews/album/harry-styles-kiss-all-the-time-disco-occasionally-review-3932624) - Nme
+- [Harry Styles, 'Kiss All The Time. Disco, Occasionally.' Album Review - AV Club](https://www.avclub.com/harry-styles-kiss-all-the-time-disco-occasionally-album-review) - Avclub
+- [On his new album, Harry Styles finally sounds like himself - review - The Independent](https://www.independent.co.uk/arts-entertainment/music/reviews/harry-styles-review-kiss-all-the-time-lyrics-b2930954.html) - Independent
+- [Paul McCartney: Man on the Run Review – Wings finally gets its due?](https://www.joblo.com/paul-mccartney-man-on-the-run-review-wings-finally-gets-its-due/) - JoBlo.com
+- [Paul McCartney: Man on the Run Review – Wings finally gets its due?](https://www.joblo.com/paul-mccartney-man-on-the-run-review/) - JoBlo.com
+- [A new film follows Paul McCartney's 2nd act after The Beatles' breakup - NPR](https://www.npr.org/2026/02/27/nx-s1-5726365/man-on-the-run-paul-mccartney) - Npr
+- [Paul McCartney's decade of transformation: From Beatles breakup to John Lennon's murder - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-04/paul-mccartneys-decade-of-transformation-from-beatles-breakup-to-john-lennons-murder) - Iowapublicradio
+- [Paul McCartney's decade of transformation: From Beatles breakup to John Lennon's murder - NPR](https://www.npr.org/2026/03/04/nx-s1-5734037/paul-mccartney-beatles-documentary-morgan-neville) - Npr
+- [Paul McCartney: Man on the Run review: Prime doc lets Beatle grieve - Roger Ebert](https://www.rogerebert.com/reviews/paul-mccartney-man-on-the-run-prime-documentary-film-review-2026) - Rogerebert
+- [‘Man on the Run’ Review: An Exuberant and Deftly Crafted Portrait of Paul McCartney’s Post-Beatles Second Act - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-reviews/man-on-the-run-review-paul-mccartney-morgan-neville-1236508158/) - Hollywoodreporter
+- [Rima Yoon & Rigend Film Conjure a Surreal Fantasy for BLACKPINK “Go” Music Video](https://www.stashmedia.tv/rima-yoon-rigend-film-conjure-surreal-fantasy-with-blackpink-go-music-video/) - Stashmedia.tv
+- [Harry Styles Reflects on Liam Payne’s Death: ‘It’s Difficult to Lose a Friend Who Is So Like You’](http://www.rollingstone.com/music/music-news/harry-styles-reflects-death-one-direction-liam-payne-1235524747/) - Rolling Stone
+- [Harry Styles ‘Really Struggled’ With ‘Strange’ Pressure to Publicly Share His Grief Over Liam Payne - Billboard](https://www.billboard.com/music/music-news/harry-styles-struggled-share-grief-liam-payne-death-1236191774/) - Billboard
+- [Harry Styles says he still mourns Liam Payne and 'really struggled' with his friend's death - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/harry-styles-says-still-mourns-liam-payne-really-struggled-friends-dea-rcna261756) - Nbcnews
+- [Harry Styles Opens Up About How Liam Payne’s Death Affected Him: ‘Live Your Life to the Fullest’ - Variety](https://variety.com/2026/music/news/harry-styles-opens-up-liam-payne-death-affected-him-1236679448/) - Variety
+- [TRELLDOM Unleash First Single "By the Word" From Upcoming Album …by the word…](https://metalinjection.net/video/trelldom-unleash-first-single-by-the-word-from-upcoming-album-by-the-word) - Metal Injection.net
+- [Vancouver's SPELL Set To Release Cinematic New LP Wretched Heart, New Single Now Streaming](https://metalinjection.net/video/vancouvers-spell-set-to-release-cinematic-new-lp-wretched-heart-new-single-now-streaming) - Metal Injection.net
+- [Afrobeats after Fela](https://africasacountry.com/2026/03/afrobeats-after-fela/) - Africasacountry.com
+- [Fresh Air Weekend: Revisiting Fela Kuti's story; Michael Pollan on consciousness - Northern Public Radio](https://www.northernpublicradio.org/2026-02-21/fresh-air-weekend-revisiting-fela-kutis-story-michael-pollan-on-consciousness) - Northernpublicradio
+- [Fresh Air Weekend: Revisiting Fela Kuti's story; Michael Pollan on consciousness - VPM](https://www.vpm.org/npr-news/2026-02-21/fresh-air-weekend-revisiting-fela-kutis-story-michael-pollan-on-consciousness) - Vpm
+- [Nunslaughter Announces 2026 European Tour Dates](http://www.metalunderground.com/news/details.cfm?newsid=160952) - Metalunderground.com
+- [Selena Gomez emotionally reveals secret Taylor Swift song written about her](https://www.the-independent.com/arts-entertainment/music/news/taylor-swift-selena-gomez-dorothea-song-secret-b2932021.html) - The-independent.com
+- [Selena Gomez Confirms Taylor Swift's Song "Dorothea" Is About Her - E! News](https://www.eonline.com/news/1429240/taylor-swift-dorothea-about-selena-gomez-song-details) - Eonline
+- [Selena Gomez Reveals Taylor Swift Wrote These Songs About Her (But One of Them Is Unreleased) - Billboard Canada](https://ca.billboard.com/music/music-news/selena-gomez-taylor-swift-wrote-songs-about-her-1236190767/?mc_cid=fac9cdc993&mc_eid=e93eb860cc&bil=554&debugld=stickybtest) - Billboard
+- [Taylor Swift Has Another Secret Song About Selena Gomez - Vulture](https://www.vulture.com/article/taylor-swift-selena-gomez-secret-song.html) - Vulture
+- [Selena Gomez Reveals Taylor Swift's "Sweetest" Gift for Her 30th Birthday - E! News](https://www.eonline.com/news/1429281/taylor-swifts-painting-gift-to-selena-gomez-for-30th-birthday) - Eonline
+- [Selena Gomez Reveals Taylor Swift Wrote These Songs About Her (But One of Them Is Unreleased) - Billboard](https://www.billboard.com/music/music-news/selena-gomez-taylor-swift-wrote-songs-about-her-1236190767/) - Billboard
+- [Selena Gomez Confirms Taylor Swift Wrote ‘Dorothea’ About Her: ‘It’s Eloquently Put’ - Rolling Stone](https://www.rollingstone.com/music/music-news/selena-gomez-confirms-taylor-swift-dorothea-about-her-1235524183/) - Rollingstone
+- [テンプル大学ジャパンキャンパスフィラデルフィアから日本へ：2026年全米大学ジャズチャンピオン、テンプル大学ジャズバンドが3月上旬に京都、奈良、東京で公演](https://japan.cnet.com/release/31151591/) - CNET
+- [Devon Gilfillian on Bucking Nashville’s System on New Album: ‘I Wanted to Get Weird’](http://www.rollingstone.com/music/music-features/devon-gilfillian-nashville-album-podcast-1235524820/) - Rolling Stone
+- [Kim Gordon’s Stunning Second Act Is Only Getting Wilder](http://www.rollingstone.com/music/music-features/kim-gordon-new-music-play-me-interview-1235513345/) - Rolling Stone
+- [Charlie Puth Joins AI Platform Moises As Chief Music Officer, Says “Every Musician I Know” Uses It](http://deadline.com/2026/03/charlie-puth-joins-ai-platform-moises-chief-music-officer-1236744081/) - Deadline
+- [Artist Charlie Puth tapped as 'chief music officer’ of an AI platform](https://www.nbcnews.com/pop-culture/pop-culture-news/charlie-puth-chief-music-officer-ai-platform-moises-rcna261429) - NBC News
+- [Charlie Puth Named Chief Music Officer at AI Platform Moises - Billboard](https://www.billboard.com/pro/charlie-puth-moises-chief-music-officer-ai-music-platform/) - Billboard
+- [Music generator ProducerAI joins Google Labs - TechCrunch](https://techcrunch.com/2026/02/24/music-generator-producerai-joins-google-labs/) - Techcrunch
+- [AI song generator startups angered music industry. Now they're hoping to join it - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/ai-song-generator-startups-music-industry/6469444/?amp=1) - Nbcnewyork
+- [‘Say No to Suno’: Artist Rights Groups Push Back Against AI Music Company - Billboard](https://www.billboard.com/pro/say-no-to-suno-artist-groups-challenge-ai-music-training/) - Billboard
+- [‘The Man With the Interesting Sounds’](http://www.vulture.com/article/king-crimson-adrian-belew-best-songs.html) - Vulture
+- [EXCLUSIVE: Sharon Osbourne Set to Fulfill Late Husband Ozzy's Final Wish With Tribute That Will Move Fans to Tears](https://radaronline.com/p/sharon-osbourne-ozzfest-revival-dead-ozzy-final-wish/) - Radaronline.com
+- [Sharon Osbourne Says Ozzfest ‘Absolutely’ Returning in 2027 After Nearly Decade-Long Hiatus - Billboard](https://www.billboard.com/music/rock/sharon-osbourne-ozzfest-absolutely-returning-2027-1236190472/) - Billboard
