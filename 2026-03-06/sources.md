@@ -1,0 +1,34 @@
+# Sources for 2026-03-06 News Episode 
+- [Harry Styles Says That Seeing Radiohead in Berlin Inspired His Return to Touring](https://consequence.net/2026/03/harry-styles-radiohead-inspired-return-to-touring/) - Consequence.net
+- [Harry Styles Explains Why Doing Mini-Residencies Instead of Traditional Tour Is ‘Really Important to Me’ - Billboard](https://www.billboard.com/music/music-news/harry-styles-explains-mini-residencies-2026-tour-1236191829/) - Billboard
+- [Harry Styles Brings Disco to the BRIT Awards With First-Ever Performance of ‘Aperture’ - Variety](https://variety.com/2026/music/awards/harry-styles-brit-awards-performance-aperture-1236672294/) - Variety
+- [Harry Styles Brings Disco to the BRIT Awards With First-Ever Performance of ‘Aperture’ - Variety Australia](https://au.variety.com/2026/music/news/harry-styles-brit-awards-performance-aperture-33677/) - Variety
+- [Harry Styles Bringing One Night Only Concert to Netflix - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/harry-styles-one-night-only-concert-netflix-1236519598/) - Hollywoodreporter
+- [Apple Music adds ‘transparency tags’ for uses of AI with music](http://musically.com/2026/03/05/apple-music-adds-transparency-tags-for-uses-of-ai-with-music/) - Music Ally
+- [Apple Music Doesn’t Want to Trick You With AI Songs](http://www.vulture.com/article/apple-music-ai-transparency-tags.html) - Vulture
+- [Apple Music launches AI transparency tags — but only if labels and distributors declare them - Music Business Worldwide](https://www.musicbusinessworldwide.com/apple-music-launches-ai-transparency-tags-but-only-if-labels-and-distributors-choose-to-declare-them/) - Musicbusinessworldwide
+- [Apple Music to add Transparency Tags to distinguish AI music, says report - TechCrunch](https://techcrunch.com/2026/03/04/apple-music-to-add-transparency-tags-to-distinguish-ai-music-says-report/) - Techcrunch
+- [Apple Music introduces metadata tags to disclose AI-generated content - 9to5Mac](https://9to5mac.com/2026/03/04/apple-music-introduces-metadata-tags-to-disclose-ai-generated-content/) - 9to5mac
+- [Apple Music Introduces Tagging for AI Songs, Its First Regulation on AI Use - Billboard](https://www.billboard.com/pro/apple-music-introduces-ai-song-tagging/) - Billboard
+- [Alt. Shares New Music Video "Sucker Punch"](http://www.metalunderground.com/news/details.cfm?newsid=160971) - Metalunderground.com
+- [Gia Margaret finds lightness on new single, "Good Friend"](https://www.thelineofbestfit.com/news/gia-margaret-new-single-good-friend) - Thelineofbestfit.com
+- [James Sullivan on the Power of Protest Music](https://lithub.com/james-sullivan-on-the-power-of-protest-music/) - Lithub.com
+- [Tiny Desk Radio: Yo Gabba GabbaLand!, 31 Minutos, Sesame Street](https://www.npr.org/2026/03/05/g-s1-112613/tiny-desk-radio-yo-gabba-gabbaland-31-minutos-sesame-street) - NPR
+- [Tiny Desk Radio: Yo Gabba GabbaLand!, 31 Minutos, Sesame Street - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-05/tiny-desk-radio-yo-gabba-gabbaland-31-minutos-sesame-street) - Iowapublicradio
+- [Interpol Announce New Music, Reveal Urian Hackney Will Sit In for Sam Fogarino on Upcoming Tour](https://consequence.net/2026/03/interpol-new-music-2026-urian-hackney-sam-fogarino-tour/) - Consequence.net
+- [Icelandic musician Laufey and Hong Kong singer GEM to stage concerts in Singapore in May](https://cnalifestyle.channelnewsasia.com/entertainment/laufey-gem-singapore-concert-2026-579316) - CNA
+- [SABATON Reschedule North American Legends On Tour 2026 Dates After Bassist's Injury](https://metalinjection.net/tour-dates/sabaton-reschedule-north-american-legends-on-tour-2026-dates-after-bassists-injury) - Metal Injection.net
+- [Sabaton Announce Rescheduled North American Tour Dates](https://www.metalsucks.net/2026/03/05/sabaton-announce-rescheduled-north-american-tour-dates/) - MetalSucks
+- [War Child UK looks to ‘Help’ again with a new benefit album, 30 years after its first success](https://www.bostonherald.com/2026/03/05/philanthropy-war-child-album/) - Boston Herald
+- [War Child UK looks to ‘Help’ again with a new benefit album, 30 years after its first success - breitbart.com](https://www.breitbart.com/news/war-child-uk-looks-to-help-again-with-a-new-benefit-album-30-years-after-its-first-success/amp/) - Breitbart
+- [War Child UK looks to ‘Help’ again with a new benefit album, 30 years after its first success - myMotherLode.com](https://mymotherlode.com/entertainment/music-news/10594259/war-child-uk-looks-to-help-again-with-a-new-benefit-album-30-years-after-its-first-success.html/amp) - Mymotherlode
+- [Inside 'Help(2)', A Star-Studded Charity LP Decades in the Making - Billboard](https://www.billboard.com/music/features/help-war-child-compilation-olivia-rodrigo-arctic-monkeys-1236187178/) - Billboard
+- [The 1975 to receive MPG Award](https://www.soundonsound.com/news/1975-receive-mpg-award) - Soundonsound.com
+- [JAMES LOMENZO Doesn't Totally Rule Out More New MEGADETH Music](https://metalinjection.net/news/james-lomenzo-doesnt-totally-rule-out-more-new-megadeth-music) - Metal Injection.net
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - Mid Florida Newspapers](https://www.midfloridanewspapers.com/ap/entertainment/music-review-megadeth-is-going-out-on-top-with-ferocious-self-titled-final-album/article_d62e04a7-fcb9-573b-ab19-b1c9cf6635d0.html) - Midfloridanewspapers
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - The Killeen Daily Herald](https://kdhnews.com/living/ae/music-review-megadeth-is-going-out-on-top-with-ferocious-self-titled-final-album/article_96c4cf27-3420-59c1-92a6-180a1295d599.html) - Kdhnews
+- [Music Review: Megadeth is going out on top with ferocious self-titled final album - greenwichtime.com](https://www.greenwichtime.com/entertainment/article/music-review-megadeth-is-going-out-on-top-with-21305091.php) - Greenwichtime
+- [Megadeth Scores First No. 1 Album With Self-Titled Farewell Release - 93.3 WMMR](https://wmmr.com/2026/02/27/megadeth-scores-first-no-1-album-with-self-titled-farewell-release/) - Wmmr
+- [How Megadeth's Dave Mustaine went from thrash metal outsider to finally conquering the charts - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-02-20/how-megadeths-dave-mustaine-went-from-thrash-metal-outsider-to-finally-conquering-charts) - Latimes
+- [Diljit Dosanjh’s ‘Dil-Luminati’ 2024 India tour had an economic impact of $103m, says EY](http://musically.com/2026/03/05/diljit-dosanjhs-dil-luminati-2024-india-tour-had-an-economic-impact-of-103m-says-ey/) - Music Ally
+- [Lucy Dreams has an artificial band member – but she’s not an AI](http://musically.com/2026/03/05/lucy-dreams-has-an-artificial-band-member-but-shes-not-an-ai/) - Music Ally
