@@ -1,0 +1,29 @@
+# Sources for 2026-03-07 News Episode 
+- [2veinte & McFlyy “JUMP” Coca-Cola x FIFA World Cup 2026](https://www.stashmedia.tv/2veinte-mcflyy-jump-coca-cola-x-fifa-world-cup-2026/) - Stashmedia.tv
+- [Angélique Kidjo Announces Album With Pharrell, Nile Rodgers, and More](https://pitchfork.com/news/angelique-kidjo-announces-album-with-pharrell-nile-rodgers-and-more/) - Pitchfork
+- [Harry Styles Avoids Death-Defying Stunts in 'American Girls' Music Video - Watch Now!](https://www.justjared.com/2026/03/06/harry-styles-avoids-death-defying-stunts-in-american-girls-music-video-watch-now/) - Just Jared
+- [Harry Styles takes Hollywood’s favorite T-shirt for a spin in his ‘American Girls’ video](https://pagesix.com/2026/03/06/style/harry-styles-wears-this-78-leset-t-shirt-in-his-american-girls-video/) - Page Six
+- [Get Harry Styles' Exact Same Blue & White T-Shirts from the 'American Girls' Video](https://www.justjared.com/2026/03/06/harry-styles-exact-same-blue-white-t-shirts-from-the-american-girls-video/) - Just Jared
+- [Harry Styles Performs Stunts on Set in ‘American Girls’ Music Video - Variety](https://variety.com/2026/music/news/harry-styles-performs-stunts-american-girls-music-video-1236681061/) - Variety
+- [Harry Styles Performs Stunts on Set in ‘American Girls’ Music Video - Variety Australia](https://au.variety.com/2026/music/news/harry-styles-performs-stunts-american-girls-music-video-33939/) - Variety
+- [Harry Styles Lives Out His Action-Star Fantasy in Scenic ‘American Girls’ Music Video - Billboard](https://www.billboard.com/music/music-news/harry-styles-american-girls-music-video-1236194119/) - Billboard
+- [Fugazi Releasing Long-Bootlegged Steve Albini Sessions](https://www.spin.com/2026/03/fugazi-steve-albini-sessions/) - SPIN
+- ["We wanted a song about castles and crossbows." The magical relationship between Ritchie Blackmore and Ronnie James Dio celebrated on the monumental Rainbow - The Temple Of The King 1975-76](https://www.loudersound.com/music/albums/rainbow-the-temple-of-the-king-1975-76) - Louder
+- [Doc 'The Rise of the Red Hot Chili Peppers: Our Brother, Hillel' Trailer](https://www.firstshowing.net/2026/doc-the-rise-of-the-red-hot-chili-peppers-our-brother-hillel-trailer/) - First Showing
+- [ARCHSPIRE Unleash Blistering New Single "Red Goliath" Ahead Of Too Fast To Die](https://metalinjection.net/video/archspire-unleash-blistering-new-single-red-goliath-ahead-of-too-fast-to-die) - Metal Injection.net
+- [Metallica’s Sphere Residency Is Sold Out — Here’s How You Can Still Get Tickets](https://consequence.net/2026/03/metallicas-sphere-residency-sold-out-tickets-guide/) - Consequence.net
+- [Metallica Announce Las Vegas Sphere Residency, With ‘No Repeat Weekends’ - Variety](https://variety.com/2026/music/news/metallica-announce-las-vegas-sphere-residency-1236672439/) - Variety
+- [Metallica Announces Las Vegas Sphere Residency, With ‘No Repeat Weekends’ - Yahoo News UK](https://uk.news.yahoo.com/metallica-announce-las-vegas-sphere-150850931.html) - Yahoo
+- [Metallica Announce 2026 Residency at Las Vegas’ Sphere - Consequence of Sound](https://consequence.net/2026/02/metallica-2026-residency-las-vegas-sphere/) - Consequence
+- [Metallica announces ‘Life Burns Faster’ residency at Sphere in Las Vegas - FOX5 Vegas](https://www.fox5vegas.com/2026/02/25/metallica-announces-life-burns-faster-residency-sphere-las-vegas/) - Fox5vegas
+- [Metallica Residency at Sphere in Vegas & Paramount’s $8.1B Revenue Surge - Los Angeles Times](https://www.latimes.com/0000019c-a1f2-db17-ad9d-bdf36f800000-123) - Latimes
+- [SXSW VP of Music Brian Hobbs Teases 2026 Festival’s Biggest Shows](http://www.denofgeek.com/culture/sxsw-vp-music-brian-hobbs-2026-headliners-breakout-artists/) - Den of Geek US
+- [Watch Icelandic newcomers Amor Vincit Omnia in session](https://www.thelineofbestfit.com/news/amor-vincit-omnia-icelandic-newcomers-session-ber) - Thelineofbestfit.com
+- [SXSW 2026: Alanis Morissette, Jack Johnson, Ty Dolla $ign Added to Music Fest Lineup - Billboard](https://www.billboard.com/pro/sxsw-music-festival-2026-alanis-morissette-jack-johnson/) - Billboard
+- [Hunter Hayes Releases Evergreen, a Genre-Mixing Leap Forward, and a 2026 U.S. Tour](https://www.spin.com/2026/03/hunter-hayes-releases-evergreen-a-genre-mixing-leap-forward-and-a-2026-u-s-tour/) - SPIN
+- [SZA Remembers Label Telling Her ‘SOS’ Wouldn’t Beat Taylor Swift On The Charts In 2023](https://bossip.com/4517792/sza-taylor-swift-label-doubts/) - Bossip
+- [SZA Recalls Being Told She ‘Wouldn’t Beat Taylor Swift’ on the Charts, But ‘Anything Is Possible’ - Billboard](https://www.billboard.com/music/music-news/sza-told-never-beat-taylor-swift-charts-1236194727/) - Billboard
+- [SZA Feels Like She's 'At War' With AI-Generated Music - Billboard](https://www.billboard.com/music/rb-hip-hop/sza-at-war-ai-weird-struggle-music-artificial-intelligence-1236194236/) - Billboard
+- [Spotify ties up with Just Music to foster growth in north-east India](http://musically.com/2026/03/06/spotify-ties-up-with-just-music-to-foster-growth-in-north-east-india/) - Music Ally
+- [Cannelle’s French electropop is for dreamers](https://www.thefader.com/2026/03/06/cannelles-french-electropop-is-for-dreamers) - The FADER
+- [Tems’ secret to happiness: ‘Submit yourself to change’](https://www.dazeddigital.com/music/article/69829/1/tems-da-zed-quiz-brits-interview-happiness-hennessy?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=tems-secret-to-happiness-submit-yourself-to-change) - Dazed
