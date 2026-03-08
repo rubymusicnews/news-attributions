@@ -1,0 +1,30 @@
+# Sources for 2026-03-08 News Episode 
+- [Ce 7 mars où le monde a entonné « We Are The World »](https://www.nouvelobs.com/histoire/20260307.OBS112972/ce-7-mars-ou-le-monde-a-entonne-we-are-the-world.html) - L'Obs
+- [Bad Gyal’s Expensive Thrills](http://www.rollingstone.com/music/music-latin/bad-gyal-mas-cara-interview-1235525019/) - Rolling Stone
+- [Bad Gyal Breaks Down 5 Essential Tracks From Her New Album ‘Más Cara’: ‘I Feel Much More Elevated’ - Billboard](https://www.billboard.com/lists/bad-gyal-new-album-mas-cara-5-essential-tracks-interview/) - Billboard
+- [The K-pop concert that sparked an online war across Asia](https://www.abc.net.au/news/2026-03-08/k-pop-concert-that-sparked-an-online-war-across-asia/106389534) - ABC News (AU)
+- [Gen Z is hacking the exorbitant costs of live events by ditching Coachella and opting for something actually affordable. Meet Breakaway](https://fortune.com/2026/03/07/gen-z-live-event-cost-hacks-breakaway-events-music-festivals/) - Fortune
+- [Quote of the day by Grammy-winning singer Harry Styles: ‘I think if you’re making what you want to make, then ultimately no one can tell you you’re unsuccessful’](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-by-grammy-winning-singer-harry-styles-i-think-if-youre-making-what-you-want-to-make-then-ultimately-no-one-can-tell-you-youre-unsuccessful/articleshow/129194988.cms) - The Times of India
+- [On his new album, Harry Styles finally sounds like himself - review - The Independent](https://www.independent.co.uk/arts-entertainment/music/reviews/harry-styles-review-kiss-all-the-time-lyrics-b2930954.html) - Independent
+- [Harry Styles – ‘Kiss All The Time. Disco, Occasionally’ review: pop superstar lets the light in - NME](https://www.nme.com/reviews/album/harry-styles-kiss-all-the-time-disco-occasionally-review-3932624) - Nme
+- [Harry Styles wants us to dance to the beat of his tepid drum \| Opinion - USA Today](https://www.usatoday.com/story/opinion/columnist/2026/03/08/harry-styles-album-kiss-all-the-time-disco-occasionally/89020020007/) - Usatoday
+- [Billboard - March 7, 2026](https://post.rlsbb.to/billboard-march-7-2026/) - Rlsbb.to
+- [IVE Breaks Record For Most Hourly Perfect All-Kills Of Any Group In History](http://www.soompi.com/article/1823462wpp/ive-breaks-record-for-most-hourly-perfect-all-kills-of-any-group-in-history) - soompi
+- [Billboard Hot 100 Top 10 Countdown for March 7, 2026 \| Billboard News - Billboard](https://www.billboard.com/video/billboard-hot-100-top-10-countdown-march-7-2026-video/) - Billboard
+- [Björk teases big announcement for 12 August](https://www.thelineofbestfit.com/news/bjork-teases-big-announcement-for-12-august) - Thelineofbestfit.com
+- [Keanu Reeves’ Band Dogstar Returns With New Album ‘All in Now’](http://www.rollingstone.com/music/music-news/keanu-reeves-band-dogstar-new-album-all-in-now-1235526821/) - Rolling Stone
+- [Keanu Reeves’ rock band Dogstar returning to Bay Area with new album, tour - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/keanu-reeves-dogstar-sonoma-21959477.php) - Sfchronicle
+- [Keanu Reeves’ Dogstar Reveals New Album ‘All in Now’ and Upcoming U.S. Tour - Billboard](https://www.billboard.com/music/rock/dogstar-new-album-all-in-now-tour-dates-1236194971/) - Billboard
+- [LOOK MUM NO COMPUTER, ‘Eins, Zwei, Drei’ review: Blue Peter meets Berghain](https://www.the-independent.com/arts-entertainment/music/reviews/eurovision-2026-uk-song-review-lyrics-b2933857.html) - The-independent.com
+- [YouTube’s Most Maximal Synth Sorcerer to Represent the UK at Eurovision - Gizmodo](https://gizmodo.com/youtubes-most-maximal-synth-sorcerer-to-represent-the-uk-at-eurovision-2000725994) - Gizmodo
+- [Eurovision 2026: Where and when is this year's contest? - BBC](https://www.bbc.com/news/articles/cx2g7z375l9o) - Bbc
+- [Look Mum No Computer: UK's Eurovision entrant says his song Eins, Zwei, Drei, is 'a risk' - BBC](https://www.bbc.com/news/articles/c4geel78nd0o) - Bbc
+- [Rock History we talk David Bowie, Bruce Springsteen, John Hammond Sr, and happy birthday Peter Wolf](https://www.wmmo.com/entertainment/rock-history-we-talk-david-bowie-bruce-springsteen-john-hammond-sr-happy-birthday-peter-wolf/26YVHBPAZZB6HHZT76Y5C5Y5PE/) - Wmmo.com
+- [Gorillaz : comment tout a commencé](https://www.lesinrocks.com/musique/gorillaz-comment-tout-a-commence-690533-07-03-2026/) - Les Inrocks
+- [On The Mountain, Gorillaz Turn Grief and Global Collaboration into Their Most Ambitious Album Yet - Consequence of Sound](https://consequence.net/cover/gorillaz-the-mountain-interview/) - Consequence
+- [[Dubstep] Andromedik – Calling (ft. Ragdoll) (Deadlynoiz remix )](https://www.themusicninja.com/dubstep-andromedik-calling-ft-ragdoll-deadlynoiz-remix/) - Themusicninja.com
+- [Dialektpop räumt bei den 26. Amadeus Awards groß ab](https://www.diepresse.com/20655188/dialektpop-raeumt-bei-den-26-amadeus-awards-gross-ab) - Diepresse.com
+- [Oarg – Dialektpop dominiert Amadeus](https://oe3.orf.at/stories/3052653/) - Oe3.orf.at
+- [Die Amadeus Austrian Music Awards Gala 2026](https://fm4.orf.at/stories/3052647/) - Fm4.orf.at
+- [Zwei Amadeus Music Awards für OÖ](https://ooe.orf.at/stories/3344785/) - Ooe.orf.at
+- [Morrissey in concerto con il nuovo album. E la cover di "Amazona" dei Roxy Music](https://www.ilgiornale.it/news/morrissey-concerto-nuovo-album-e-cover-amazona-dei-roxy-2635255.html) - Ilgiornale.it
