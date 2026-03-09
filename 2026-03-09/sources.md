@@ -1,0 +1,23 @@
+# Sources for 2026-03-09 News Episode 
+- [Taylor Swift's Wedding Plans Heat Up Amid Fan Speculation and New Album Buzz in March 2026](https://www.ibtimes.com.au/taylor-swifts-wedding-plans-heat-amid-fan-speculation-new-album-buzz-march-2026-1862962) - Ibtimes.com.au
+- [Jack White Uses Taylor Swift to Explain Why He Doesn’t Write Autobiographical Lyrics](https://consequence.net/2026/03/jack-white-lyrics-taylor-swift-autobiographical-lyrics/) - Consequence.net
+- [Jack White: ‘I’m not going to put a painful thing out there for some idiot on the internet to stomp all over’ - The Guardian](https://www.theguardian.com/culture/2026/mar/08/jack-white-white-stripes-lyrics-selected-writing-book-interview) - Theguardian
+- [Country Joe McDonald, anti-war singer who electrified Woodstock, dies at 84](https://www.npr.org/2026/03/08/nx-s1-5741805/country-joe-mcdonald-woodstock-vietnam-protest) - NPR
+- [Country Joe McDonald Dead: '60s Rock Star Was 84](http://www.hollywoodreporter.com/music/music-news/country-joe-mcdonald-dead-60s-rock-star-1236524797/) - Hollywood Reporter
+- ['Country' Joe McDonald, 60s Rocker Behind Antiwar Anthem, Dead At 84](https://www.huffpost.com/entry/country-joe-mcdonald-dead_n_69adf278e4b0c722e1e5c11c) - HuffPost
+- ['Country' Joe McDonald, proud protest counterculture icon, dies at 84](https://abcnews.com/Entertainment/wireStory/country-joe-mcdonald-60s-rock-star-proud-protest-130883948) - Abcnews.com
+- [Country Joe McDonald, Country Joe and the Fish Singer, Dead at 84](http://www.rollingstone.com/music/music-news/country-joe-mcdonald-fish-singer-dead-obituary-1235527043/) - Rolling Stone
+- ['Country' Joe McDonald, '60s rock star, proud protest counterculture icon, dies at 84](https://japantoday.com/category/entertainment/%27country%27-joe-mcdonald-%2760s-rock-star-proud-protest-counterculture-icon-dies-at-84) - Japan Today
+- [Country Joe McDonald Dies: Country Joe & The Fish Frontman And ‘Tales of the City’ Actor Was 84](http://deadline.com/2026/03/country-joe-mcdonald-dies-84-1236747053/) - Deadline
+- ['Country Joe' McDonald dead at 84](https://www.foxnews.com/entertainment/country-joe-mcdonald-dead-84) - Fox News
+- [Inside The Wild Life Of Mick Taylor And His Legendary Time With The Rolling Stones](https://allthatsinteresting.com/mick-taylor) - Allthatsinteresting.com
+- [Katie Alice Greer Announces New Album, Shares “Unglued”](https://pitchfork.com/news/katie-alice-greer-announces-new-album-shares-unglued/) - Pitchfork
+- [Badshah issues apology for objectionable lyrics in 'Tateeree'](https://economictimes.indiatimes.com/news/india/badshah-issues-apology-for-objectionable-lyrics-in-tateeree/articleshow/129255142.cms) - The Times of India
+- [I-dle ft. Skaiwater – Mono](https://thesinglesjukebox.com/i-dle-ft-skaiwater-mono/) - Thesinglesjukebox.com
+- [POISON THE WELL Vocalist JEFFREY MOREIRA Talks "Selling Out" & The Difference Between Their Records](https://metalinjection.net/news/poison-the-well-vocalist-jeffrey-moreira-talks-selling-out-the-difference-between-their-records) - Metal Injection.net
+- [lowsunday – Low Sunday Ghost Machine (2025 remaster)](https://exystence.net/blog/2026/03/08/lowsunday-low-sunday-ghost-machine-2025-remaster/) - Exystence.net
+- [Victoryland – My Heart Is a Room with No Cameras In It (2026)](https://exystence.net/blog/2026/03/08/victoryland-my-heart-is-a-room-with-no-cameras-in-it-2026/) - Exystence.net
+- [Eddie Allen’s Push – Rhythm People (2026)](https://exystence.net/blog/2026/03/08/eddie-allens-push-rhythm-people-2026/) - Exystence.net
+- [Söndörgo – Söndörgő XXX (2025)](https://exystence.net/blog/2026/03/08/sondorgo-sondorgo-xxx-2025/) - Exystence.net
+- [(HED)P.E. Celebrate 25 Years Broke With Headlining Still Broke In America Tour](https://metalinjection.net/tour-dates/hedp-e-celebrate-25-years-broke-with-headlining-still-broke-in-america-tour) - Metal Injection.net
+- [CyHi Tackles G.O.O.D. Music Fallout on New Song](https://pitchfork.com/news/cyhi-tackles-good-music-fallout-on-new-song/) - Pitchfork
