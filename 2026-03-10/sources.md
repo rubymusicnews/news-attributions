@@ -1,0 +1,28 @@
+# Sources for 2026-03-10 News Episode 
+- [Jill Scott Announces 2026 “To Whom This May Concern” World Tour](https://consequence.net/2026/03/jill-scott-2026-tour-dates/) - Consequence.net
+- [Jill Scott, Unbothered and Unleashed](https://www.spin.com/2026/03/jill-scott-unbothered-and-unleashed/) - SPIN
+- [Jill Scott Announces Dates For 2026 ‘To Whom This May Concern’ World Tour - Billboard](https://www.billboard.com/music/concerts/jill-scott-whom-this-may-concern-2026-world-tour-dates-1236195104/) - Billboard
+- [Jill Scott Announces ‘To Whom This May Concern’ World Tour Dates - Variety](https://variety.com/2026/music/news/jill-scott-announces-to-whom-this-may-concern-world-tour-1236681616/) - Variety
+- [On the funk line: 7 young Brazilians speak on the future of baile funk](https://www.dazeddigital.com/music/article/69838/1/spring-2026-favelas-7-young-brazilians-speak-on-the-future-of-baile-funk?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=on-the-funk-line-7-young-brazilians-speak-on-the-future-of-baile-funk) - Dazed
+- ["A stylus-melting red-hot riff-o-rama that demands to be played loud." AC/DC are captured in their hungry prime on If You Want Blood You've Got It](https://www.loudersound.com/music/albums/ac-dc-if-you-want-blood-youve-got-it) - Louder
+- [How Fuerza Regida Became the Voice of a New American Generation](http://www.rollingstone.com/music/music-features/fuerza-regida-cover-stadium-tour-new-music-1235525473/) - Rolling Stone
+- [“You feel this music on your body”: Shye Ben Tzur and Jonny Greenwood return with new album Ranjha](https://www.thelineofbestfit.com/news/shye-ben-tzur-and-jonny-greenwood-return-with-new-album-ranjha) - Thelineofbestfit.com
+- [Jonny Greenwood, Shye Ben Tzur & The Rajasthan Express Announce New Album Ranjha For May 2026 Release,... - mxdwn Music](https://music.mxdwn.com/2026/03/09/news/jonny-greenwood-shye-ben-tzur-the-rajasthan-express-announce-new-album-ranjha-for-may-2026-release-share-title-track/amp/) - Mxdwn
+- [Poll: Favorite Guns N' Roses Era — Old School vs. New School](https://loudwire.com/favorite-guns-n-roses-era-old-school-vs-new-school/) - Loudwire
+- [Guns N' Roses Tour 2026 Full Australia and NZ Stadium Dates Revealed - Jobaaj](https://news.jobaaj.com/news-updates/entertainment/guns-n-roses-tour-2026-full-australia-and-nz-stadium-dates-revealed) - Jobaaj
+- [Franz Ferdinand Announce North American Headlining Tour](https://consequence.net/2026/03/franz-ferdinand-2026-north-american-summer-headlining-tour/) - Consequence.net
+- [Franz Ferdinand Blast Israeli Defense Forces For Using Song in War Video - Billboard](https://www.billboard.com/music/rock/franz-ferdinand-blast-israeli-defense-forces-take-me-out-video-1236195213/) - Billboard
+- [How Pet Shop Boys Sold City Glamour to Queer Suburban Kids](https://thequietus.com/opinion-and-essays/black-sky-thinking/pet-shop-boys-suburbia-sexuality-john-grindrod/) - The Quietus
+- [How Pet Shop Boys Sold City Glamour to Queer Suburban Kids](https://thequietus.com/opinion-and-essays/black-sky-thinking/how-pet-shop-boys-sold-city-glamour-to-queer-suburban-kids/) - The Quietus
+- [Franz Ferdinand Condemn IDF’s Use of ‘Take Me Out’ as ‘Vile Arrogance’](http://www.rollingstone.com/music/music-news/franz-ferdinand-idf-video-take-me-out-1235527094/) - Rolling Stone
+- [Franz Ferdinand Blast Israeli Defense Forces For Using Song in War Video - Billboard](https://www.billboard.com/music/rock/franz-ferdinand-blast-israeli-defense-forces-take-me-out-video-1236195213/) - Billboard
+- [Iraq stands to lose and lose from Iran strikes - Politico](https://www.politico.com/newsletters/national-security-daily/2026/03/09/iraq-stands-to-lose-and-lose-from-iran-strikes-00819373) - Politico
+- [Michael Stipe Teams Up with Josh Klinghoffer, Travis Barker for Theme Song to HBO’s Rooster: Stream](https://consequence.net/2026/03/michael-stipe-rooster-hbo-theme-song/) - Consequence.net
+- [Olly Alexander: ‘Trans Mission sends a bold and loud message that we stand with the trans community’](https://www.the-independent.com/arts-entertainment/music/news/trans-mission-lineup-tickets-date-wembley-b2933974.html) - The-independent.com
+- [2026 GLAAD Media Awards Winners List: Young Miko, KATSEYE & More - Billboard](https://www.billboard.com/lists/2026-glaad-media-awards-full-winners-list/) - Billboard
+- [WHITECHAPEL Announces 2027 European Tour With SYLOSIS, 200 STAB WOUNDS & TRIBAL GAZE](https://metalinjection.net/tour-dates/whitechapel-announces-2027-european-tour-with-sylosis-200-stab-wounds-tribal-gaze) - Metal Injection.net
+- [Mitski Shares Her Cultural Essentials](https://www.newyorker.com/video/watch/starter-pack-mitski-shares-her-cultural-essentials) - The New Yorker
+- [Mitski comes undone on 'Nothing's About to Happen to Me' - NPR](https://www.npr.org/2026/03/03/nx-s1-5734019/mitski-nothings-about-to-happen-to-me-review) - Npr
+- [Mitski review – pop meets performance art in a masterful spectacle - The Guardian](https://www.theguardian.com/music/2026/mar/05/mitski-residency-nyc) - Theguardian
+- [Mitski Figures It Out & Feels the Love With First of Six Shows at NYC Shed Residency: Recap and Best Moments - Billboard](https://www.billboard.com/lists/mitski-residency-nyc-the-shed-recap-best-moments/) - Billboard
+- [Listen to Eric Prydz play an hour of unreleased music in first EPIC Radio show in six years](https://djmag.com/news/listen-eric-prydz-play-hour-of-unreleased-music-first-epic-radio-show-six-years) - DJ Mag
