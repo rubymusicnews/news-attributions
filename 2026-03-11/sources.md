@@ -1,0 +1,41 @@
+# Sources for 2026-03-11 News Episode 
+- [Gotta Have Faith! Lost Film ‘George Michael: The Faith Tour’ Set For 2026 Cinema Release Alongside New Album; First Teaser & Images Revealed](http://deadline.com/2026/03/george-michael-faith-tour-movie-album-release-2026-1236748406/) - Deadline
+- [New Film To Spotlight George Michael’s ‘Faith’ Era](https://www.spin.com/2026/03/george-michael-faith-documentary/) - SPIN
+- ['George Michael: The Faith Tour' Movie & New Album Get 2026 Release - Deadline](https://deadline.com/2026/03/george-michael-faith-tour-movie-album-release-2026-1236748406/) - Deadline
+- [A new movie based on footage from the pop icon's 1988 tour is coming to cinemas, as is a new album. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/a-new-movie-based-on-footage-from-the-pop-icons-1988-tour-is-coming-to-cinemas-a/1283903156943355/) - Facebook
+- [Long lost George Michael film and live album set for release later this year - The Guardian](https://www.theguardian.com/music/2026/mar/10/new-george-michael-movie-live-album) - Theguardian
+- [Ultimate 2026 Singapore concert guide: BTS, EXO, Rainie Yang, Laufey, My Chemical Romance and more](https://cnalifestyle.channelnewsasia.com/entertainment/ultimate-list-concerts-singapore-2026-579571) - CNA
+- [Hot boys, bright lights, sweltering city: Inside Seventeen's Singapore stadium concert - Business Insider](https://www.businessinsider.com/inside-seventeen-stadium-concert-singapore-2026-3) - Businessinsider
+- [Who is Angine de Poitrine? The masked Quebec band is taking the internet by storm](https://www.cbc.ca/music/angine-de-poitrine-quebec-band-kexp-9.7120120) - CBC News
+- [U2’s “Days of Ash” is an urgent dispatch from a band that still believes](https://www.salon.com/2026/03/10/u2s-days-of-ash-is-an-urgent-dispatch-from-a-band-that-still-believes/) - Salon
+- [Boy George on Using AI to Write Music: “I Have Fantastic Conversations with ChatGPT”](https://consequence.net/2026/03/boy-george-ai-songwriting/) - Consequence.net
+- [UK artist touring fund launches with £125,000 from arena shows](https://www.thelineofbestfit.com/news/uk-artist-touring-fund-launches-with-ps125-000-from-arena-shows) - Thelineofbestfit.com
+- [New UK Artist Touring Fund opens for applications this week](http://musically.com/2026/03/10/new-uk-artist-touring-fund-opens-for-applications-this-week/) - Music Ally
+- [How Harry Styles & More Are Helping New U.K. Artists Hit the Road With ‘Desperately Needed’ Touring Fund - Billboard](https://www.billboard.com/pro/uk-artist-touring-fund-harry-styles-made-possible/) - Billboard
+- [Dot Rotten, Rapper and Grime Pioneer, Dies at 37](https://pitchfork.com/news/dot-rotten-rapper-and-grime-pioneer-dies-at-37/) - Pitchfork
+- [Tributes paid as grime star Dot Rotten dies, aged 37 - BBC](https://www.bbc.com/news/articles/c0k1y5v41dgo) - Bbc
+- [The Ballad Of JUDAS PRIEST Documentary To Premiere In North America At Hot Docs Festival](https://metalinjection.net/news/the-ballad-of-judas-priest-documentary-to-premiere-in-north-america-at-hot-docs-festival) - Metal Injection.net
+- [Everything You Need to Know About the Live Nation Settlement and What Comes Next](http://www.rollingstone.com/music/music-news/live-nation-settlement-need-to-know-next-1235528047/) - Rolling Stone
+- [Live Nation reaches settlement with DOJ, state AGs vow to keep pressing the case](https://www.celebitchy.com/966124/live_nation_reaches_settlement_with_doj_state_ags_vow_to_keep_pressing_the_case/) - Celebitchy.com
+- [Live Nation and Justice Department reach settlement in antitrust case - WBUR](https://www.wbur.org/npr/nx-s1-5742433/live-nation-ticketmaster-doj-antitrust-case) - Wbur
+- [Live Nation and Justice Department reach settlement in antitrust case - WFAE](https://www.wfae.org/npr-arts-life/2026-03-09/live-nation-and-justice-department-reach-settlement-in-antitrust-case) - Wfae
+- [Live Nation and Justice Department reach settlement in antitrust case - WHRO](https://www.whro.org/2026-03-09/live-nation-and-justice-department-reach-settlement-in-antitrust-case) - Whro
+- [Bipartisan group of states refuse to sign settlement between Justice Department and Live Nation - Politico](https://www.politico.com/news/2026/03/09/live-nation-states-oppose-settlement-agreement-00819029) - Politico
+- [Pennsylvania joins push to reject Live Nation settlement - Axios](https://www.axios.com/local/pittsburgh/2026/03/10/pa-ag-joins-states-opposing-live-nation-doj-settlement) - Axios
+- [Live Nation Reaches Settlement With DOJ in Antitrust Case - Insurance Journal](https://www.insurancejournal.com/news/national/2026/03/09/861106.htm) - Insurancejournal
+- [Bon Jovi Movie Set At Universal Pictures](http://deadline.com/2026/03/bon-jovi-movie-deal-universal-pictures-jon-bon-jovi-1236748719/) - Deadline
+- [Universal Lands ’80s-Focused Bon Jovi Biopic](https://www.spin.com/2026/03/universal-bon-jovi-biopic/) - SPIN
+- [Major Studio Wins Bidding War for Bon Jovi Biopic](https://loudwire.com/bon-jovi-biopic-universal/) - Loudwire
+- [Bon Jovi Biopic Movie Exploring the Band's Early Days in the Works at Universal](https://www.ign.com/articles/bon-jovi-biopic-movie-exploring-the-bands-early-days-in-the-works-at-universal) - IGN
+- [Bon Jovi biopic in the works from Universal Pictures - The Guardian](https://www.theguardian.com/music/2026/mar/10/bon-jovi-biopic) - Theguardian
+- [Bon Jovi Movie Set At Universal Pictures - Deadline](https://deadline.com/2026/03/bon-jovi-movie-deal-universal-pictures-jon-bon-jovi-1236748719/) - Deadline
+- [Bon Jovi Music Biopic in the Works at Universal - Variety Australia](https://au.variety.com/2026/music/news/bon-jovi-movie-universal-34072/) - Variety
+- [Stream It Or Skip It: ‘Harry Styles: One Night In Manchester’ on Netflix, Where The Local Boy Pop Star Brings His New Act Back Home](https://decider.com/2026/03/10/harry-styles-one-night-in-manchester-netflix-review/) - Decider
+- [Harry Styles Bringing One Night Only Concert to Netflix - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/harry-styles-one-night-only-concert-netflix-1236519598/) - Hollywoodreporter
+- [Harry Styles and Netflix Share Trailer for One-Night-Only Manchester Concert Special: “Let Me Go to Work” - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/harry-styles-netflix-trailer-one-night-in-manchester-concert-1236522782/) - Hollywoodreporter
+- [Harry Styles Is Making Sure All of His Fans Can Watch the Manchester Album Release Show: Here’s How - Billboard](https://www.billboard.com/music/music-news/harry-styles-manchester-album-release-show-how-to-watch-1236189650/) - Billboard
+- [Harry Styles Concert Coming To Netflix - Deadline](https://deadline.com/2026/03/harry-styles-live-concert-coming-to-netflix-1236741082/) - Deadline
+- [‘Harry Styles. One Night in Manchester’ Trailer: Netflix Provides Front Row Seat With Concert Stream Of New Album - Deadline](https://deadline.com/2026/03/harry-styles-one-night-in-manchester-trailer-netflix-1236747071/) - Deadline
+- [Straight Hedge! Noel Gardner Reviews Punk & HC for March](https://thequietus.com/quietus-reviews/punk/best-new-punk-hardcore-music-march-2026-draumar-born-skumhammer/) - The Quietus
+- [A Love Letter To Scion A/V: The Car Brand That Put Out Great Music By MESHUGGAH, REVOCATION, CORROSION OF CONFORMITY & More](https://metalinjection.net/lists/a-love-letter-to-scion-a-v-the-car-brand-that-put-out-great-music-by-meshuggah-revocation-corrosion-of-conformity-more) - Metal Injection.net
+- [Prostitute on ’Attempted Martyr,’ and making political music that doesn’t proselytize](https://www.thefader.com/2026/03/10/prostitute-attempted-martyr-band-politics-interview) - The FADER
