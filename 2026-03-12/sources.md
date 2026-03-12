@@ -1,0 +1,39 @@
+# Sources for 2026-03-12 News Episode 
+- [‘20 years ago, this industry was fighting for survival’ — Spotify claims it’s saved music, but its new report is only one side of the album](https://www.techradar.com/audio/spotify/20-years-ago-this-industry-was-fighting-for-survival-spotify-claims-its-saved-music-but-its-new-report-is-only-one-side-of-the-album) - TechRadar
+- [Spotify Paid More Than $11 Billion to the Music Business in 2025: Loud & Clear Report - Billboard](https://www.billboard.com/pro/spotify-paid-music-industry-2025-loud-clear-report/) - Billboard
+- [Artists From 75 Different Countries Made at Least $500,000 On Spotify Last Year - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/spotify-loud-and-clear-2026-global-music-increases-1236527084/) - Hollywoodreporter
+- [Spotify once had a reputation for underpaying music artists. It hopes to change that perception - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-03-10/spotify-11-billion-music-payout) - Latimes
+- [The Black Crowes Have No Time for AI Songwriting: ‘It’s Lazy Bullshit’](http://www.rollingstone.com/music/music-features/the-black-crowes-ai-songwriting-interview-1235527865/) - Rolling Stone
+- [The Black Crowes Share Their Current Approach to Making Music With New ‘A Pound of Feathers’ Album: ‘F— It, Let’s Just Keep Going’ - Billboard](https://www.billboard.com/music/rock/black-crowes-interview-new-album-a-pound-of-feathers-1236196425/) - Billboard
+- [DEVIN TOWNSEND Unveils Ambitious New Album The Moth, Due Out This May](https://metalinjection.net/new-music/devin-townsend-unveils-ambitious-new-album-the-moth-due-out-this-may) - Metal Injection.net
+- [DEVIN TOWNSEND Unveils Ambitious New Album The Moth, Due Out This May](https://metalinjection.net/upcoming-releases/devin-townsend-unveils-ambitious-new-album-the-moth-due-out-this-may) - Metal Injection.net
+- [Kacey Musgraves’ New Album Was Made ‘During the Longest Single Period of My Life’](http://www.rollingstone.com/music/music-news/kacey-musgraves-new-album-middle-of-nowhere-dry-spell-1235527425/) - Rolling Stone
+- [Kacey Musgraves Reveals New Album Middle of Nowhere and Single - Pitchfork](https://pitchfork.com/news/kacey-musgraves-reveals-new-album-and-song/) - Pitchfork
+- [Kacey Musgraves Announces New Album 'Middle Of Nowhere': Hear 'Dry Spell' - Stereogum](https://stereogum.com/2491867/kacey-musgraves-announces-new-album-middle-of-nowhere-feat-willie-nelson-miranda-lambert-billy-strings-more-hear-dry-spell/music) - Stereogum
+- [Kacey Musgraves announces new album with Texas roots, May 1 release - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/11/kacey-musgraves-new-album-may-1/89107642007/) - Usatoday
+- [On her new album, Kacey Musgraves returns home, to the 'Middle of Nowhere' - NPR](https://www.npr.org/2026/03/11/nx-s1-5744621/kacey-musgraves-middle-of-nowhere-dry-spell-interview) - Npr
+- [Kacey Musgraves Needs Some Action On New Song “Dry Spell” - Genius](https://genius.com/a/kacey-musgraves-needs-some-action-on-new-song-dry-spell) - Genius
+- [On her new album, Kacey Musgraves returns home, to the 'Middle of Nowhere' - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-11/on-her-new-album-kacey-musgraves-returns-home-to-the-middle-of-nowhere) - Iowapublicradio
+- [Bad Bunny Wins Dismissal of Sample-Clearance Lawsuit](https://pitchfork.com/news/bad-bunny-wins-dismissal-of-sample-clearance-lawsuit/) - Pitchfork
+- [Live Nation Settlement, Dionne Warwick Lawsuit, Bad Bunny Victory & More Top Music Law News - Billboard](https://www.billboard.com/pro/live-nation-settlement-dionne-warwick-bad-bunny-music-law/) - Billboard
+- ['Catch Catch' Lyrics & English Translation: K-Pop's Yena Drops Solo Song & Mini-Album 'Love Catcher'](https://www.justjared.com/2026/03/11/catch-catch-lyrics-english-translation-k-pops-yena-drops-solo-song-mini-album-love-catcher/) - Just Jared
+- [Music reviews: Bruno Mars, Mitski, and Gorillaz](https://theweek.com/culture-life/music/bruno-mars-mitski-gorillaz) - The Week Magazine
+- [Bruno Mars Confirms New Album Is Finished: ‘My Album Is Done’ - Billboard](https://www.billboard.com/music/pop/bruno-mars-confirms-new-album-finished-1236149443/) - Billboard
+- [Bruno Mars’ ‘The Romantic’: All 9 Tracks Ranked - Billboard](https://www.billboard.com/lists/bruno-mars-the-romantic-tracks-ranked/) - Billboard
+- [Bruno Mars: The Romantic review – you’re better off listening to the songs he’s blatantly imitating - The Guardian](https://www.theguardian.com/music/2026/feb/27/bruno-mars-the-romantic-review-youre-better-off-listening-to-the-songs-hes-blatantly-imitating) - Theguardian
+- [‘The Romantic’ by Bruno Mars Review: Polish Without Purpose - WSJ](https://www.wsj.com/arts-culture/music/the-romantic-by-bruno-mars-review-polish-without-purpose-2e53e5d9?gaa_at=eafs&gaa_n=AWEtsqesx37gX9vao26ebBRKucn5lgqLCCwO98GVEhYU-duln0iRRgDIb_-u&gaa_ts=69a7f2e8&gaa_sig=lmhFg3aTXwHJ_Z8q-5Bkd_YQApsnPIj5v2RFwA7nRL9dQC2hG3MYjDhgGPticXB6ZVMpDq-IoTRmEb-6aOZWcw%3D%3D) - Wsj
+- [The best new albums out Feb. 27 - NPR](https://www.npr.org/2026/02/27/nx-s1-5727557/new-music-friday-best-albums-feb-27) - Npr
+- [Gorillaz announce ‘The Mountain Tour,’ MSG show. Get tickets today - New York Post](https://nypost.com/2026/03/03/ticket-sales/gorillaz-mountain-tour-2026-where-to-buy-tickets-schedule/) - Nypost
+- [Empire of the Sun Announce 2026 North American Tour](https://consequence.net/2026/03/empire-of-the-sun-2026-north-american-tour/) - Consequence.net
+- [Sigh Announce Return to the U.S. for the First Time in Nearly 20 Years](https://www.metalsucks.net/2026/03/11/sigh-announce-return-to-the-u-s-for-the-first-time-in-nearly-20-years/) - MetalSucks
+- [‘Power Ballad’ Trailer: First Look At Paul Rudd & Nick Jonas In John Carney Comedy](http://deadline.com/2026/03/power-ballad-trailer-paul-rudd-nick-jonas-john-carney-1236749892/) - Deadline
+- ['Power Ballad' Trailer: Nick Jonas Steals Song From Paul Rudd In New Movie - Watch Now!](https://www.justjared.com/2026/03/11/power-ballad-trailer-nick-jonas-steals-song-from-paul-rudd-in-new-movie-watch-now/) - Just Jared
+- [‘Power Ballad’ Trailer: Nick Jonas and Paul Rudd Clash Over Song Authorship](https://www.thewrap.com/creative-content/movies/power-ballad-trailer-paul-rudd-nick-jonas/) - TheWrap
+- [Trailer for POWER BALLAD Sees Paul Rudd and Nick Jonas Collide Over a Hit Song in John Carney's Music Comedy](https://geektyrant.com/news/trailer-for-power-ballad-sees-paul-rudd-and-nick-jonas-collide-over-a-hit-song-in-john-carneys-music-comedy) - GeekTyrant
+- [Nick Jonas steals Paul Rudd’s song in the trailer for Power Ballad](https://www.joblo.com/power-ballad-trailer/) - JoBlo.com
+- [NHKテクノロジーズ「SXSW2026」に出展　「眉村ちあき」とコラボ](https://prtimes.jp/main/html/rd/p/000000005.000151849.html) - Prtimes.jp
+- [Laskaar Closes One Chapter and Opens Another With “Materialista”](https://fuckingyoung.es/laskaar-closes-one-chapter-and-opens-another-with-materialista/) - Fuckingyoung.es
+- [Travis Scott Hit With Hard No On Request To Dismiss “Telekinesis” Copyright Lawsuit](https://hiphopwired.com/3047949/travis-scott-victory-boyd-lawsuit/) - Hip-Hop Wired
+- [Live Nation Settlement, Dionne Warwick Lawsuit, Bad Bunny Victory & More Top Music Law News - Billboard](https://www.billboard.com/pro/live-nation-settlement-dionne-warwick-bad-bunny-music-law/) - Billboard
+- [Dave Matthews Performs a Trio of Politically-Charged Tunes on Colbert: Watch](https://consequence.net/2026/03/dave-matthews-the-late-show-colbert-performance-watch/) - Consequence.net
+- [Tanya Tagaq – Saputjiji](https://thequietus.com/quietus-reviews/tanya-tagaq-saputjiji-review/) - The Quietus
