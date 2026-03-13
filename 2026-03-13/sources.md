@@ -1,0 +1,44 @@
+# Sources for 2026-03-13 News Episode 
+- [The Pussycat Dolls Announce Massive 2026 Reunion Tour, Reveal “Club Song”: Stream](https://consequence.net/2026/03/the-pussycat-dolls-2026-reunion-tour-club-song-stream/) - Consequence.net
+- [Pussycat Dolls Announce 'PCD Forever' 2026 World Tour Celebrating 20 Years With Lil Kim & Mya](https://www.justjared.com/2026/03/12/pussycat-dolls-announce-pcd-forever-2026-world-tour-celebrating-20-years-with-lil-kim-mya/) - Just Jared
+- [The Pussycat Dolls confirm reunion with new single and tour – how to get tickets](https://www.thepinknews.com/2026/03/12/the-pussycat-dolls-reunion-new-single-tour-how-to-get-tickets/) - Thepinknews.com
+- [The Pussycat Dolls Return for Summer Tour, New Single](https://exclaim.ca/music/article/the-pussycat-dolls-return-for-summer-tour-new-single) - Exclaim!
+- [The Pussycat Dolls to reunite as a trio for new single and world tour - BBC](https://www.bbc.com/news/articles/cwykd08eyg5o) - Bbc
+- [Pussycat Dolls Reunite as a Trio, Release New Single ‘Club Song’ and Announce ‘PCD Forever’ Global Tour - variety.com](https://variety.com/2026/music/news/pussycat-dolls-reunite-new-single-club-song-global-tour-1236683789/) - Variety
+- [Pussycat Dolls drop new song, announce global reunion tour - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/12/pussycat-dolls-tour-new-song/89118849007/) - Usatoday
+- [Pussycat Dolls announce 2026 reunion tour, MSG show. Get tickets - New York Post](https://nypost.com/2026/03/12/ticket-sales/pussycat-dolls-reunion-tour-2026-where-to-buy-tickets-schedule/?utm_campaign=nypost&utm_medium=referral) - Nypost
+- [The Pussycat Dolls Plot Major Comeback Tour With U.K., Europe & North America Arena Dates - Billboard](https://www.billboard.com/music/pop/pussycat-dolls-reunion-tour-2026-dates-1236196828/) - Billboard
+- [The Pussycat Dolls Are Back! What to Know About 53-Date 'PCD Forever Tour' - TODAY.com](https://www.today.com/popculture/music/pussycat-dolls-reunion-tour-dates-tickets-rcna263152) - Today
+- [There's more than one path to a confessional song](https://www.npr.org/2026/03/12/nx-s1-5740560/yebba-jean-pimmie-dont-come-home-review) - NPR
+- [There's more than one path to a confessional song - Maine Public](https://www.mainepublic.org/npr-news/2026-03-12/theres-more-than-one-path-to-a-confessional-song) - Mainepublic
+- [Bruce Springsteen Leads Massive Shane MacGowan Tribute LP](https://spinmagazine.com/2026/03/bruce-springsteen-shane-macgowan-tribute-lp/) - Spinmagazine.com
+- [Bruce Springsteen Shares ‘A Rainy Night in Soho’ From Upcoming Shane McGowan Tribute LP](http://www.rollingstone.com/music/music-news/bruce-springsteen-a-rainy-night-in-soho-mcgowan-tribute-1235529161/) - Rolling Stone
+- [Shane MacGowan Tribute Album Announced with Bruce Springsteen Cover of “A Rainy Night in Soho”](https://consequence.net/2026/03/shane-macgowan-tribute-album-springsteen-cover/) - Consequence.net
+- [Bruce Springsteen Leads Massive Shane MacGowan Tribute LP](https://www.spin.com/2026/03/bruce-springsteen-shane-macgowan-tribute-lp/) - SPIN
+- ["Shane was all naked bottomless humanity": Bruce Springsteen leads Shane McGowan tribute album](https://www.thelineofbestfit.com/news/bruce-springsteen-leads-shane-mcgowan-tribute-album) - Thelineofbestfit.com
+- [Bruce Springsteen, Hozier, Jessie Buckley and Kate Moss among stars on Shane MacGowan tribute album](https://www.thejournal.ie/bruce-springsteen-hozier-jessie-buckley-shane-macgowan-tribute-album-6982602-Mar2026/) - TheJournal.ie
+- [Chris Robinson Says the Black Crowes’ Brotherly Truce Lit the Way for Oasis Reunion](http://www.rollingstone.com/music/music-news/the-black-crowes-influenced-oasis-reunion-1235528890/) - Rolling Stone
+- [All the Pop Queens Are in the Studio Right Now](http://www.rollingstone.com/music/music-news/olivia-rodrigo-clairo-dua-lipa-recording-albums-1235528731/) - Rolling Stone
+- [1972 John Lennon/Yoko Ono Concerts Head To Cinemas](https://www.spinmagazine.com/2026/03/john-lennon-yoko-ono-concerts-cinemas/) - Spinmagazine.com
+- ["They combine the best parts of Rammstein, Iron Maiden and Ghost". Flame-throwing organs, witch burnings and inflatable pickaxes: Heavy metal's nerdiest subgenre just conquered one of the UK's most iconic arenas](https://www.loudersound.com/bands-artists/live-performances/powerwolf-wake-up-the-wicked-live-review-wembley-arena) - Louder
+- [UNSANE Announce North American Tour Celebrating Occupational Hazard](https://metalinjection.net/tour-dates/unsane-announce-north-american-tour-celebrating-occupational-hazard) - Metal Injection.net
+- [Ravinia Festival 2026: Over 90 concerts featuring Ricky Martin and Hugh Jackman — here’s the full schedule](https://economictimes.indiatimes.com/news/international/us/ravinia-festival-2026-over-90-concerts-featuring-ricky-martin-and-hugh-jackman-heres-the-full-schedule/articleshow/129511234.cms) - The Times of India
+- [Ravinia Festival 2026: Full lineup, schedule and ticket info](https://www.timeout.com/chicago/news/ravinia-festival-2026-full-lineup-schedule-and-ticket-info-031226) - Time Out
+- [Ravinia's full 2026 summer lineup announced. See the schedule - NBC 5 Chicago](https://www.nbcchicago.com/news/local/ravinia-2026-music-festival-full-lineup-announcement/3906731/) - Nbcchicago
+- [Ravinia Festival this summer: The CSO, Paul Simon and Ricky Martin in a brand new Pavilion - Chicago Tribune](https://www.chicagotribune.com/2026/03/12/ravinia-2026-season/) - Chicagotribune
+- [beabadoobee Enlists The Marías For New Single](https://spinmagazine.com/2026/03/beabadoobee-the-marias-new-single/) - Spinmagazine.com
+- [Beabadoobee and the Marías Team Up for New Song “All I Did Was Dream of You”](https://pitchfork.com/news/beabadoobee-the-marias-all-i-did-was-dream-of-you/) - Pitchfork
+- [Beabadoobee Releases “All I Did Was Dream Of You” Featuring The Marías: Stream](https://consequence.net/2026/03/beabadoobee-new-single-dream-of-you/) - Consequence.net
+- [Beabadoobee Recruits The Marías for Dramatic New Song ‘All I Did Was Dream of You’ - Billboard](https://www.billboard.com/music/rock/beabadoobee-the-marias-all-i-did-was-dream-of-you-1236198120/) - Billboard
+- [James Blake review, Trying Times – Electronic balladeer finds a way through his frustrations with the music industry](https://www.the-independent.com/arts-entertainment/music/reviews/james-blake-trying-times-review-b2937090.html) - The-independent.com
+- [James Blake escaped the major label labyrinth. Now, he’s got an album to show for it - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-03-13/james-blake-new-album-trying-times-interview) - Latimes
+- [James Blake: Trying Times review – platitudes about politics and Kanye can’t detract from an excellent album - The Guardian](https://www.theguardian.com/music/2026/mar/13/james-blake-trying-times-review) - Theguardian
+- [Drug Church Get Romantic With Riffy ‘Pynch’](http://www.rollingstone.com/music/music-news/drug-church-pynch-video-1235529098/) - Rolling Stone
+- [How Harry Styles' 'Together, Together' Tour Will Be Different From the Past](https://www.usmagazine.com/celebrity-news/news/harry-styles-is-doing-residency-tour-to-avoid-burnout/) - Us Weekly
+- [Harry Styles Explains Why Doing Mini-Residencies Instead of Traditional Tour Is ‘Really Important to Me’ - Billboard](https://www.billboard.com/music/music-news/harry-styles-explains-mini-residencies-2026-tour-1236191829/) - Billboard
+- [Tour or residency? Jade, CMAT and Wolf Alice speak out - BBC](https://www.bbc.com/news/articles/cy8ly0gpl1xo) - Bbc
+- [Harry Styles Bringing One Night Only Concert to Netflix - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/harry-styles-one-night-only-concert-netflix-1236519598/) - Hollywoodreporter
+- [Harry Styles Is Ready to ‘Go to Work’ in Thrilling ‘One Night in Manchester’ Trailer - Billboard](https://www.billboard.com/culture/tv-film/harry-styles-one-night-in-manchester-trailer-1236193066/) - Billboard
+- [Harry Styles Is Making Sure All of His Fans Can Watch the Manchester Album Release Show: Here’s How - Billboard](https://www.billboard.com/music/music-news/harry-styles-manchester-album-release-show-how-to-watch-1236189650/) - Billboard
+- [‘Harry Styles. One Night in Manchester’ Trailer: Netflix Provides Front Row Seat With Concert Stream Of New Album - Deadline](https://deadline.com/2026/03/harry-styles-one-night-in-manchester-trailer-netflix-1236747071/) - Deadline
+- [ONEmpire seals deal with The Hello Group India](http://musically.com/2026/03/12/onempire-seals-deal-with-the-hello-group-india/) - Music Ally
