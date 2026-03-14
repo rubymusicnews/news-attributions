@@ -1,0 +1,38 @@
+# Sources for 2026-03-14 News Episode 
+- [Rosalía releases TikTok-fuelled “Berghain” techno remix](http://musically.com/2026/03/13/rosalia-releases-tiktok-fuelled-berghain-techno-remix/) - Music Ally
+- [Apple Music and TikTok Team Up for ‘Play Full Songs’ Feature, Listening Parties - Billboard](https://www.billboard.com/pro/apple-music-tiktok-full-song-playback-feature/) - Billboard
+- [40 Amazing Photographs From The Beatles’ “Abbey Road” Album Sessions in 1969](https://www.vintag.es/2026/03/abbey-road-sessions.html) - Vintag.es
+- ['Dad's death changed my song writing forever' - how grief shaped Foy Vance's music](https://www.bbc.com/news/articles/cp8reznmmg5o) - BBC News
+- [Foy Vance Mourned His Father Over Seven Albums. He Finally Buries Him on ‘The Wake’](http://www.rollingstone.com/music/music-features/foy-vance-grief-albums-the-wake-1235529884/) - Rolling Stone
+- [Foy Vance – The Wake (2026)](https://exystence.net/blog/2026/03/13/foy-vance-the-wake-2026/) - Exystence.net
+- [12 New Rock + Metal Tours Announced This Past Week](https://loudwire.com/new-rock-metal-tours-announced-march-6-12-2026/) - Loudwire
+- [When We Were Young Festival 2026 Canceled - Pitchfork](https://pitchfork.com/news/when-we-were-young-festival-2026-canceled/) - Pitchfork
+- [Pink Floyd rocker David Gilmour's go-to guitar fetches record-setting $14.55M US at auction](https://www.cbc.ca/news/entertainment/auction-christies-black-strat-9.7127706) - CBC News
+- [Pink Floyd’s instrument shatters records at NYC sale — becoming most expensive guitar ever sold at auction](https://nypost.com/2026/03/13/us-news/pink-floyds-instrument-shatters-records-at-nyc-sale-becoming-most-expensive-guitar-ever-sold-at-auction/) - New York Post
+- [David Gilmour’s Black Strat is the world’s most expensive guitar again - selling for a staggering $14,550,000 - Guitar.com](https://guitar.com/news/david-gilmour-black-strat-sold-auction-world-record/) - Guitar
+- [David Gilmour's 'Black Strat' Sells for $12.1 Million, Becoming the Most Expensive Guitar Ever Sold - Rolling Stone](https://www.rollingstone.com/music/music-news/david-gilmour-black-strat-sells-12-million-auction-1235529794/) - Rollingstone
+- [David Gilmour’s Iconic ‘Black Strat’ Smashes All-Time Record For Most Expensive Guitar Ever Sold - Billboard](https://www.billboard.com/music/music-news/david-gilmour-all-time-record-most-expensive-guitar-auction-1236198709/) - Billboard
+- [Jerry Garcia "Tiger" Guitar Sells For $11.5 Million At Auction, Obliterating $1–2 Million Pre-Sale Estimate - Live For Live Music](https://liveforlivemusic.com/news/jerry-garcia-tiger-guitar-sells-for-11-5-million-at-auction/) - Liveforlivemusic
+- [Reissue of the Week: Prostitute’s Attempted Martyr](https://thequietus.com/quietus-reviews/reissue-of-the-week/prostitute-attempted-martyr-reissue-review-mute/) - The Quietus
+- [Singer Labrinth Blasts ‘Euphoria,’ Columbia Records in Cryptic Post Saying He’s Done With Entertainment Industry](https://www.thewrap.com/creative-content/tv-shows/labrinth-blasts-euphoria-columbia-records-quitting-industry/) - TheWrap
+- [Labrinth Is Not Feeling the Euphoria](http://www.vulture.com/article/labrinth-retires-and-lashes-out-against-euphoria.html) - Vulture
+- [Labrinth blasts entertainment industry, 'Euphoria' in cryptic post - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/13/labrinth-euphoria-instagram-post/89139218007/) - Usatoday
+- [Labrinth Says He’s Done With the Industry: “F*** Columbia. Double F*** ‘Euphoria’” - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/labrinth-blasts-columbia-records-euphoria-1236530159/) - Hollywoodreporter
+- [Labrinth says he’s “done” with music industry, hits out at label and ‘Euphoria’ - NME](https://www.nme.com/news/music/labrinth-is-done-with-music-industry-and-hits-out-at-euphoria-3934274) - Nme
+- [Labrinth Says ‘F— “Euphoria”‘ in Cryptic Social Media Post: ‘I’m Done With This Industry’ - Variety](https://variety.com/2026/tv/global/labrinth-f-euphoria-done-with-this-industry-1236686764/) - Variety
+- [‘Euphoria’ artist Labrinth slams show — and Columbia Records — as he announces exit: ‘Done with this industry’ - Page Six](https://pagesix.com/2026/03/13/entertainment/euphoria-artist-labrinth-slams-show-announces-exit-done-with-this-industry/) - Pagesix
+- [Euphoria Composer Labrinth Claims He's 'Done' With the Industry and the Show Ahead of Season 3 - IGN](https://www.ign.com/articles/euphoria-composer-labrinth-claims-hes-done-with-the-industry-and-the-show-ahead-of-season-3) - Ign
+- [What Gen Z’s growing interest in analog means for music](http://musically.com/2026/03/13/what-gen-zs-growing-interest-in-analog-means-for-music/) - Music Ally
+- [Gen Zers Are Canceling Spotify and Buying CDs Instead—Here’s Why - Newsweek](https://www.newsweek.com/gen-zers-canceling-spotify-buying-cds-insteadheres-why-11627004) - Newsweek
+- [Sturgill Simpson on ‘Mutiny After Midnight’: ‘I’ve Always Really Wanted to Leak My Own Record’](http://www.rollingstone.com/music/music-news/sturgill-simpson-leaks-his-own-album-johnny-blue-skies-1235530114/) - Rolling Stone
+- [New Music Friday: Johnny Blue Skies and the Dark Clouds](https://www.npr.org/2026/03/13/nx-s1-5745172/new-music-friday-johnny-blue-skies-and-the-dark-clouds) - NPR
+- [Johnny Blue Skies & the Dark Clouds Set Upcoming Album ‘Mutiny After Midnight’ — And It’s a ‘Dance Record’ - Billboard](https://www.billboard.com/music/music-news/johnny-blue-skies-dark-clouds-mutiny-after-midnight-album-1236181035/) - Billboard
+- [Johnny Blue Skies & The Dark Clouds Surprise-Release New Album 'Mutiny After Midnight' - stereogum.com](https://stereogum.com/2490818/johnny-blue-skies-the-dark-clouds-surprise-release-new-album-mutiny-after-midnight/music) - Stereogum
+- [Sturgill Simpson, Olivia Rodrigo: 8 Songs We’re Talking About This Week - The New York Times](https://www.nytimes.com/2026/03/07/arts/music/sturgill-simpson-olivia-rodrigo-harry-styles-new-songs.html) - Nytimes
+- [DJ Akademiks Reacts to Drake’s ICEMAN Snippet: ‘I Don’t Like It’!](https://mediatakeout.com/dj-akademiks-reacts-to-drakes-iceman-snippet-i-dont-like-it/) - Mediatakeout.com
+- [Drake Posts Cryptic ‘Iceman’ Teaser: ‘What I Was Doing When You Thought I Was Crying’ - Billboard](https://www.billboard.com/music/rb-hip-hop/drake-iceman-teaser-cryptic-post-1236190609/) - Billboard
+- [The Scratch break down every track on their new album 'Pull Like A Dog'!](https://www.punknews.org/article/87795/the-scratch-break-down-every-track-on-their-new-album-pull-like-a-dog) - Punknews.org
+- [Steckbrief - Das steckt hinter dem Erfolg von Rapper Milano](https://www.bild.de/unterhaltung/stars-und-leute/milano-im-steckbrief-woher-kennt-man-den-rapper-698de762f2a7a9e035a9fbb5) - Bild
+- [Robyn reimagines her 2002 song, ‘Blow My Mind’, in tribute to her son: Listen](https://djmag.com/news/robyn-reimagines-her-2002-song-blow-my-mind-tribute-her-son-listen) - DJ Mag
+- [Robyn Is Still Dancing On Her Own - The Atlantic](https://www.theatlantic.com/magazine/2026/04/robyn-sexistential-album/686065/) - Theatlantic
+- [Rolling Stone’s Future of Music Festival Night One Electrifies ACL Live](http://www.denofgeek.com/culture/rolling-stones-future-of-music-festival-night-one-electrifies-acl-live/) - Den of Geek US
