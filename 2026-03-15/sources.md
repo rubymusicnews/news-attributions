@@ -1,0 +1,36 @@
+# Sources for 2026-03-15 News Episode 
+- [TikTok And Apple Music Announce Integrated Streaming Features](https://www.ubergizmo.com/2026/03/tiktok-and-apple-music/) - Ubergizmo
+- [TikTok now lets Apple Music subscribers play full songs without leaving the app - TechCrunch](https://techcrunch.com/2026/03/11/tiktok-now-lets-apple-music-subscribers-play-full-songs-without-leaving-the-app/) - Techcrunch
+- [Apple Music and TikTok Team Up for ‘Play Full Songs’ Feature, Listening Parties - Billboard](https://www.billboard.com/pro/apple-music-tiktok-full-song-playback-feature/) - Billboard
+- [TikTok Teams With Apple Music to Allow Users to Stream Full Songs - Variety](https://variety.com/2026/music/news/apple-music-tiktok-partner-launch-feature-stream-full-songs-1236684192/) - Variety
+- [Phil Campbell, Motörhead Guitarist, Dead at 64](https://consequence.net/2026/03/phil-campbell-motorhead-guitarist-dead/) - Consequence.net
+- [Phil Campbell Dies: Motörhead Guitarist Was 64](http://deadline.com/2026/03/phil-campbell-dies-64-1236753583/) - Deadline
+- [PHIL CAMPBELL Of MOTÖRHEAD Dead At 64](https://metalinjection.net/this-is-just-a-tribute/phil-campbell-of-motorhead-dead-at-64) - Metal Injection.net
+- [Phil Campbell, Longtime Motorhead Guitarist, Dead at 64](http://www.rollingstone.com/music/music-news/phil-campbell-motorhead-guitarist-dead-obituary-1235530568/) - Rolling Stone
+- [Phil Campbell Death: Motorhead Guitarist Dies at 64](http://www.billboard.com/music/rock/phil-campbell-death-motorhead-guitarist-dies-obituary-1236199319/) - Billboard
+- [Phil Campbell, Motörhead Guitarist, Dead at 64](https://variety.com/2026/music/news/phil-campbell-dead-motorhead-1236688004/) - Variety
+- [Longtime Motorhead Guitarist Phil Campbell Dies at 64](https://loudwire.com/motorhead-guitarist-phil-campbell-dead-64/) - Loudwire
+- [Motörhead guitarist Phil Campbell dead at 64](https://www.foxnews.com/entertainment/motorhead-guitarist-phil-campbell-dead-64) - Fox News
+- [Former Motorhead Guitarist Phil Campbell Passes Away At The Age Of 64](http://www.metalunderground.com/news/details.cfm?newsid=161022) - Metalunderground.com
+- [Phil Campbell, longtime Motörhead guitarist, dead at 64](https://pagesix.com/2026/03/14/celebrity-news/phil-campbell-longtime-motorhead-guitarist-dead-at-64/) - Page Six
+- [Motörhead guitarist Phil Campbell dies after 'complex' operation](https://www.usatoday.com/story/entertainment/music/2026/03/14/motorhead-guitarist-phil-campbell-dies/89152986007/) - USA Today
+- [Motörhead ‘devastated’ as guitarist Phil Campbell dies aged 64](https://www.the-independent.com/arts-entertainment/music/news/phil-campbell-death-cause-motorhead-b2938606.html) - The-independent.com
+- [Mötorhead guitarist Phil Campbell seen beaming with pals in final photo before his death](https://pagesix.com/2026/03/14/celebrity-news/motorhead-guitarist-phil-campbell-seen-with-pals-in-final-photo/) - Page Six
+- [The Pretty Reckless Announce Fifth Album 'DEAR GOD'](http://www.billboard.com/music/rock/the-pretty-reckless-announce-fifth-album-dear-god-1236199275/) - Billboard
+- [The Pretty Reckless Announce Fifth Album ‘DEAR GOD’, Share New Single ‘When I Wake Up’ - billboard.com](https://www.billboard.com/music/rock/the-pretty-reckless-announce-fifth-album-dear-god-1236199275/) - Billboard
+- [‘Enjoy Your Time Off!’: How the Black Crowes Snatched an Aerosmith Tour From Another Band](http://www.rollingstone.com/music/music-news/the-black-crowes-aerosmith-tour-drama-1235530208/) - Rolling Stone
+- [Derek Trucks Plays Jerry Garcia’s “Tiger” Guitar in Concert Following $11.5 Million Auction Purchase](https://consequence.net/2026/03/derek-trucks-jerry-garcia-guitar/) - Consequence.net
+- [Jerry Garcia "Tiger" Guitar Sells For $11.5 Million At Auction, Obliterating $1–2 Million Pre-Sale Estimate - Live For Live Music](https://liveforlivemusic.com/news/jerry-garcia-tiger-guitar-sells-for-11-5-million-at-auction/) - Liveforlivemusic
+- [Derek Trucks Plays Jerry Garcia's "Tiger" Guitar At Beacon Theatre One Day After Historic $11.5M Auction [Videos] - Live For Live Music](https://liveforlivemusic.com/news/derek-trucks-plays-jerry-garcias-tiger-beacon-theatre-3-13-26/) - Liveforlivemusic
+- [Vive Latino 2026 EN VIVO: Horarios y dónde ver de la transmisión del festival](https://www.elfinanciero.com.mx/entretenimiento/2026/03/14/vive-latino-2026-en-vivo-horarios-y-donde-ver-de-la-transmision-del-festival/) - El Financiero
+- [Vive Latino is Ready for Salsa with El Gran Combo de Puerto Rico - Billboard](https://www.billboard.com/music/latin/mexicos-vive-latino-festival-salsa-gran-combo-puerto-rico-1236197888/) - Billboard
+- [An evening with David Byrne: an indefinable, uplifting, soul-saving live performance](https://www.irishtimes.com/culture/music/review/2026/03/14/an-evening-with-david-byrne-an-indefinable-uplifting-soul-saving-live-performance/) - The Irish Times
+- [For Sale: John Lennon’s Rickenbacker Guitar](https://silodrome.com/john-lennon-rickenbacker-guitar/) - Silodrome.com
+- [Lainey Wilson can't sit still — she wouldn't have it any other way](https://www.abc.net.au/news/2026-03-15/lainey-wilson-stagecoach-netflix-cant-sit-still/106364822) - ABC News (AU)
+- [Lainey Wilson says city people have wrong view of country towns as she defends her 'blue collar' roots - Fox News](https://www.foxnews.com/entertainment/lainey-wilson-city-people-have-wrong-view-country-towns-defends-blue-collar-roots) - Foxnews
+- [The Best Pop-Punk Album of Each Year of the 1990s](https://loudwire.com/the-best-pop-punk-album-each-year-1990s/) - Loudwire
+- [Vans Warped Tour Announces Full Washington, D.C., Lineup - Billboard](https://www.billboard.com/music/rock/vans-warped-tour-washington-dc-lineup-2026-1236195742/) - Billboard
+- [INTERVIEW: Everlast Opens Up About His First Album In Eight Years](https://loudwire.com/everlast-new-album-embers-to-ashes-interview/) - Loudwire
+- [[Indie] Florence Dore – Twelve Great Minds (Department Meeting)](https://www.themusicninja.com/indie-florence-dore-twelve-great-minds-department-meeting/) - Themusicninja.com
+- [Captain Iron’s “Dream Well” wraps love in a lullaby of quiet comfort featuring Windrift Band](https://earmilk.com/2026/03/14/captain-irons-dream-well-wraps-love-in-a-lullaby-of-quiet-comfort-featuring-windrift-band/) - Earmilk.com
+- [Only RAMMSTEIN Would Receive A Penis Flute As A Gift From Fans](https://metalinjection.net/news/eww/only-rammstein-would-receive-a-penis-flute-as-a-gift-from-fans) - Metal Injection.net
