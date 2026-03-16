@@ -1,0 +1,28 @@
+# Sources for 2026-03-16 News Episode 
+- [Justin Bieber Headlines Coachella 2026, Debuts New Tattoo at Grammys Performance](https://www.ibtimes.com.au/justin-bieber-headlines-coachella-2026-debuts-new-tattoo-grammys-performance-1863420) - Ibtimes.com.au
+- [Harry Styles’ ‘Kiss All the Time. Disco, Occasionally.’ Becomes His Fourth Consecutive Album to Debut at No. 1 on the Charts](https://variety.com/2026/music/news/harry-styles-kiss-all-the-time-fourth-number-one-charts-1236688184/) - Variety
+- [Harry Styles pokes fun at Andrew Mountbatten-Windsor on SNL](https://www.the-independent.com/arts-entertainment/tv/harry-styles-andrew-mountbatten-windsor-snl-b2938796.html) - The-independent.com
+- [Harry Styles’ ‘Kiss All the Time. Disco, Occasionally.’ Debuts at No. 1 on Billboard 200 Chart - billboard.com](https://www.billboard.com/music/chart-beat/harry-styles-kiss-all-the-time-number-one-billboard-200-1236199492/) - Billboard
+- [Harry Styles Returns With ’Kiss All the Time. Disco, Occasionally’: A Track-By-Track Breakdown - The Hollywood Reporter](https://www.hollywoodreporter.com/lists/harry-styles-kiss-all-the-time-track-by-track-breakdown/) - Hollywoodreporter
+- [BTS Is Back: Here's Everything to Know About Their Return and Live Show on Netflix](https://www.cnet.com/tech/services-and-software/bts-is-back-heres-how-to-watch-their-new-documentary-and-live-concert-on-netflix/) - CNET
+- [ARMY dresses hanbok-chic, Seoul shops turn purple for BTS comeback](https://koreajoongangdaily.joins.com/news/2026-03-16/entertainment/kpop/ARMY-dresses-hanbokchic-Seoul-shops-turn-purple-for-BTS-comeback/2544171) - Joins.com
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [More Details On BTS’s New Album ‘ARIRANG’ Track List - Forbes](https://www.forbes.com/sites/laurasirikul/2026/03/03/more-details-on-tracklist-for-btss-new-album-arirang/) - Forbes
+- [BTS Release Comeback Live Trailer: ‘Seven Together, We Can Do Anything’ - Rolling Stone](https://www.rollingstone.com/music/music-news/bts-comeback-live-netflix-trailer-1235525172/) - Rollingstone
+- [BTS Is Ready For Business In New ‘Arirang’ Artwork - Billboard](https://www.billboard.com/music/pop/bts-new-arirang-artwork-1236198604/) - Billboard
+- [BTS Respond to Fans’ Questions Online Ahead of ‘Arirang’ Album - Billboard](https://www.billboard.com/music/pop/bts-fan-q-and-a-1236194953/) - Billboard
+- [Stray Kids, TXT, SEVENTEEN, Jennie, HUNTR/X, TWS, ILLIT, And More Win At 2026 Japan Gold Disc Awards](http://www.soompi.com/article/1825121wpp/stray-kids-txt-seventeen-jennie-huntr-x-tws-illit-and-more-win-at-2026-japan-gold-disc-awards) - soompi
+- [Linkin Park Wraps Australian Leg of From Zero World Tour with Sydney Shows After Adelaide Cancellation](https://www.ibtimes.com.au/linkin-park-wraps-australian-leg-zero-world-tour-sydney-shows-after-adelaide-cancellation-1863400) - Ibtimes.com.au
+- [BigXthaPlug Closes Rolling Stone’s Future of Music Showcase With Pure Texas Pride — and Bangers](http://www.rollingstone.com/music/music-features/bigxthaplug-future-of-music-sxsw-texas-recap-1235530992/) - Rolling Stone
+- [BigXthaPlug, Victoryland, Cashier, and More Reviews From Saturday at SXSW - The Austin Chronicle](https://www.austinchronicle.com/music/bigxthaplug-victoryland-cashier-and-more-reviews-from-saturday-at-sxsw/) - Austinchronicle
+- [Riley Green Hit With Phone During Melbourne Concert](http://www.billboard.com/music/country/riley-green-hit-phone-melbourne-concert-1236199419/) - Billboard
+- [Riley Green Struck by Thrown Phone During Melbourne Concert - billboard.com](https://www.billboard.com/music/country/riley-green-hit-phone-melbourne-concert-1236199419/) - Billboard
+- [Portuguese label Enchufada announces 20th anniversary compilation, 'Lisbon Club Story'](https://djmag.com/news/portuguese-label-enchufada-announces-20th-anniversary-compilation-lisbon-club-story) - DJ Mag
+- [Saga Cavallin: Det banbrytande musikåret 2016 sätter avtryck än i dag](https://www.dn.se/kultur/saga-cavallin-det-banbrytande-musikaret-2016-satter-avtryck-an-i-dag/) - Www.dn.se
+- [CHUCK BILLY Confirms TESTAMENT's Next Album Is Already In Motion](https://metalinjection.net/news/chuck-billy-confirms-testaments-next-album-is-already-in-motion) - Metal Injection.net
+- [Lyric Video Marketing: How to Get More Views - Music Promo 4U](https://musicpromo4u.com/lyric-video-marketing-how-to-get-more-views/) - Musicpromo4u.com
+- [How AI is changing SEO tools: Citation tracking, GEO & AI visibility - The Next Web](https://thenextweb.com/news/ai-changing-seo-tools) - Thenextweb
+- [11 Beatles Songs You Can Name Your Children After](https://www.mentalfloss.com/entertainment/music/beatles-songs-name-children) - Mental Floss
+- [Cowboy Boots and Line Dancing: Country Music Fever Grips UK Young](https://www.breitbart.com/entertainment/2026/03/15/cowboy-boots-and-line-dancing-country-music-fever-grips-uk-young/) - Breitbart News
+- [A Roundup of Country, Americana & Bluegrass Festivals in 2026 (Updating) - Billboard](https://www.billboard.com/lists/country-americana-bluegrass-festivals-2026/) - Billboard
+- [CANNIBAL CORPSE Drummer PAUL MAZURKIEWICZ Reflects On 38 Years Of Death Metal: "What a Ride It's Been"](https://metalinjection.net/news/cannibal-corpse-drummer-paul-mazurkiewicz-reflects-on-38-years-of-death-metal-what-a-ride-its-been) - Metal Injection.net
