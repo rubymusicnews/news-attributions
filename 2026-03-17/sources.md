@@ -1,0 +1,35 @@
+# Sources for 2026-03-17 News Episode 
+- [‘KPop Demon Hunters’ Wins Best Original Song — But Isn’t Allowed to Finish Acceptance Speech](http://www.rollingstone.com/tv-movies/tv-movie-news/oscars-kpop-demon-hunters-golden-huntrix-best-original-song-1235528744/) - Rolling Stone
+- [‘KPop Demon Hunters’ Singers Make Their Oscars Debut With ‘Golden’ Performance](http://www.rollingstone.com/music/music-news/k-pop-demon-hunters-oscars-performance-1235528826/) - Rolling Stone
+- [‘KPop Demon Hunters’ Fans Defend Songwriters After Oscars Cut Speech Off: ‘Disrespectful and RUDE’](https://www.thewrap.com/industry-news/awards/kpop-demon-hunters-golden-oscars-speech-cut-off-backlash/) - TheWrap
+- [KPOP Demon Hunters: EJAE, Audrey Nuna & Rei Ami's "Golden" Oscars](https://bleedingcool.com/tv/kpop-demon-hunters-ejae-audrey-nuna-rei-amis-golden-oscars/) - Bleeding Cool News
+- [Here's how many Oscars KPop Demon Hunters won](https://www.gamesradar.com/entertainment/film-festivals-awards/heres-how-many-oscars-kpop-demon-hunters-won/) - GamesRadar+
+- [The Oscars Were Savage In Cutting Winners Off With Music, And One Movie Got It Especially Bad](https://www.cinemablend.com/movies/oscars-were-savage-cutting-winners-off-music-one-movie-got-it-especially-bad-kpop-demon-hunters) - CinemaBlend
+- [Oscars 2026: Ludwig Göransson Wins Best Original Score for Sinners](https://pitchfork.com/news/oscars-2026-ludwig-goransson-wins-best-original-score-for-sinners/) - Pitchfork
+- [Oscars 2026 live updates: Sinners takes home its first win of the night with best original screenplay - The Independent](https://www.independent.co.uk/arts-entertainment/films/news/oscars-2026-live-updates-winners-red-carpet-latest-b2938988.html) - Independent
+- [‘Sinners’ Wins Best Original Score at 2026 Oscars - Billboard](https://www.billboard.com/music/awards/sinners-wins-best-original-score-oscars-2026-1236199879/) - Billboard
+- [‘Sinners’ wins Oscars for best original score - AP News](https://apnews.com/article/best-original-song-2026-oscars-f8dd0577fc4148be5f8161aef8ad5781) - Apnews
+- [‘Sinners’ wins Oscar for best original score - The Washington Post](https://www.washingtonpost.com/entertainment/2026/03/15/best-original-song-2026-oscars/4d0ecc04-20d9-11f1-954a-6300919c9854_story.html) - Washingtonpost
+- [Korn to return to the UK and Ireland for 2026 tour](https://www.thelineofbestfit.com/news/korn-uk-and-ireland-tour-2026) - Thelineofbestfit.com
+- [Metal-Band: Korn kommt im Herbst auf Deutschland-Tour](https://www.stern.de/kultur/metal-band--korn-kommt-im-herbst-auf-deutschland-tour-37225620.html) - STERN.de
+- [Burna Boy becomes first African artist to gross $3m in Oceania tour](https://punchng.com/burna-boy-becomes-first-african-artist-to-gross-3m-in-oceania-tour/) - The Punch
+- [Slayyyter Maps Out 'WOR$T GIRL IN AMERICA' World Tour](https://exclaim.ca/music/article/slayyyter-maps-out-wor-t-girl-in-america-world-tour) - Exclaim!
+- [Slayyyter Announces Third Album ‘Wor$t Girl in America,’ Preps New Single ‘Dance…’ - Variety](https://variety.com/2026/music/news/slayyyter-announces-third-album-worst-girl-in-america-1236629872/) - Variety
+- [Band of Horses and Dinosaur Jr. Announce 2026 Co-Headlining Tour](https://consequence.net/2026/03/band-of-horses-dinosaur-jr-2026-co-headlining-tour/) - Consequence.net
+- [Melissa Auf der Maur Compares Joining Hole to ‘Living Life on the Edge of Chaos’](http://www.rollingstone.com/music/music-news/melissa-auf-der-maur-hole-courtney-love-book-memoir-excerpt-1235529914/) - Rolling Stone
+- [Here's Where To Buy Hole Bassist Melissa Auf der Maur's Memoir Online - Billboard](https://www.billboard.com/culture/product-recommendations/where-to-buy-melissa-auf-de-maur-new-memoir-online-1236200153/) - Billboard
+- [Death Cab for Cutie Line Up New Album](https://pitchfork.com/news/death-cab-for-cutie-line-up-new-album/) - Pitchfork
+- [Death Cab For Cutie Lets It ‘Rip’](https://www.spinmagazine.com/2026/03/death-cab-for-cutie-new-album-details/) - Spinmagazine.com
+- [Death Cab for Cutie Announces New Album Inspired By ‘Loss and Grief’ - Billboard](https://www.billboard.com/music/music-news/death-cab-for-cutie-i-built-you-a-tower-new-album-1236200543/) - Billboard
+- [Sinners’ 2026 Oscar performance starred Raphael Saadiq, Shaboozey, and more](https://www.thefader.com/2026/03/16/sinners-2026-oscar-performance-raphael-saadiq-shaboozey-miles-caton-misty-copeland) - The FADER
+- [Spend Your Monday Watching the Oscars' 'Sinners' Performance - Gizmodo](https://gizmodo.com/you-have-to-see-the-oscars-awesome-sinners-performance-again-2000733834) - Gizmodo
+- [Buddy Guy performs with 'Sinners' cast at 2026 Academy Awards - Chicago Tribune](https://www.chicagotribune.com/2026/03/16/buddy-guy-sinners-performance-academy-awards/) - Chicagotribune
+- ['Sinners' Oscars performance fires up the stage with Misty Copeland, Shaboozey, more stars - USA Today](https://www.usatoday.com/story/entertainment/movies/2026/03/15/sinners-oscars-song-i-lied-to-you-performance/89102404007/) - Usatoday
+- [‘Sinners’ Stars Recreate the ‘Pierce the Veil’ Sequence With Stunning Oscar Performance of ‘I Lied to You’ - Variety](https://variety.com/2026/film/news/sinners-oscars-performance-i-lied-to-you-1236686553/) - Variety
+- [Miles Caton Joined by Misty Copeland, Shaboozey and More for “I Lied to You” Oscars Performance - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-news/i-lied-to-you-sinners-oscars-2026-performance-1236530685/) - Hollywoodreporter
+- [Key Oscar moments: Paul Thomas Anderson and Amy Madigan wins, outstanding songs and sad goodbyes - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/key-oscar-moments-paul-thomas-anderson-and-amy-22078914.php) - Sfchronicle
+- [Jimmy Buffett’s Coral Reefer Band to “Keep the Party Going” with 2026 US Tour](https://consequence.net/2026/03/jimmy-buffett-coral-reefer-band-2026-tour-dates/) - Consequence.net
+- [Martin Garrix shares first-ever track with solo vocals, ‘Catharina’: Listen](https://djmag.com/news/martin-garrix-shares-first-ever-track-solo-vocals-catharina-listen) - DJ Mag
+- [Bandcamp physical sales now count towards UK chart positions](https://djmag.com/news/bandcamp-physical-sales-now-count-towards-uk-chart-positions) - DJ Mag
+- [Kanye West's India concert postponed due to "geopolitical situation", set to take place on May 23](https://timesofindia.indiatimes.com/entertainment/english/music/news/kanye-wests-india-concert-postponed-due-to-geopolitical-situation-set-to-take-place-on-may-23/articleshow/129608043.cms) - The Times of India
+- [For Anjimile, the Truth Always Reveals Itself](https://www.spinmagazine.com/2026/03/for-anjimile-the-truth-always-reveals-itself/) - Spinmagazine.com
