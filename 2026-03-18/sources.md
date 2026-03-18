@@ -1,0 +1,41 @@
+# Sources for 2026-03-18 News Episode 
+- [Ed O’Brien Says Radiohead Will Play 20 Shows on a Different Continent Every Year Starting in 2027](https://consequence.net/2026/03/radiohead-2027-show-shows-different-continent/) - Consequence.net
+- [Radiohead Will Play 20 Shows on Different Continents Every Year Starting in 2027 - Billboard](https://www.billboard.com/music/rock/radiohead-20-shows-different-continents-starting-2027-1236200922/) - Billboard
+- [Radiohead Will Play 20 Shows on Different Continents Every Year Starting in 2027 - Billboard Canada](https://ca.billboard.com/music/rock/radiohead-20-shows-different-continents-starting-2027-1236200922/) - Billboard
+- [Radiohead to Play 20 Concerts on Different Continents Per Year, Guitarist Says - Variety](https://variety.com/2026/music/news/radiohead-to-play-20-concerts-on-different-continents-1236691049/) - Variety
+- [Radiohead's Ed O’Brien Announces New Album 'Blue Morpho': Hear The Title Track - Stereogum](https://stereogum.com/2492392/ed-obrien-announces-new-solo-album-teases-radiohead-tour/music) - Stereogum
+- [VIDEO: FIFA unveils first song for 2026 World Cup](https://punchng.com/video-fifa-unveils-first-song-for-2026-world-cup/) - The Punch
+- [Jelly Roll & Carín León Join Forces on ‘Lighter,’ First Single From FIFA World Cup 2026 Official Album - Billboard](https://www.billboard.com/music/music-news/jelly-roll-carin-leon-fifa-world-cup-2026-official-album-1236200552/) - Billboard
+- [Jay-Z to Return to the Stage for Headlining Performance at Roots Picnic 2026](http://www.rollingstone.com/music/music-news/jay-z-roots-picnic-2026-headliner-1235532391/) - Rolling Stone
+- [Newly Umlauted JAŸ-Z Set For Roots Picnic](https://www.spinmagazine.com/2026/03/jay-z-roots-picnic/) - Spinmagazine.com
+- [Jay-Z & The Roots to Headline Roots Picnic 2026 - Billboard](https://www.billboard.com/music/rb-hip-hop/jay-z-headline-roots-picnic-2026-1236201078/) - Billboard
+- [JAY-Z and The Roots to Headline Roots Picnic 2026 - Consequence of Sound](https://consequence.net/2026/03/jay-z-the-roots-roots-picnic-2026/) - Consequence
+- [Roots Picnic Festival announces Jay-Z as 2026 headliner. Get tickets today - New York Post](https://nypost.com/2026/03/17/ticket-sales/roots-picnic-festival-2026-where-to-buy-tickets-dates/) - Nypost
+- [Gefragte Kataloge: 80 Musikrechte-Deals – im Monat](https://www.faz.net/aktuell/wirtschaft/unternehmen/duetti-kauft-musikrechte-von-kollegah-samra-oder-pa-sports-accg-110854899.html) - Faz.net
+- [How Duetti Finds Big Value in Small Catalogs: ‘It’s Not About Aggregating Rights… It’s About Taking Care of Them’ - Billboard](https://www.billboard.com/pro/duetti-value-small-music-catalogs-investment-strategy/) - Billboard
+- [Sigur Rós kündigen finale Tourstopps von Orchester-Tour in Berlin an](https://www.visions.de/news/finale-tourdates-sigur-ros-orchester-tour/) - Visions.de
+- [TRENT REZNOR Clarifies His Comments About NINE INCH NAILS Not Touring Anymore](https://metalinjection.net/news/trent-reznor-clarifies-his-comments-about-nine-inch-nails-not-touring-anymore) - Metal Injection.net
+- [Trent Reznor Clarifies Nine Inch Nails’ Future Plans: “We May Tour Again”](https://consequence.net/2026/03/trent-reznor-clarifies-nine-inch-nails-tour-plans/) - Consequence.net
+- [Trent Reznor Addresses Nine Inch Nails' Future at Tour Finale](https://ultimateclassicrock.com/nine-inch-nails-tour-end-future/) - Ultimate Classic Rock
+- [Trent Reznor Clarifies that NIN Aren’t “Intentionally Stopping” Touring](https://www.metalsucks.net/2026/03/17/trent-reznor-clarifies-that-nin-arent-intentionally-stopping-touring/) - MetalSucks
+- [Cruz Beckham Is Playing Lollapalooza](http://www.thecut.com/article/cruz-beckham-is-playing-lollapalooza.html) - The Cut
+- [Here’s What Went Down at Rosalia’s Lux Tour Opener](https://pitchfork.com/news/heres-what-went-down-at-rosalias-lux-tour-opener/) - Pitchfork
+- [The 8 Best Moments From Rosalía’s Lux Tour Kickoff - Billboard](https://www.billboard.com/lists/rosalias-lux-tour-kickoff-best-moments/) - Billboard
+- [Rosalía’s Lux Tour Kickoff: Here’s the Full Setlist - Billboard](https://www.billboard.com/lists/rosalia-lux-tour-first-show-full-setlist/) - Billboard
+- [JINJER Announces North American Tour With CRYSTAL LAKE & ENTHEOS](https://metalinjection.net/tour-dates/jinjer-announces-north-american-tour-with-crystal-lake-entheos) - Metal Injection.net
+- [Jinjer Get Crystal Lake, Entheos for North American Tour](https://exclaim.ca/music/article/jinjer-get-crystal-lake-entheos-for-north-american-tour) - Exclaim!
+- [Jinjer Announce North American Tour](https://www.metalsucks.net/2026/03/17/jinjer-announce-north-american-tour/) - MetalSucks
+- [Netflix’s ‘Feel My Voice,’ The Italian Remake of the Story That Inspired ‘CODA,’ Sets April 2026 Release](https://www.whats-on-netflix.com/news/netflixs-feel-my-voice-the-italian-remake-of-the-story-that-inspired-coda-sets-april-2026-release/) - What's on Netflix
+- [Kehlani Reveals Self-Titled Album Will Arrive This Spring](http://www.rollingstone.com/music/music-news/kehlani-self-titled-album-release-date-cover-art-1235532576/) - Rolling Stone
+- [Kehlani Reveals Self-Titled Album Will Arrive This Spring - Rolling Stone India](https://rollingstoneindia.com/kehlani-reveals-self-titled-album-will-arrive-this-spring/) - Rollingstoneindia
+- [Kehlani Announces Self Titled Album Set for April Release - The Source Magazine](https://thesource.com/2026/03/18/kehlani-self-titled-album/) - Thesource
+- [Kehlani Announces Self-Titled Album ‘Kehlani’, Signals New Era of R&B Clarity and Control - famemagazine.co.uk](https://www.famemagazine.co.uk/kehlani-announces-self-titled-album-kehlani-signals-new-era-of-rb-clarity-and-control/) - Famemagazine
+- [Kehlani Announces Release Date For Anticipated Self-Titled Album - KJ103](https://kj103fm.iheart.com/content/2026-03-17-kehlani-announces-release-date-for-anticipated-self-titled-album/) - Iheart
+- [Kehlani Announces Release Date For Anticipated Self-Titled Album - 106.1 KISS FM](https://1061kissfm.iheart.com/featured/on-the-move-with-enrique-santos/content/2026-03-17-kehlani-announces-release-date-for-anticipated-self-titled-album/) - Iheart
+- [Kehlani Officially Announces New Self-Titled Album - clashmusic.com](https://www.clashmusic.com/news/kehlani-officially-announces-new-self-titled-album/) - Clashmusic
+- [Fetty Wap Announces Reflective New Album ‘Zavier’: ‘A New Chapter’](http://www.rollingstone.com/music/music-news/fetty-wap-new-album-zavier-trailer-1235532114/) - Rolling Stone
+- [Fetty Wap’s Comeback Album ‘Zavier’ Is Arriving Sooner Than You Think: ‘A New Chapter in My Life’ - Billboard](https://www.billboard.com/music/rb-hip-hop/fetty-wap-zavier-release-date-1236200274/) - Billboard
+- [Public Image Ltd. Announces Sprawling North American Tour](https://pitchfork.com/news/public-image-ltd-reveals-new-live-album-announces-sprawling-north-american-tour/) - Pitchfork
+- [Public Image Ltd Announce 2026-2027 North American Tour](https://consequence.net/2026/03/public-image-ltd-2026-2027-north-american-tour/) - Consequence.net
+- [Of Montreal Plot Summer 2026 North American Tour](https://pitchfork.com/news/of-montreal-plot-summer-2026-north-american-tour/) - Pitchfork
+- [of Montreal Announce 2026 North American Tour](https://consequence.net/2026/03/of-montreal-2026-tour-dates/) - Consequence.net
