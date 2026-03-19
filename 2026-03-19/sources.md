@@ -1,0 +1,35 @@
+# Sources for 2026-03-19 News Episode 
+- [Streaming boosts global music revenues once again in 2025, report shows](https://www.channelnewsasia.com/business/streaming-boosts-global-music-revenues-once-again-in-2025-report-shows-6001961) - CNA
+- [IFPI Global Report 2026: Recorded Music Revenues Surpass $30 Billion Mark For First Time - Billboard](https://www.billboard.com/pro/ifpi-report-2026-global-music-revenues-30-billion/) - Billboard
+- [Streaming boosts global music revenues once again in 2025, report shows - Reuters](https://www.reuters.com/business/media-telecom/streaming-boosts-global-music-revenues-once-again-2025-report-shows-2026-03-18/) - Reuters
+- [Australia’s Recorded Music Business Reports ‘Moderate’ Growth For 2025 - Billboard](https://www.billboard.com/pro/australias-recorded-music-business-moderate-growth-2025/) - Billboard
+- [Lollapalooza 2026 Lineup: Charli XCX, Olivia Dean & Full Artist List](https://screenrant.com/lollapalooza-2026-lineup-charli-xcx-olivia-dean/) - Screen Rant
+- [Lollapalooza announces 2026 music lineup today - Chicago Tribune](https://www.chicagotribune.com/2026/03/17/lollapalooza-lineup-2026/) - Chicagotribune
+- [Olivia Dean, Charli xcx, Tate McRae to Headline Lollapalooza 2026 - Variety](https://variety.com/2026/music/news/olivia-dean-charli-xcx-tate-mcrae-lollapalooza-2026-1236691111/) - Variety
+- [Lollapalooza 2026 Lineup: Charli XCX, Smashing Pumpkins, the xx, and Lorde - Pitchfork](https://pitchfork.com/news/lollapalooza-2026-lineup-the-smashing-pumpkins-charli-xcx-the-xx-and-lorde/) - Pitchfork
+- [Charli xcx, Lorde, BLACKPINK’s JENNIE & More to Headline Lollapalooza 2026 - Billboard](https://www.billboard.com/music/music-news/lollapalooza-2026-lineup-charli-xcx-lorde-1236201138/) - Billboard
+- [Lollapalooza Announces 2026 Lineup - Stereogum](https://stereogum.com/2492494/lollapalooza-announces-2026-lineup/news) - Stereogum
+- [Smashing Pumpkins finally get their Chicago Lollapalooza moment - Axios](https://www.axios.com/local/chicago/2026/03/18/smashing-pumpkins-lollapalooza-infinite-sadness-billy-corgan) - Axios
+- [Watch the Trailer for 'Iron Maiden: Burning Ambition' Documentary](https://ultimateclassicrock.com/iron-maiden-burning-ambition-trailer/) - Ultimate Classic Rock
+- [Watch Tom Morello, Chuck D and Javier Bardem Rock up for Iron Maiden In ‘Burning Ambition’ Trailer - Billboard](https://www.billboard.com/music/rock/iron-maiden-burning-ambition-trailer-1236202417/) - Billboard
+- [Coldcut's Matt Black and A‑ha's Magne Furuholmen to speak as Tallinn Music Week plots AI and autonomy talks](https://www.thelineofbestfit.com/news/coldcuts-matt-black-aha-magne-furuholmen-to-speak-as-tallinn-music-week-plots-ai-and-autonomy-talks) - Thelineofbestfit.com
+- [Israeli company Bria wins top Hollywood tech awards for ethical generative AI - ynetnews](https://www.ynetnews.com/tech-and-digital/article/sjixuejt11x) - Ynetnews
+- [KickFlipが先行公開曲を披露！P1Harmony、ONEWほか豪華アーティストも続々とカムバック！『SBS人気歌謡』最新回が 「Music K」にて日本最速・独占配信中](https://prtimes.jp/main/html/rd/p/000000488.000089615.html) - Prtimes.jp
+- [EXODUS Unleash Final Pre-Release Single "Promise You This" Ahead Of Goliath](https://metalinjection.net/video/exodus-unleash-final-pre-release-single-promise-you-this-ahead-of-goliath) - Metal Injection.net
+- [Exodus Drop Final Single Off ‘Goliath’ with “Promise You This”](https://www.metalsucks.net/2026/03/18/exodus-drop-final-single-off-goliath-with-promise-you-this/) - MetalSucks
+- [Disney Announces Tour Dates for the Next "Worlds Collide Concert Tour" Coming in Fall 2026](http://www.thefutoncritic.com/news/2026/03/18/disney-announces-tour-dates-for-the-next-worlds-collide-concert-tour-coming-in-fall-2026-113515/20260318disney01/) - Thefutoncritic.com
+- [‘Descendants,’ ‘ZOMBIES’ & ‘Camp Rock’ Stars Join Forces for 2026 Worlds Collide Concert Tour: See Full List of Dates - Billboard](https://www.billboard.com/music/country/descendants-zombies-camp-rock-2026-worlds-collide-tour-dates-1236201379/) - Billboard
+- [Lorde Leaves Universal Music Group](https://pitchfork.com/news/lorde-leaves-universal-music-group/) - Pitchfork
+- [Lorde Confirms She’s Now an Independent Artist, Announces Deal With UMG Has Ended - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/lorde-says-shes-independent-umg-deal-has-expired-1236540395/) - Hollywoodreporter
+- [Lorde Reveals Her 17-Year Record Deal Has Come to an End, Says She’s Ready for a ‘Clean Slate’ - Billboard Canada](https://ca.billboard.com/music/music-news/lorde-leaves-universal-music) - Billboard
+- [Lorde Reveals She’s Now an Independent Artist After Her Contract With Universal Expired Last Year - Variety](https://variety.com/2026/music/news/lorde-independent-artist-contract-universal-expired-1236692807/) - Variety
+- [Lorde Reveals Her 17-Year Record Deal Has Come to an End, Says She’s Ready for a ‘Clean Slate’ - Billboard](https://www.billboard.com/music/music-news/lorde-universal-record-deal-ends-17-years-1236202220/) - Billboard
+- [You Can Call Her Queen Bee: Lorde’s Debut Single ‘Royals’ Joins YouTube’s Billion Views Club - Billboard](https://www.billboard.com/music/music-news/lorde-royals-youtube-billion-views-club-1236202285/) - Billboard
+- [Watch Chris Robinson Cover Otis Redding’s ‘Fa-Fa-Fa-Fa-Fa (Sad Song)’ on ‘Kimmel’](http://www.rollingstone.com/music/music-news/chris-robinson-showcase-fa-fa-fa-fa-fa-sad-song-kimmel-1235532851/) - Rolling Stone
+- [The Black Crowes Share Their Current Approach to Making Music With New ‘A Pound of Feathers’ Album: ‘F— It, Let’s Just Keep Going’ - Billboard](https://www.billboard.com/music/rock/black-crowes-interview-new-album-a-pound-of-feathers-1236196425/) - Billboard
+- [The Black Crowes: A Pound of Feathers review \| Stevie Chick's album of the week - The Guardian](https://www.theguardian.com/music/2026/mar/12/the-black-crowes-a-pound-of-feathers-review) - Theguardian
+- [Wayne Perkins, Guitarist Who Nearly Joined the Rolling Stones and Lynyrd Skynyrd, Dead at 74](http://www.rollingstone.com/music/music-news/wayne-perkins-guitarist-rolling-stones-dead-1235532942/) - Rolling Stone
+- [Tinariwen Goes Back to Basics](https://www.spinmagazine.com/2026/03/tinariwen-goes-back-to-basics/) - Spinmagazine.com
+- [‘Fast, angry, chaotic’: The story behind the Prodigy’s ‘Firestarter’ video](https://www.dazeddigital.com/music/article/69928/1/angry-chaotic-story-behind-prodigy-firestarter-video-walter-stern-keith-flint?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=fast-angry-chaotic-the-story-behind-the-prodigy-s-firestarter-video) - Dazed
+- [‘Silence is punk as fuck’: Frost Children and Ninajirachi go head-to-head](https://www.dazeddigital.com/music/article/69870/1/frost-children-ninajirachi-hyperpop-interview-post-skrillex-world-sisters?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=silence-is-punk-as-fuck-frost-children-and-ninajirachi-go-head-to-head) - Dazed
+- [Louis Tomlinson Reveals Why His Least Favorite One Direction Song Is 'What Makes You Beautiful'](https://www.justjared.com/2026/03/18/louis-tomlinson-hated-what-makes-you-beautiful/) - Just Jared
