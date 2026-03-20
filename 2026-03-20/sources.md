@@ -1,0 +1,32 @@
+# Sources for 2026-03-20 News Episode 
+- [2025年度のDJ MAG TOP 100 DJsで58位にランクインし、IDMA Awards最優秀女性アーティスト複数回受賞。ディープ・メロディックハウスシーンの女王Nora En Pureが来日](https://prtimes.jp/main/html/rd/p/000000341.000050845.html) - Prtimes.jp
+- [Tina Turner's name, image, likeness and most music catalog rights acquired by Pophouse](https://abcnews.com/Technology/wireStory/tina-turners-image-likeness-music-catalog-rights-acquired-131208104) - Abcnews.com
+- [Tina Turner's name, image, and likeness sold to company behind those ABBA holograms](https://www.jezebel.com/tina-turner-name-likeness-sold-abba) - Jezebel
+- [Tina Turner's name, image, likeness and most music catalog rights acquired by Pophouse - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/tina-turners-name-image-likeness-music-catalog-rights-acquired-pophous-rcna264243) - Nbcnews
+- [Tina Turner's name, image, likeness and most music catalog rights acquired by Pophouse - Greenwich Time](https://www.greenwichtime.com/entertainment/article/tina-turner-s-name-image-likeness-and-most-22084924.php) - Greenwichtime
+- [Tina Turner's name, image, likeness and most music catalog rights acquired by Pophouse - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/tina-turner-name-image-likeness-most-music-catalog-rights-acquired-pophouse/6478423/) - Nbcnewyork
+- [GOT7’s Park Jinyoung Confirmed To Make Spring Solo Comeback](http://www.soompi.com/article/1826162wpp/got7s-park-jinyoung-confirmed-to-make-spring-solo-comeback) - soompi
+- [Winter Music Conference 2026 – 5 Panels Not To Miss in Miami](https://earmilk.com/2026/03/19/winter-music-conference-2026-5-panels-not-to-miss-in-miami/) - Earmilk.com
+- [Fakemink Lines Up Massive Tour](https://pitchfork.com/news/fakemink-lines-up-massive-tour/) - Pitchfork
+- ["Raw, hungry, and already road-honed by years of gigging." The Legendary Edition of Aerosmith's debut album expands the original with live and session tracks](https://www.loudersound.com/music/aerosmith-aerosmith-legendary-edition) - Louder
+- [Muse Launch New Album The Wow! Signal in Space](https://pitchfork.com/news/muse-launch-new-album-the-wow-signal-in-space/) - Pitchfork
+- [Muse Jets Us Into Space For ‘The Wow! Signal’ - Billboard](https://www.billboard.com/music/rock/muse-new-album-the-wow-signal-1236203263/) - Billboard
+- [Anthrax To Release First Album in 10 Years in September](https://consequence.net/2026/03/anthrax-first-album-10-years-september/) - Consequence.net
+- [Singer Jill Scott is doing what she wants: 'Everything has led me to this place'](https://www.npr.org/2026/03/19/nx-s1-5746726/jill-scott-to-whom-this-may-concern) - NPR
+- [Jill Scott Announces Dates For 2026 ‘To Whom This May Concern’ World Tour - Billboard](https://www.billboard.com/music/concerts/jill-scott-whom-this-may-concern-2026-world-tour-dates-1236195104/) - Billboard
+- [Singer Jill Scott is doing what she wants: 'Everything has led me to this place' - South Carolina Public Radio](https://www.southcarolinapublicradio.org/news/2026-03-19/singer-jill-scott-is-doing-what-she-wants-everything-has-led-me-to-this-place) - Southcarolinapublicradio
+- [Singer Jill Scott is doing what she wants: 'Everything has led me to this place' - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-19/singer-jill-scott-is-doing-what-she-wants-everything-has-led-me-to-this-place) - Iowapublicradio
+- [EMERGE: Chatting with European music data](http://musically.com/2026/03/19/emerge-chatting-with-european-music-data/) - Music Ally
+- [Pussycat Dolls reveal truth behind longstanding Britney Spears rumor on Page Six Radio](https://pagesix.com/2026/03/19/celebrity-news/pussycat-dolls-reveal-truth-behind-longstanding-britney-spears-rumor/) - Page Six
+- [Pussycat Dolls reveal truth behind longstanding Britney Spears rumor on Page Six Radio](https://pagesix.com/2026/03/19/entertainment/pussycat-dolls-reveal-truth-behind-longstanding-britney-spears-rumor/) - Page Six
+- [The Pussycat Dolls to reunite as a trio for new single and world tour - BBC](https://www.bbc.com/news/articles/cwykd08eyg5o) - Bbc
+- [Pussycat Dolls Reunite as a Trio, Release New Single ‘Club Song’ and Announce ‘PCD Forever’ Global Tour - variety.com](https://variety.com/2026/music/news/pussycat-dolls-reunite-new-single-club-song-global-tour-1236683789/) - Variety
+- [Pussycat Dolls drop new song, announce global reunion tour - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/12/pussycat-dolls-tour-new-song/89118849007/) - Usatoday
+- [The Pussycat Dolls Reunite As Trio With New Single, Global Tour - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/the-pussycat-dolls-reunion-new-song-tour-dates-tickets-1236528401/) - Hollywoodreporter
+- [Frank Zappa, Captain Beefheart and The Mothers – Bongo Fury 50th Anniversary (2026)](https://exystence.net/blog/2026/03/19/frank-zappa-captain-beefheart-and-the-mothers-bongo-fury-50th-anniversary-2026/) - Exystence.net
+- ["A mix of surreal, supercilious satire and puerile lewdness." Frank Zappa, Captain Beefheart and The Mothers' Bongo Fury, revisited and expanded](https://www.loudersound.com/music/frank-zappa-captain-beefheart-the-mothers-bongo-fury-50th-anniversary-edition) - Louder
+- [The Afghan Whigs Release New Single “House of I”: Stream](https://consequence.net/2026/03/the-afghan-whigs-new-single-house-of-i/) - Consequence.net
+- [Afghan Whigs Move Into A New ‘House’](https://www.spinmagazine.com/2026/03/afghan-whigs-new-single/) - Spinmagazine.com
+- [The Afghan Whigs Share New Song, ‘House Of I’](https://thequietus.com/news/the-afghan-whigs-share-new-song-house-of-i/) - The Quietus
+- [What new single did The Afghan Whigs release? #entertainment](https://alltoc.com/entertainment/what-new-single-did-the-afghan-whigs-release) - Alltoc.com
+- [Bastardane (Featuring James Hetfield’s Son Castor) Release New Single “Taciturn & Morose”](https://www.metalsucks.net/2026/03/19/bastardane-featuring-james-hetfields-son-castor-release-new-single-taciturn-morose/) - MetalSucks
