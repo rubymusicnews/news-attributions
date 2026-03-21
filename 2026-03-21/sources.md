@@ -1,0 +1,36 @@
+# Sources for 2026-03-21 News Episode 
+- [BTS poised to begin gigantic K-pop world tour after band’s military return](https://www.the-independent.com/arts-entertainment/music/news/bts-arirang-world-tour-album-b2942369.html) - The-independent.com
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - NPR](https://www.npr.org/2026/03/20/nx-s1-5753919/bts-arirang-kpop-comeback-review) - Npr
+- [How big is the BTS comeback going to be? - VPM](https://www.vpm.org/npr-news/2026-03-20/how-big-is-the-bts-comeback-going-to-be) - Vpm
+- [TikTok and Instagram launch activations for BTS ‘Arirang’ album](http://musically.com/2026/03/20/tiktok-and-instagram-launch-activations-for-bts-arirang-album/) - Music Ally
+- [BTS Respond to Fans’ Questions Online Ahead of ‘Arirang’ Album - Billboard](https://www.billboard.com/music/pop/bts-fan-q-and-a-1236194953/) - Billboard
+- [Behind the BTS comeback, the dark side of K-pop](https://japantoday.com/category/entertainment/behind-the-bts-comeback-the-dark-side-of-k-pop) - Japan Today
+- [BTS Arirang review: K-pop idols rekindle their fire - BBC](https://www.bbc.com/news/articles/c070eg32dryo) - Bbc
+- [The BTS comeback album is almost here – and you best believe I’m slipping back into my K-pop obsessive era - The Guardian](https://www.theguardian.com/commentisfree/2026/mar/18/bts-2026-album-arirang-korean-boyband-fandom) - Theguardian
+- [What’s new in Interpol’s ‘See Out Loud’? #entertainment](https://alltoc.com/entertainment/whats-new-in-interpols-see-out-loud) - Alltoc.com
+- [Netflix, Warner Music sign multi-year deal to produce artist documentaries](https://www.cbc.ca/news/business/netflix-warner-music-group-artist-documentaries-9.7136519) - CBC News
+- [Warner Music Group Partners With Netflix For Artist Documentaries - Billboard](https://www.billboard.com/pro/warner-music-group-netflix-parnership-artist-documentaries/) - Billboard
+- [Netflix Sets Documentary Partnership With Warner Music Group - deadline.com](https://deadline.com/2026/03/netflix-warner-music-group-set-documentary-partnership-1236761542/) - Deadline
+- [Netflix, Warner Music strike multi‑year deal for artist documentaries - Reuters](https://www.reuters.com/business/media-telecom/netflix-warner-music-strike-multiyear-deal-artist-documentaries-2026-03-20/) - Reuters
+- [Hopeless Records boss: Streaming ‘fails the middle class of musicians’](http://musically.com/2026/03/20/hopeless-records-boss-streaming-fails-the-middle-class-of-musicians/) - Music Ally
+- [The Digital Paradox: How Music Streaming Saved the Industry but Stifled the Artist (Guest Column) - Billboard](https://www.billboard.com/pro/how-music-streaming-saved-industry-hurt-artists/) - Billboard
+- [Spotify once had a reputation for underpaying music artists. It hopes to change that perception - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-03-10/spotify-11-billion-music-payout) - Latimes
+- [2026 Fire in the Mountains Festival Lineup: Neurosis, Baroness, YOB, and Enslaved](https://consequence.net/2026/03/2026-fire-in-the-mountains-festival-lineup-neurosis/) - Consequence.net
+- [Neurosis Reunite for Fire In The Mountains Festival](https://www.metalsucks.net/2026/03/20/neurosis-reunite-for-fire-in-the-mountains-festival/) - MetalSucks
+- [AI-Musik: Können Sie heraushören, dass hier kein Mensch singt?](https://www.stern.de/kultur/songs-von-ai-kuenstlern--erkennen-sie--dass-hier-kein-mensch-singt--37231572.html) - STERN.de
+- [Can Marketers Find Harmony With AI-Generated Music? - Forbes](https://www.forbes.com/sites/cmo/2026/03/11/can-marketers-find-harmony-with-ai-generated-music/) - Forbes
+- [Sony removes 135,000 'deepfakes' of its artists' music - BBC](https://www.bbc.com/news/articles/cy57593gxe0o) - Bbc
+- [A Short History of AI-Generated Music: From ‘Fake Drake’ to Blockbuster Legal Settlements - Billboard](https://www.billboard.com/lists/ai-music-timeline-fake-drake-suno-udio-label-settlements/) - Billboard
+- [Is Suno the Music Industry’s Biggest Nightmare — or Greatest Hope? - Billboard](https://www.billboard.com/pro/suno-ai-music-startup-cover-story/) - Billboard
+- [Melissa Etheridge Has Words for Her Younger Self](http://www.rollingstone.com/music/music-features/melissa-etheridge-interview-new-music-hall-of-fame-1235525923/) - Rolling Stone
+- [Melissa Etheridge Has Words for Her Younger Self - Rolling Stone](https://www.rollingstone.com/music/music-features/melissa-etheridge-interview-new-music-hall-of-fame-1235525923/) - Rollingstone
+- [How Breathe. doubled their monthly listeners on Spotify](http://musically.com/2026/03/20/how-breathe-doubled-their-monthly-listeners-on-spotify/) - Music Ally
+- [Spotify launches Taste Profile editor - The Next Web](https://thenextweb.com/news/spotify-launches-taste-profile-editor) - Thenextweb
+- [iHeartRadio Music Awards 2026: Πρωταγωνιστές η Τέιλορ Σουίφτ και ο Τζον Μέλενκαμπ](https://www.skai.gr/news/entertainment/iheartradio-music-awards-2026-protagonistes-i-teilor-souift-kai-o-tzon-melenkamp) - Skai.gr
+- [Taylor Swift Set to Appear at 2026 iHeartRadio Music Awards; John Mellencamp & Kehlani Added as Performers - Billboard](https://www.billboard.com/music/awards/taylor-swift-to-appear-2026-iheartradio-music-awards-1236202327/) - Billboard
+- [Taylor Swift Set to Appear on iHeartRadio Music Awards Show - Variety](https://variety.com/2026/music/news/taylor-swift-iheartradio-music-awards-show-fox-dolby-1236693090/) - Variety
+- [Tim McGraw Will Become the Latest Member of the Country Music Hall of Fame](http://www.rollingstone.com/music/music-country/2026-country-music-hall-of-fame-inductees-tim-mcgraw-1235534682/) - Rolling Stone
+- [Country Music Hall of Fame Names Tim McGraw, Paul Overstreet & The Stanley Brothers as 2026 Inductees - Billboard](https://www.billboard.com/music/country/tim-mgraw-paul-overstreet-country-music-hall-of-fame-2026-1236203417/) - Billboard
+- [For Malia, A Long and Winding Road Has Always Led to Music](http://www.rollingstone.com/music/music-features/malia-interview-if-im-being-honest-album-1235532111/) - Rolling Stone
+- [Ca7riel & Paco Amoroso Return From ‘Earth-Shattering Meltdown’ With the Kaleidoscopic ‘Free Spirits’: Album Review](https://variety.com/2026/music/reviews/ca7riel-paco-amoroso-free-spirits-album-review-1236694995/) - Variety
+- [CA7RIEL y Paco Amoroso’s ‘Free Spirits’ Album & More Best New Music Latin - Billboard](https://www.billboard.com/music/latin/ca7riel-paco-amoroso-free-spirits-best-new-music-latin-1236203413/) - Billboard
