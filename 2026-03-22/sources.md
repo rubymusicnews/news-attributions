@@ -1,0 +1,39 @@
+# Sources for 2026-03-22 News Episode 
+- [The BTS Comeback Album Is Already Breaking Streaming Records](http://www.vulture.com/article/bts-arirang-streaming-records.html) - Vulture
+- [BTS’ New Album ‘ARIRANG’ Breaks Multiple Spotify Records Following Release - Billboard](https://www.billboard.com/music/music-news/bts-arirang-breaks-spotify-records-2026-1236203953/) - Billboard
+- [BTS Arirang review: K-pop idols rekindle their fire - BBC](https://www.bbc.com/news/articles/c070eg32dryo) - Bbc
+- [BTS release new album Arirang ahead of comeback concert - The Guardian](https://www.theguardian.com/music/2026/mar/20/bts-arirang-new-album-comeback-concert-kpop) - Theguardian
+- [BTS ‘ARIRANG’ Lead Single ’SWIM’ Captures Their Impact On Our Lives - Forbes](https://www.forbes.com/sites/laurasirikul/2026/03/20/bts-arirang-lead-single-swim-captures-their-impact-on-our-lives/) - Forbes
+- [‘Comeback of the century’: K-pop phenomenon BTS returns with first concert in years - CNN](https://www.cnn.com/2026/03/21/style/bts-arirang-comeback-concert-korea-intl-hnk) - Cnn
+- [BTS comeback show pays homage to its roots](https://www.irishtimes.comhttps://www.nytimes.com/live/2026/03/21/world/bts-netflix-concert-arirang/heres-the-latest) - Irishtimes.comhttps
+- [BTS Take ARMY Inside Their ‘Return’ in First Trailer for Netflix Documentary: ‘Standing Still Isn’t an Option’ - Billboard](https://www.billboard.com/music/pop/bts-return-netflix-documentary-trailer-1236200793/) - Billboard
+- [BTS Kicks Off First Group Performance in Over Three Years With Netflix Live Stream - The Hollywood Reporter](https://www.hollywoodreporter.com/tv/tv-features/bts-the-comeback-live-arirang-netflix-concert-1236543294/) - Hollywoodreporter
+- [BTS returns with comeback concert in Seoul after 4-year hiatus - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/bts-returns-with-comeback-concert-in-seoul-after-22088546.php) - Sfchronicle
+- [(VIDEO) Taylor Swift Leads 2026 iHeartRadio Music Awards Nominations](https://www.ibtimes.com.au/video-taylor-swift-leads-2026-iheartradio-music-awards-nominations-1863950) - Ibtimes.com.au
+- [Taylor Swift Set to Appear at 2026 iHeartRadio Music Awards; John Mellencamp & Kehlani Added as Performers - Billboard](https://www.billboard.com/music/awards/taylor-swift-to-appear-2026-iheartradio-music-awards-1236202327/) - Billboard
+- [Taylor Swift Set to Appear on iHeartRadio Music Awards Show - Variety](https://variety.com/2026/music/news/taylor-swift-iheartradio-music-awards-show-fox-dolby-1236693090/) - Variety
+- [Music Icons Jungkook and Arijit Singh Announce Surprise Collaboration](https://www.deccanchronicle.com/entertainment/music-icons-jungkook-and-arijit-singh-announce-surprise-collaboration-1945311) - Deccan Chronicle
+- [Bad Bunny’s Record-Breaking Popularity Proves That Latinos are Paving the Way in the Americas](https://www.fairobserver.com/world-news/us-news/bad-bunnys-record-breaking-popularity-proves-that-latinos-are-paving-the-way-in-the-americas/) - Fair Observer
+- [Bad Bunny Returns to Social Media After Wiping His Instagram Account - Yahoo](https://www.yahoo.com/entertainment/music/articles/bad-bunny-returns-social-media-144500027.html) - Yahoo
+- [Lily Allen Brings ‘West End Girl’ to London With a Bold, Theatrical Show Featuring Plenty of Feminine Rage — and Receipts: Concert Review](https://variety.com/2026/music/global/lily-allen-west-end-girl-concert-review-bold-feminine-rage-1236695834/) - Variety
+- [Os 5 Melhores Shows do Primeiro Dia de Lollapalooza Brasil 2026](https://www.terra.com.br/diversao/musica/os-5-melhores-shows-do-primeiro-dia-de-lollapalooza-brasil-2026,5599e5be5a701224ea05c458f1066c98dx4nbx0v.html) - Terra.com.br
+- [Interpol Debut New Song “See Out Loud” at São Paulo Concert: Watch](https://consequence.net/2026/03/interpol-debut-new-song-see-out-loud-watch/) - Consequence.net
+- [Vince Gill Sang for an Ill Joe Walsh at an Eagles Show. He Got Heckled](http://www.rollingstone.com/music/music-news/vince-gill-subs-for-joe-walsh-eagles-heckled-1235534197/) - Rolling Stone
+- [K-Pop Demon Hunters, BTS, and How Korea Conquered American Culture](http://www.hollywoodreporter.com/movies/movie-features/how-korea-took-over-the-world-1236542921/) - Hollywood Reporter
+- [How big is the BTS comeback going to be? - WFAE](https://www.wfae.org/npr-arts-life/2026-03-20/how-big-is-the-bts-comeback-going-to-be) - Wfae
+- [How big is the BTS comeback going to be? - VPM](https://www.vpm.org/npr-news/2026-03-20/how-big-is-the-bts-comeback-going-to-be) - Vpm
+- ['I cry every time': How Kpop Demon Hunters went viral - BBC](https://www.bbc.com/news/articles/c4g4n1dyepdo) - Bbc
+- [Poison The Well Premiere New Single & Music Video "Weeping Tones" From New Album "Peace In Place"](http://www.metalunderground.com/news/details.cfm?newsid=161069) - Metalunderground.com
+- [Chance the Rapper Verdict: Star Wins Trial in Pat the Manager Lawsuit](http://www.billboard.com/pro/chance-the-rapper-verdict-wins-trial-pat-the-manager/) - Billboard
+- [Chance The Rapper Beats Ex-Manager’s Lawsuit, Awarded $35](https://stereogum.com/2493129/chance-the-rapper-beats-ex-managers-lawsuit-awarded-35/news) - Stereogum
+- [A Timeline of the Legal Battle Between Chance the Rapper & His Former Manager Pat Corcoran - Billboard](https://www.billboard.com/lists/chance-the-rapper-pat-the-manager-legal-timeline/) - Billboard
+- [Chance the Rapper Defeats Pat the Manager’s Claims in Chicago Contract Trial - Billboard](https://www.billboard.com/pro/chance-the-rapper-verdict-wins-trial-pat-the-manager/) - Billboard
+- [Chance The Rapper In Court Over Multimillion-Dollar Handshake Contract Dispute - Above the Law](https://abovethelaw.com/2026/03/chance-the-rapper-in-court-over-multimillion-dollar-handshake-contract-dispute/) - Abovethelaw
+- [New BOUNDARIES Single Seems To Be Met With 'Mix'ed Reviews; Band Responds](https://metalinjection.net/new-music/new-boundaries-single-seems-to-be-met-with-mixed-reviews-band-responds) - Metal Injection.net
+- [Make concerts affordable again — here’s how](https://nypost.com/2026/03/20/opinion/how-to-push-down-concert-prices/) - New York Post
+- [Live Nation reaches settlement with DOJ in antitrust fight - Politico](https://www.politico.com/news/2026/03/09/live-nation-reaches-settlement-with-doj-in-antitrust-fight-00818564) - Politico
+- [Live Nation reaches tentative settlement with Justice Department in antitrust lawsuit - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-03-09/live-nation-ticketmaster-doj-lawsuit-settlement-details) - Latimes
+- [Live Nation Reaches a Settlement With the DOJ Over Alleged Ticketing Monopoly - Gizmodo](https://gizmodo.com/live-nation-reaches-a-settlement-with-the-doj-over-alleged-ticketing-monopoly-2000731322) - Gizmodo
+- [Live Nation Reaches Settlement With DOJ in Antitrust Case - Insurance Journal](https://www.insurancejournal.com/news/national/2026/03/09/861106.htm) - Insurancejournal
+- [Ticketmaster parent Live Nation strikes deal with DOJ to settle antitrust suit— why judge was left fuming - New York Post](https://nypost.com/2026/03/09/business/ticketmaster-parent-live-nation-strikes-deal-with-doj-to-settle-antitrust-suit/) - Nypost
+- [Live Nation settles with DOJ – What it means for live entertainment fans - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/09/live-nation-settlement/89063758007/) - Usatoday
