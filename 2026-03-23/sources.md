@@ -1,0 +1,24 @@
+# Sources for 2026-03-23 News Episode 
+- [The Beatles’ Favorite Beatles Songs](https://www.mentalfloss.com/entertainment/music/beatles-favorite-beatles-songs) - Mental Floss
+- [Kylie Minogue Reflects on Triumphant Tension Tour, Teases Future Projects Amid 2026 Anniversaries](https://www.ibtimes.com.au/kylie-minogue-reflects-triumphant-tension-tour-teases-future-projects-amid-2026-anniversaries-1863978) - Ibtimes.com.au
+- [James Brown – Sex Machine (1970, MFSL 2025)](https://exystence.net/blog/2026/03/22/james-brown-sex-machine-1970-mfsl-2025/) - Exystence.net
+- [When Serge Gainsbourg Made Reggae History](https://fm4.orf.at/stories/3052822/) - Fm4.orf.at
+- [Soompi’s K-Pop Music Chart 2026, March Week 4](http://www.soompi.com/article/1826824wpp/soompis-k-pop-music-chart-2026-march-week-4) - soompi
+- [Rio de Janeiro’s Mayor Bans Chappell Roan from Performing at Music Festival](https://consequence.net/2026/03/chappell-roan-banned-from-performing-at-todo-mundo-no-rio/) - Consequence.net
+- [Chappell Roan banned from Rio festival after allegedly harassed by Jude Law’s daughter; Jorginho Frello responds](https://economictimes.indiatimes.com/us/entertainment/rio-mayor-bans-chappell-roan-from-todo-mundo-no-rio-after-security-confronts-jorginhos-family/articleshow/129727654.cms) - The Times of India
+- [Chappell Roan addresses security guard's encounter with 11-year-old fan that left child 'in tears'](https://www.nbcnews.com/pop-culture/pop-culture-news/chappell-roan-11-year-old-fan-in-tears-rcna264624) - NBC News
+- [Rio de Janeiro Mayor Bans Chappell Roan Amid Accusations She Made Daughter of Brazilian Soccer Star Jorginho Cry](https://www.breitbart.com/entertainment/2026/03/22/rio-de-janeiro-mayor-bans-chappell-roan-amid-accusations-she-made-daughter-of-brazilian-soccer-star-jorginho-cry/) - Breitbart News
+- [Rio Mayor Bans Chappell Roan From Music Event After Soccer Star Claims Her Security Upset His Daughter - Billboard](https://www.billboard.com/music/music-news/rio-mayor-bans-chappell-roan-festival-soccer-star-security-1236204088/) - Billboard
+- [Rio mayor bans Chappell Roan from performing in his city after fan incident controversy - Fox News](https://www.foxnews.com/entertainment/rio-mayor-bans-chappell-roan-from-performing-city-fan-incident-controversy) - Foxnews
+- [Chappell Roan On São Paulo Hotel Security Incident: “I Do Not Hate Children” - Pitchfork](https://pitchfork.com/news/chappell-roan-on-sao-paulo-hotel-security-incident-i-do-not-hate-children/) - Pitchfork
+- [80s Kult Hits - Die Erfolgreichsten Klassiker (2CD) (2026)](https://post.rlsbb.to/80s-kult-hits-die-erfolgreichsten-klassiker-2cd-2026/) - Rlsbb.to
+- [Whole Lotta ‘Love’: The Outfield’s ‘Your Love’ Music Video Joins Billion Views Club, 40 Years After Release - Billboard](https://www.billboard.com/music/rock/the-outfield-your-love-video-billion-views-club-youtube-1236197319/) - Billboard
+- [Nubiyan Twist – Chasing Shadows (2026)](https://exystence.net/blog/2026/03/22/nubiyan-twist-chasing-shadows-2026/) - Exystence.net
+- [A Short History of AI-Generated Music: From ‘Fake Drake’ to Blockbuster Legal Settlements - Billboard](https://www.billboard.com/lists/ai-music-timeline-fake-drake-suno-udio-label-settlements/) - Billboard
+- [Is Suno the Music Industry’s Biggest Nightmare — or Greatest Hope? - Billboard](https://www.billboard.com/pro/suno-ai-music-startup-cover-story/) - Billboard
+- [Madonna's 'Borderline' Love Interest, Singer Louie Louie, Dies at 63](https://extratv.com/2026/03/21/madonnas-borderline-love-interest-singer-louie-louie-dies-at-63/) - Extra
+- [INFECTED RAIN Release Melodic And Intense New Song, "Stranger"](https://metalinjection.net/new-music/infected-rain-release-melodic-and-intense-new-song-stranger) - Metal Injection.net
+- [Kesha at 3Arena: Tik Tok singer walked so the modern pop girl could run](https://www.irishtimes.com/culture/music/review/2026/03/22/kesha-at-3arena-tik-tok-singer-walked-so-the-modern-pop-girl-could-run/) - The Irish Times
+- [EXEK – Prove the Mountains Move (2026)](https://exystence.net/blog/2026/03/22/exek-prove-the-mountains-move-2026/) - Exystence.net
+- [Why Chris Barnes Will 'Never' Play With Cannibal Corpse Again](https://loudwire.com/chris-barnes-never-play-cannibal-corpse-again/) - Loudwire
+- [Don Jazzy’s silence deepens Crayon controversy](https://punchng.com/don-jazzys-silence-deepens-crayon-controversy/) - The Punch
