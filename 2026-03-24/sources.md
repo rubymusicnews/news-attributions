@@ -1,0 +1,40 @@
+# Sources for 2026-03-24 News Episode 
+- [CA7RIEL & Paco Amoroso Announce 2026 World Tour](https://consequence.net/2026/03/ca7riel-paco-amoroso-2026-world-tour/) - Consequence.net
+- [Ca7riel & Paco Amoroso search for renewal in latest LP ‘Free Spirits’ - Los Angeles Times](https://www.latimes.com/delos/story/2026-03-19/ca7riel-paco-amoroso-new-album-free-spirits-sting-jack-black-anderson-paak-fred-again) - Latimes
+- [CA7RIEL y Paco Amoroso’s ‘Free Spirits’ Album & More Best New Music Latin - Billboard](https://www.billboard.com/music/latin/ca7riel-paco-amoroso-free-spirits-best-new-music-latin-1236203413/) - Billboard
+- [A tale of two listening parties: Kenia Os IRL and Bad Gyal on TikTok](http://musically.com/2026/03/23/a-tale-of-two-listening-parties-kenia-os-irl-and-bad-gyal-on-tiktok/) - Music Ally
+- [Throwback to Taylor Swift's debut album: The journey from a budding artist to a global icon](https://timesofindia.indiatimes.com/entertainment/english/music/news/taylor-swift-debut-album/articleshow/129747328.cms) - The Times of India
+- [Taylor Swift Joins Rihanna In A Historic Chart Feat - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/03/22/taylor-swift-joins-rihanna-in-a-historic-chart-feat/) - Forbes
+- [Model/Actriz Shares New EP, Announces 2026 Tour](https://pitchfork.com/news/model-actriz-shares-new-ep-announces-2026-tour/) - Pitchfork
+- [The 64 Most Anticipated Albums of Spring 2026](https://pitchfork.com/features/most-anticipated-albums-spring-2026/) - Pitchfork
+- [Kehlani Reveals Self-Titled Album Will Arrive This Spring - Rolling Stone India](https://rollingstoneindia.com/kehlani-reveals-self-titled-album-will-arrive-this-spring/) - Rollingstoneindia
+- [Kehlani Announces Self-Titled Album ‘Kehlani’, Signals New Era of R&B Clarity and Control - famemagazine.co.uk](https://www.famemagazine.co.uk/kehlani-announces-self-titled-album-kehlani-signals-new-era-of-rb-clarity-and-control/) - Famemagazine
+- [Kehlani Reveals Self-Titled Album Will Arrive This Spring - Rolling Stone](https://www.rollingstone.com/music/music-news/kehlani-self-titled-album-release-date-cover-art-1235532576/) - Rollingstone
+- [KATSEYE to Headline Head in the Clouds 2026 Festival: Full Lineup Revealed](https://www.justjared.com/2026/03/23/katseye-head-in-the-clouds-2026-lineup-xg-rich-brian-umi/) - Just Jared
+- [Cântărețul american Barry Manilow anunță primul album cu piese noi după aproape 15 ani](https://www.mediafax.ro/life-entertaiment/cantaretul-american-barry-manilow-anunta-primul-album-cu-piese-noi-dupa-aproape-15-ani-23708068) - Mediafax.ro
+- [Barry Manilow Announces First New Album in 15 Years...](http://www.billboard.com/music/pop/barry-manilow-first-new-studio-album-in-nearly-15-years-1236203850/) - Billboard
+- [Barry Manilow Announces First New Studio Album of Mostly New Material in Nearly 15 Years - Billboard](https://www.billboard.com/music/pop/barry-manilow-first-new-studio-album-in-nearly-15-years-1236203850/) - Billboard
+- [TLC and Salt-N-Pepa Announce 2026 “It’s Iconic” Tour with En Vogue](https://consequence.net/2026/03/tlc-salt-n-pepa-2026-its-iconic-tour-dates/) - Consequence.net
+- [TLC, Salt-N-Pepa & En Vogue Are Going on an Iconic Joint Tour: ‘The Show Is Going to Be Crazy’ - Billboard](https://www.billboard.com/music/music-news/salt-n-pepa-tlc-en-vogue-tour-dates-its-iconic-tour-1236204550/) - Billboard
+- [The Kinks’ Dave Davies Slams Moby Over “Lola” Criticism: “I Am Highly Insulted”](https://pitchfork.com/news/the-kinks-dave-davies-slams-moby-over-lola-criticism-i-am-highly-insulted/) - Pitchfork
+- [Legendary Kinks guitarist turns tables on Moby for calling classic tune ‘unevolved’ - New York Post](https://nypost.com/2026/03/22/entertainment/legendary-kinks-guitarist-turns-tables-on-moby-for-calling-classic-tune-unevolved/) - Nypost
+- [The Kinks Respond to Moby Bashing ‘Lola’: ‘Who the F-ck Is Moby?’ - Rolling Stone](https://www.rollingstone.com/music/music-news/the-kinks-respond-moby-lola-transphobic-1235535721/) - Rollingstone
+- [Moby slammed by Dave Davies for calling The Kinks’ song Lola ‘transphobic’ - The Independent](https://www.independent.co.uk/arts-entertainment/music/news/moby-the-kinks-lola-lyrics-transphobic-dave-davies-b2943647.html) - Independent
+- [The Kinks’ Dave Davies hits back at Moby for saying ‘Lola’ is “gross” and “transphobic” - NME](https://www.nme.com/news/music/the-kinks-dave-davies-hits-back-at-moby-for-saying-lola-is-gross-and-transphobic-3936073) - Nme
+- [Kinks guitarist Dave Davies hits back at Moby for calling 1970 single Lola ‘gross and transphobic’ - The Guardian](https://www.theguardian.com/music/2026/mar/23/kinks-guitarist-dave-davies-hits-back-at-moby-about-lola-transphobic) - Theguardian
+- [“The little idiot”: Dave Davies hits back at Moby calling Lola “unevolved” and “transphobic” - MusicRadar](https://www.musicradar.com/artists/singles-albums/the-little-idiot-dave-davies-hits-back-at-moby-calling-lola-unevolved-and-transphobic) - Musicradar
+- [Hoshimachi Suisei’s New Studio: A Defining Moment for an Idol, Artist, and Visionary](https://whatjapanthinks.com/hoshimachi-suiseis-new-studio/) - Whatjapanthinks.com
+- ['Highly Insulted': Rock Legend Dave Davies Slams Moby For Calling 'Lola' Transphobic](https://www.huffpost.com/entry/kinks-dave-davies-moby-lola-transphobic_n_69c118ade4b03dbe678a1cf3) - HuffPost
+- [The Kinks’ Dave Davies “Highly Insulted” by Moby Saying “Lola” Is “Gross and Transphobic”](https://consequence.net/2026/03/the-kinks-dave-davies-insulted-moby-lola-gross-transphobic/) - Consequence.net
+- [Legendary Kinks guitarist turns tables on Moby for calling classic tune ‘unevolved’ - New York Post](https://nypost.com/2026/03/22/entertainment/legendary-kinks-guitarist-turns-tables-on-moby-for-calling-classic-tune-unevolved/) - Nypost
+- [The Kinks Respond to Moby Bashing ‘Lola’: ‘Who the F-ck Is Moby?’ - Rolling Stone](https://www.rollingstone.com/music/music-news/the-kinks-respond-moby-lola-transphobic-1235535721/) - Rollingstone
+- [Moby slammed by Dave Davies for calling The Kinks’ song Lola ‘transphobic’ - The Independent](https://www.independent.co.uk/arts-entertainment/music/news/moby-the-kinks-lola-lyrics-transphobic-dave-davies-b2943647.html) - Independent
+- [The Kinks’ Dave Davies hits back at Moby for saying ‘Lola’ is “gross” and “transphobic” - NME](https://www.nme.com/news/music/the-kinks-dave-davies-hits-back-at-moby-for-saying-lola-is-gross-and-transphobic-3936073) - Nme
+- [Kinks guitarist Dave Davies hits back at Moby for calling 1970 single Lola ‘gross and transphobic’ - The Guardian](https://www.theguardian.com/music/2026/mar/23/kinks-guitarist-dave-davies-hits-back-at-moby-about-lola-transphobic) - Theguardian
+- [Kronos Quartet: Tiny Desk Concert](https://www.npr.org/2026/03/23/g-s1-111831/kronos-quartet-tiny-desk-concert) - NPR
+- [Kronos Quartet: Tiny Desk Concert - KSUT Public Radio](https://www.ksut.org/music/2026-03-23/kronos-quartet-tiny-desk-concert) - Ksut
+- [Kronos Quartet: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-03-23/kronos-quartet-tiny-desk-concert) - Wrvo
+- [Kronos Quartet: Tiny Desk Concert - New Hampshire Public Radio](https://www.nhpr.org/2026-03-23/kronos-quartet-tiny-desk-concert) - Nhpr
+- [Kronos Quartet: Tiny Desk Concert - Interlochen Public Radio](https://www.interlochenpublicradio.org/2026-03-23/kronos-quartet-tiny-desk-concert) - Interlochenpublicradio
+- [311 and Dirty Heads Announce 2026 Co-Headlining North American Tour](https://consequence.net/2026/03/311-dirty-heads-2026-north-american-tour/) - Consequence.net
+- [Angra End Hiatus, Return for ‘The Holy Land Tour’](https://www.metalsucks.net/2026/03/23/angra-end-hiatus-return-for-the-holy-land-tour/) - MetalSucks
