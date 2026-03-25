@@ -1,0 +1,27 @@
+# Sources for 2026-03-25 News Episode 
+- [D2C before DSPs is music’s parallel economy. Here’s the data from EVEN.](http://musically.com/2026/03/24/d2c-before-dsps-is-musics-parallel-economy-heres-the-data-from-even/) - Music Ally
+- [MIDiA: Global Recorded Music Revenue Grew 9.4% in 2025, With Bump From Labels’ Share of Expanded Rights - billboard.com](https://www.billboard.com/pro/midia-music-report-2025-global-recorded-revenue-grew/) - Billboard
+- [Indie Distribution Company Too Lost Raises Investment From TA Associates, Goldstate - Billboard](https://www.billboard.com/pro/too-lost-raises-investment-ta-associates-goldstate/) - Billboard
+- [Japanese duo Creepy Nuts touch down in Sony Music’s Roblox world](http://musically.com/2026/03/24/japanese-duo-creepy-nuts-touch-down-in-sony-musics-roblox-world/) - Music Ally
+- [Eclectic Artist Esther Anaya discusses rhythm, reinvention, and commanding the global stage (INTERVIEW)](https://earmilk.com/2026/03/24/eclectic-artist-esther-anaya-discusses-rhythm-reinvention-and-commanding-the-global-stage-interview/) - Earmilk.com
+- [Hanumankind, Anuv Jain to stage Australia tours with UNI7IED](http://musically.com/2026/03/24/hanumankind-anuv-jain-to-stage-australia-tours-with-uni7ied/) - Music Ally
+- [Apple Music now helps you keep up with concerts from your favorite artists](https://9to5mac.com/2026/03/24/apple-music-now-helps-you-keep-up-with-concerts-from-your-favorite-artists/) - 9to5Mac
+- [Apple Music 5.2 for Android adds iOS 26.4 Playlist Playground, album redesign [U]](http://9to5google.com/2026/03/24/apple-music-5-2-android/) - 9to5google.com
+- [Apple highlights 13 enhancements coming to iPhone with iOS 26.4 - 9to5Mac](https://9to5mac.com/2026/03/21/apple-highlights-13-enhancements-coming-to-iphone-with-ios-26-4/) - 9to5mac
+- [Apple highlights 13 enhancements coming to iPhone with iOS 26.4 - 9to5Mac](https://9to5mac.com/2026/03/18/apple-highlights-13-enhancements-coming-to-iphone-with-ios-26-4/) - 9to5mac
+- [New Yeat LP To Feature Elton John, Grimes](https://www.spinmagazine.com/2026/03/yeat-album-guests/) - Spinmagazine.com
+- [Mon Laferte Will Bring Noir Sound to North America with “Femme Fatale Tour”](https://consequence.net/2026/03/mon-laferte-femme-fatale-tour/) - Consequence.net
+- [MC’s MUSIC LOUNGE: Going with the FLO](https://www.laineygossip.com/mc-music-lounge-leak-it-by-flo-serious-contender-for-2026-pride-anthem/) - LaineyGossip
+- [Kneecap Will Never Back Down](https://www.esquire.com/entertainment/music/a70772513/kneecap-fenian-interview/) - esquire.com
+- [Kneecap Can’t Escape Controversy. It Wants to Be Known for More. - The New York Times](https://www.nytimes.com/2026/03/13/arts/music/kneecap-fenian-interview.html) - Nytimes
+- [Kneecap rapper will not face terrorism trial after high court rejects CPS appeal - The Guardian](https://www.theguardian.com/music/2026/mar/11/kneecap-rapper-terrorism-trial-high-court-throws-out-cps-appeal) - Theguardian
+- [FKA twigs Sues the Twigs Over Trademark Battle](https://pitchfork.com/news/fka-twigs-sues-the-twigs-over-trademark-battle/) - Pitchfork
+- [FKA Twigs Sues Indie Band The Twigs Over Name Lawsuit Threats & Demand For ‘7-Figure Payout’ - Billboard](https://www.billboard.com/pro/fka-twigs-sues-indie-band-the-twigs-over-lawsuit-threats/) - Billboard
+- [AC/DC High Voltage 50th Anniversary: How 1976 Recharged Rock & Roll](https://screenrant.com/acdc-high-voltage-50th-anniversary-1976/) - Screen Rant
+- [JAY-Z Explains Why He Didn’t Like Drake & Kendrick Lamar’s Beef](http://hiphopdx.com/news/jay-z-drake-kendrick-lamar-beef/) - HipHopDX
+- [GQ: The Jay-Z Interview...](https://www.gq.com/story/jay-z-cover-interview-april-2026) - GQ Magazine
+- [Jay-Z reveals major concerns he has over Kendrick Lamar and Drake’s feud](https://pagesix.com/2026/03/24/entertainment/jay-z-reveals-major-concerns-he-has-over-kendrick-lamar-and-drakes-feud/) - Page Six
+- [Jay-Z Speaks Out on Sexual Misconduct Lawsuit, Reveals How He Picks Super Bowl Performers in Rare Interview](https://www.justjared.com/2026/03/24/jay-z-lawsuit-super-bowl-performers-gq-interview/) - Just Jared
+- [JAŸ-Z Covers April Issue Of ‘GQ’ Magazine — “2026 Is All Offense”](https://hiphopwired.com/3049295/jay-z-covers-april-2026-issue-of-gq-magazine/) - Hip-Hop Wired
+- [Fakemink revela que Drake lhe deu 'muitos conselhos valiosos' e reafirma: 'Sou o melhor'](https://rollingstone.com.br/musica/fakemink-revela-que-drake-lhe-deu-muitos-conselhos-valiosos-e-reafirma-sou-o-melhor/) - Rollingstone.com.br
+- [Pixies Detail 40th Anniversary US Shows](https://pitchfork.com/news/pixies-detail-40th-anniversary-us-shows/) - Pitchfork
