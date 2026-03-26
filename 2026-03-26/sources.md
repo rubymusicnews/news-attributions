@@ -1,0 +1,35 @@
+# Sources for 2026-03-26 News Episode 
+- [BTS takes over the Guggenheim museum for secret ‘Tonight Show’ performance](https://pagesix.com/2026/03/25/entertainment/bts-takes-over-the-guggenheim-museum-for-secret-tonight-show-performance/) - Page Six
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Sets Return to ‘The Tonight Show Starring Jimmy Fallon’ With Back-to-Back Performances - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/bts-return-tonight-show-jimmy-fallon-performances-1236539493/) - Hollywoodreporter
+- [BTS to Appear in Back-to-Back Episodes of ‘The Tonight Show Starring Jimmy Fallon’ - Variety](https://variety.com/2026/music/news/bts-tonight-show-jimmy-fallon-2-1236692240/) - Variety
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - NPR](https://www.npr.org/2026/03/20/nx-s1-5753919/bts-arirang-kpop-comeback-review) - Npr
+- [BTS Ties Together History & K-Pop Excellence With First Album in 6 Years: Stream ‘ARIRANG’ Now - Billboard](https://www.billboard.com/music/music-news/bts-new-album-arirang-first-lp-6-years-listen-1236203070/) - Billboard
+- [BTS’ New Album ‘Arirang’ Is Finally Here - Rolling Stone](https://www.rollingstone.com/music/music-news/bts-arirang-album-out-now-1235534191/) - Rollingstone
+- [Young Miko’s Climb to Stardom](http://www.rollingstone.com/music/music-features/young-miko-do-not-disturb-band-bunny-future-1235533076/) - Rolling Stone
+- [Inside the Don’t Ask, Don’t Tell Era of AI in Music](http://www.rollingstone.com/music/music-features/ai-in-music-how-used-now-1235536484/) - Rolling Stone
+- [Lucian Grainge Talks AI Guardrails and New Possibilities at Nvidia’s ‘Super Bowl of AI’ Conference - Billboard](https://www.billboard.com/pro/lucian-grainge-ai-guardrails-possibility-nvidia-conference/) - Billboard
+- [I Only Listened to AI Music for a Week. It Was Terrible, but Not for the Reason You Think - CNET](https://www.cnet.com/tech/services-and-software/generative-ai-music-experiment-culture/) - Cnet
+- [A Short History of AI-Generated Music: From ‘Fake Drake’ to Blockbuster Legal Settlements - Billboard](https://www.billboard.com/lists/ai-music-timeline-fake-drake-suno-udio-label-settlements/) - Billboard
+- [US man pleads guilty to defrauding music streamers out of millions using AI - The Guardian](https://www.theguardian.com/us-news/2026/mar/21/man-pleads-guilty-music-streaming-fraud-ai) - Theguardian
+- [How Prediction Markets Are Changing the Music Industry](http://www.rollingstone.com/music/music-features/kalshi-prediction-markets-music-industry-1235535735/) - Rolling Stone
+- [Mind if Xaviersobased Keeps Rewriting the Rules?](http://www.rollingstone.com/music/music-features/xaviersobased-interview-new-york-rap-1235535543/) - Rolling Stone
+- [Haylie Davis’ California Sunshine](http://www.rollingstone.com/music/music-features/haylie-davis-interview-singer-songwriter-1235529174/) - Rolling Stone
+- [Host Ludacris Teases Collabs & New Music at iHeart Music Awards (Exclusive)](https://extratv.com/2026/03/25/host-ludacris-teases-collabs-and-new-music-at-iheart-music-awards-exclusive/) - Extra
+- [Taylor Swift Set to Appear at 2026 iHeartRadio Music Awards; John Mellencamp & Kehlani Added as Performers - Billboard](https://www.billboard.com/music/awards/taylor-swift-to-appear-2026-iheartradio-music-awards-1236202327/) - Billboard
+- [Taylor Swift Set to Appear on iHeartRadio Music Awards Show - Variety](https://variety.com/2026/music/news/taylor-swift-iheartradio-music-awards-show-fox-dolby-1236693090/) - Variety
+- [iHeartRadio Music Awards 2026: All Winners, Nominees And Performances - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/03/26/iheartradio-music-awards-2026-winners-nominees-performances/) - Forbes
+- [Kehlani, Alex Warren, Lainey Wilson, Ludacris & Raye Among 2026 iHeartRadio Music Awards Performers - Billboard](https://www.billboard.com/music/awards/2026-iheartradio-music-awards-performers-details-1236206367/) - Billboard
+- [Here Are All the Performers & Presenters at 2026 iHeartRadio Music Awards - Billboard](https://www.billboard.com/music/awards/2026-iheartradio-music-awards-performers-presenter-details-1236206367/) - Billboard
+- [Jungle post! New single, album, tour, and side project!](https://ohnotheydidnt.livejournal.com/132114963.html) - Livejournal.com
+- [Johnny Cash, Bruce Springsteen, Ramones Cover Tom Waits on New Compilation](https://pitchfork.com/news/johnny-cash-bruce-springsteen-ramones-cover-tom-waits-on-new-compilation/) - Pitchfork
+- [MOONSPELL Returns With New Record Out This July, "Far From God" Streaming Now](https://metalinjection.net/video/moonspell-returns-with-new-record-out-this-july-far-from-god-streaming-now) - Metal Injection.net
+- [Moonspell To Release New Album "Far From God" In July; Shares Music Video For Title Track](http://www.metalunderground.com/news/details.cfm?newsid=161086) - Metalunderground.com
+- [‘This Is Not Me’: Inside the AI Scams Driving Musicians Crazy](http://www.rollingstone.com/music/music-features/ai-scams-musicians-streaming-services-spotify-1235535753/) - Rolling Stone
+- [US man pleads guilty to defrauding music streamers out of millions using AI - The Guardian](https://www.theguardian.com/us-news/2026/mar/21/man-pleads-guilty-music-streaming-fraud-ai) - Theguardian
+- [Samara Joy, Fatoumata Diawara, Ben Folds, Morcheeba and more lead line-up for EFG London Jazz Festival](https://www.thelineofbestfit.com/news/efg-london-jazz-festival-samara-joy-fatoumata-diawara-ben-folds-morcheeba-and-more-lead-line-up) - Thelineofbestfit.com
+- [EFG London Jazz Festival Announces First Acts for 2026 Edition](https://thequietus.com/news/efg-london-jazz-festival-announces-first-acts-for-2026-edition/) - The Quietus
+- [Self Esteem to Launch London’s British Airways ARC Venue as Inaugural Headliner - Billboard](https://www.billboard.com/music/music-news/self-esteem-london-british-airways-arc-venue-lineup-2026-1236201994/) - Billboard
+- [Lexus Partners With Gen Z Musician For Miles Davis Homage 03/20/2026 - MediaPost](https://www.mediapost.com/publications/article/413631/lexus-partners-with-gen-z-musician-for-miles-davis.html) - Mediapost
+- [Saint Harison Is Done Romanticizing the Ache](http://www.rollingstone.com/music/music-features/saint-harison-ghosted-new-music-interview-1235529428/) - Rolling Stone
+- [Iran War Forces Vader to Postpone Upcoming Australia Tour](https://www.metalsucks.net/2026/03/25/iran-war-forces-vader-to-postpone-upcoming-australia-tour/) - MetalSucks
