@@ -1,0 +1,31 @@
+# Sources for 2026-03-27 News Episode 
+- [The Record Deal That Changed Rock History](https://loudwire.com/record-deal-changed-rock-history/) - Loudwire
+- [BIGHIT MUSIC Provides Updates On Legal Proceedings Against Violation Of BTS’s Rights](http://www.soompi.com/article/1828035wpp/bighit-music-provides-updates-on-legal-proceedings-against-violation-of-btss-rights) - soompi
+- [‘BTS: The Return’: Six Things We Learned From the Revealing New Documentary](http://www.rollingstone.com/music/music-features/bts-the-return-netflix-documentary-things-we-learned-1235535592/) - Rolling Stone
+- [BTS Sets Return to ‘The Tonight Show Starring Jimmy Fallon’ With Back-to-Back Performances - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/bts-return-tonight-show-jimmy-fallon-performances-1236539493/) - Hollywoodreporter
+- [BTS Take ARMY Inside Their ‘Return’ in First Trailer for Netflix Documentary: ‘Standing Still Isn’t an Option’ - Billboard](https://www.billboard.com/music/pop/bts-return-netflix-documentary-trailer-1236200793/) - Billboard
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - NPR](https://www.npr.org/2026/03/20/nx-s1-5753919/bts-arirang-kpop-comeback-review) - Npr
+- [BTS Ties Together History & K-Pop Excellence With First Album in 6 Years: Stream ‘ARIRANG’ Now - Billboard](https://www.billboard.com/music/music-news/bts-new-album-arirang-first-lp-6-years-listen-1236203070/) - Billboard
+- [BTS: Arirang review – the world’s biggest pop band return with dumb fun and downright weirdness - The Guardian](https://www.theguardian.com/music/2026/mar/20/bts-arirang-review-the-worlds-biggest-pop-band-return-with-dumb-fun-and-downright-weirdness) - Theguardian
+- [Lily Allen Announces North American Arena Tour](https://pitchfork.com/news/lily-allen-announces-north-american-arena-tour/) - Pitchfork
+- [Lily Allen Announces Fall 2026 North American Tour](https://consequence.net/2026/03/lily-allen-fall-2026-north-american-tour/) - Consequence.net
+- [Tiny Desk Radio: Norah Jones, Kirk Franklin, Dua Lipa](https://www.npr.org/2026/03/26/g-s1-115001/tiny-desk-radio-norah-jones-kirk-franklin-dua-lipa) - NPR
+- [Tiny Desk Radio: Norah Jones, Kirk Franklin, Dua Lipa - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-26/tiny-desk-radio-norah-jones-kirk-franklin-dua-lipa) - Iowapublicradio
+- [Music Industry Moves: Seeker Music Closes $267 Million ABS to Grow Catalog; Warner Records Nashville Promotes Five and Hires One](https://variety.com/2026/music/news/seeker-music-closes-267-million-abs-1236699752/) - Variety
+- [Seeker Lands $267 Million Through Asset Backed Security for Catalog Acquisitions - Billboard](https://www.billboard.com/pro/seeker-secures-267-m-for-catalog-acquisitions/) - Billboard
+- [She Made the Greatest Song of the 2010s. Now She’s Back With Her First Album of the 2020s.](https://slate.com/culture/2026/03/robyn-sexistential-album-lyrics-dancing-on-my-own.html) - Slate Magazine
+- [“Sexistential” de Robyn : “C’est mon disque de cougar !”](https://www.lesinrocks.com/musique/sexistential-de-robyn-cest-mon-disque-de-cougar-691958-26-03-2026/) - Les Inrocks
+- [Bob Dylan Announces New US Tour Dates](https://consequence.net/2026/03/bob-dylan-extends-2026-us-tour/) - Consequence.net
+- [Bob Dylan Adds West Coast Dates to 2026 Summer Touring - Variety](https://variety.com/2026/music/news/bob-dylan-summer-tour-west-coast-dates-1236698205/) - Variety
+- [Judas Priest Announce 50th Anniversary Sad Wings of Destiny Reissue, Start Work on New Album](https://consequence.net/2026/03/judas-priest-50th-anniversary-sad-wings-plus-new-album/) - Consequence.net
+- [Judas Priest, Sad Wings Of Destiny & The Birth Of Modern Metal](https://thequietus.com/opinion-and-essays/anniversary/history-of-heavy-metal-judas-priest/) - The Quietus
+- [JUDAS PRIEST Announces Remixed & Remastered Version Of Sad Wings Of Destiny](https://metalinjection.net/news/judas-priest-announces-remixed-remastered-version-of-sad-wings-of-destiny) - Metal Injection.net
+- [Kanye West Says Bully Uses “No AI”](https://pitchfork.com/news/kanye-west-says-his-new-album-bully-uses-no-ai/) - Pitchfork
+- [A Short History of AI-Generated Music: From ‘Fake Drake’ to Blockbuster Legal Settlements - Billboard](https://www.billboard.com/lists/ai-music-timeline-fake-drake-suno-udio-label-settlements/) - Billboard
+- [Tokischa Shaves Her Head at MSG — and Announces ‘Amor & Droga’ Album](http://www.rollingstone.com/music/music-latin/tokischa-amor-y-droga-album-announce-1235537316/) - Rolling Stone
+- [Tokischa Shaves Her Head Live on Stage at New York’s Madison Square Garden - Billboard](https://www.billboard.com/music/music-news/tokischa-shaves-head-live-stage-madison-square-garden-nyc-1236203978/) - Billboard
+- [This book looks inside the mad world of Lee ‘Scratch’ Perry](https://www.dazeddigital.com/music/article/69990/1/this-book-looks-inside-the-mad-world-of-lee-scratch-perry-black-ark?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=this-book-looks-inside-the-mad-world-of-lee-scratch-perry) - Dazed
+- [Pedro Sampaio terá álbum em espanhol “com funk, reggaeton e muita brasilidade”](https://www.papelpop.com/2026/03/pedro-sampaio-tera-album-em-espanhol-com-funk-reggaeton-e-muita-brasilidade/) - Papelpop.com
+- [Olivia Dean cleans up again at MOBOs - as Pharrell takes special award](https://news.sky.com/story/olivia-dean-cleans-up-again-at-mobo-awards-as-pharrell-williams-takes-special-prize-for-songwriting-13524703) - Sky.com
+- [Olivia Dean Extends Awards Show Hot Streak at MOBOs’ 30th Anniversary Ceremony: Full Winners List - Billboard](https://www.billboard.com/music/awards/mobos-winners-list-2026-olivia-dean-1236207463/) - Billboard
+- [Olivia Dean's streak continues as she wins big at Mobo Awards - BBC](https://www.bbc.com/news/articles/clyerj082p1o) - Bbc
