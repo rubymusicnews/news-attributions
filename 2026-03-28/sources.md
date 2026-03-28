@@ -1,0 +1,36 @@
+# Sources for 2026-03-28 News Episode 
+- [At 40, Lady Gaga isn't done revolutionizing pop music](https://www.dw.com/en/at-40-lady-gaga-isnt-done-revolutionizing-pop-music/a-76539162) - DW (English)
+- [Lady Gaga’s Mayhem Ball reveals the gothic tradition behind modern celebrity](https://theconversation.com/lady-gagas-mayhem-ball-reveals-the-gothic-tradition-behind-modern-celebrity-277788) - The Conversation Africa
+- [Lady Gaga’s Top 40 Billboard Hot 100 Hits, From ‘Just Dance’ to ‘Die With a Smile’ - Billboard](https://www.billboard.com/lists/lady-gaga-top-40-billboard-hot-100-hits/) - Billboard
+- [Muse Announce 2026 North American Tour with Bloc Party and Portugal. the Man](https://consequence.net/2026/03/muse-2026-north-american-tour/) - Consequence.net
+- [Muse Jets Us Into Space For ‘The Wow! Signal’ - Billboard](https://www.billboard.com/music/rock/muse-new-album-the-wow-signal-1236203263/) - Billboard
+- [Muse announces ‘The Wow Signal Tour’ with Bloc Party. Get tickets today - New York Post](https://nypost.com/2026/03/27/ticket-sales/muse-wow-signal-tour-2026-where-to-buy-tickets-schedule/) - Nypost
+- [Apple Music in iOS 26.4: Five brand new features available now](https://9to5mac.com/2026/03/27/apple-music-in-ios-26-4-five-brand-new-features-available-now/) - 9to5Mac
+- [iOS 26.4 adds brand new widgets for your iPhone’s Home Screen - 9to5Mac](https://9to5mac.com/2026/03/20/ios-26-4-adds-brand-new-widgets-for-your-iphones-home-screen/) - 9to5mac
+- [Apple highlights 13 enhancements coming to iPhone with iOS 26.4 - 9to5Mac](https://9to5mac.com/2026/03/18/apple-highlights-13-enhancements-coming-to-iphone-with-ios-26-4/) - 9to5mac
+- [Apple highlights 13 enhancements coming to iPhone with iOS 26.4 - 9to5Mac](https://9to5mac.com/2026/03/21/apple-highlights-13-enhancements-coming-to-iphone-with-ios-26-4/) - 9to5mac
+- [10 Queen Songs You Didn't Know Were Written By Freddie Mercury](https://www.mentalfloss.com/entertainment/music/-queen-songs-didn-t-know-written-freddie-mercury) - Mental Floss
+- [‘Queen II,’ the Album Where They Truly Became Queen, Gets a Glorious Deluxe Boxed Set Treatment: Album Review - Variety](https://variety.com/2026/music/reviews/queen-ii-deluxe-collectors-boxed-set-album-review-1236701661/) - Variety
+- [‘Queen II,’ the Album Where They Truly Became Queen, Gets a Glorious Deluxe Boxed Set Treatment: Album Review - Variety Australia](https://au.variety.com/2026/music/news/queen-ii-deluxe-collectors-boxed-set-album-review-34705/) - Variety
+- [Deep Cut Friday: ‘Glass Onion’ by The Beatles](https://www.spinmagazine.com/2026/03/deep-cut-friday-glass-onion-by-the-beatles/) - Spinmagazine.com
+- [5 tracks you can’t miss from March 2026](https://www.dazeddigital.com/music/article/69983/1/best-new-music-2026-cameron-winter-grace-ives-jackzebra?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=5-tracks-you-can-t-miss-from-march-2026) - Dazed
+- [Taylor Swift Urges Artists to Protect Their Craft, Warns the Internet ‘Will Attempt to Kill It’ \| Video](https://www.thewrap.com/industry-news/awards/taylor-swift-iheartradio-music-awards-acceptance-speeches/) - TheWrap
+- [Taylor Swift Takes Home 2026 iHeartRadio Music Award for Artist of the Year - Billboard](https://www.billboard.com/music/awards/taylor-swift-2026-iheartradio-music-award-artist-of-the-year-1236208165/) - Billboard
+- [Read Taylor Swift’s Full Viral Speech After Record-Breaking Awards Sweep - Newsweek](https://www.newsweek.com/entertainment/read-taylor-swift-full-acceptance-speech-record-breaking-awards-sweep-11745941) - Newsweek
+- [Militarie Gun: Tiny Desk Concert](https://www.npr.org/2026/03/27/g-s1-114295/militarie-gun-tiny-desk-concert) - NPR
+- ["This is a record about identity, legacy, survival." Suzi Quatro refuses to dim the lights on 18th album Freedom](https://www.loudersound.com/music/suzi-quatro-freedom) - Louder
+- [iHeartRadio Awards: Miley Cyrus Shares How "Fake" Persona Inspired Her](https://www.eonline.com/news/1430205/miley-cyrus-speech-at-iheartradio-music-awards-2026-on-hannah-montana) - Eonline.com
+- [Miley Cyrus Gives Inspiring Speech at iHeartRadio Music Awards 2026 While Being Honored with Innovator Award](https://www.justjared.com/2026/03/26/miley-cyrus-gives-inspiring-speech-at-iheartradio-music-awards-2026-while-being-honored-with-innovator-award/) - Just Jared
+- [iHeartRadio Music Awards 2026: All Winners, Nominees And Performances - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/03/26/iheartradio-music-awards-2026-winners-nominees-performances/) - Forbes
+- [Miley Cyrus Accepts Innovator Award at 2026 iHeartRadio Music Awards: ‘This Is the Life’ - Billboard](https://www.billboard.com/music/awards/miley-cyrus-innovator-award-speech-2026-iheartradio-awards-1236208148/) - Billboard
+- [‘I Wasn’t Trying to Kill Hannah Montana Off’: Miley Cyrus on ‘Reclaiming’ the Disney Icon After 20 Years, Getting Sober and Reuniting With Dad Billy Ray - Variety](https://variety.com/2026/tv/features/miley-cyrus-hannah-montana-anniversary-interview-1236690938/) - Variety
+- [‘I Wasn’t Trying to Kill Hannah Montana Off’: Miley Cyrus on ‘Reclaiming’ the Disney Icon After 20 Years, Getting Sober and Reuniting With Dad Billy Ray - Variety](https://variety.com/2026/music/features/miley-cyrus-hannah-montana-anniversary-interview-1236690938/) - Variety
+- [Skrillex and Young Miko Join Forces for “Duro”](https://pitchfork.com/news/skrillex-and-young-miko-join-forces-for-duro/) - Pitchfork
+- [Courtney Barnett returns with 'Creature of Habit'](https://www.npr.org/2026/03/27/nx-s1-5761289/courtney-barnett-returns-with-creature-of-habit) - NPR
+- [Courtney Barnett Knows She Watches Too Much TV](http://www.thecut.com/article/musician-courtney-barnett-creature-of-habit-interview-music.html) - The Cut
+- [12 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/news/12-new-albums-you-should-listen-to-now-robyn-snail-mail-chief-keef/) - Pitchfork
+- [Black Label Society Unveil “Ozzy’s Song,” Zakk Wylde’s Tribute to His Beloved Friend: Stream](https://consequence.net/2026/03/black-label-society-new-single-ozzys-song/) - Consequence.net
+- [Black Label Society Ballad 'Ozzy's Song' Is Out - Audio + Lyrics](https://loudwire.com/black-label-society-ozzys-song-lyrics/) - Loudwire
+- [Music Review: Ozzy tribute highlights Black Label Society’s riff-filled 'Engines of Demolition' - Greenwich Time](https://www.greenwichtime.com/entertainment/article/music-review-ozzy-tribute-highlights-black-label-22093676.php) - Greenwichtime
+- [10 Essential Songs for Space Travel, According to Astronaut Eileen Collins](https://consequence.net/2026/03/space-travel-songs-eileen-collins/) - Consequence.net
+- [We chat to legendary space shuttle commander Eileen Collins about her new documentary, 'Spacewoman' (interview) - Space](https://www.space.com/entertainment/space-movies-shows/we-chat-to-legendary-space-shuttle-commander-eileen-collins-about-her-new-documentary-spacewoman-interview) - Space
