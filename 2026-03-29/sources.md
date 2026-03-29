@@ -1,0 +1,25 @@
+# Sources for 2026-03-29 News Episode 
+- [Inkabee Makes 'Like A Version' Debut With Black Eyed Peas Cover](http://www.billboard.com/music/rb-hip-hop/inkabee-like-a-version-debut-black-eyed-peas-1236209097/) - Billboard
+- [Inkabee Makes Triple J ‘Like A Version’ Debut With Black Eyed Peas Cover - Billboard](https://www.billboard.com/music/rb-hip-hop/inkabee-like-a-version-debut-black-eyed-peas-1236209097/) - Billboard
+- [Rosé’s “APT.” Becomes Fastest MV Led By Female Artist To Hit 2.4 Billion Views](http://www.soompi.com/article/1828289wpp/roses-apt-becomes-fastest-mv-led-by-female-artist-to-hit-2-4-billion-views) - soompi
+- [Top 10 Best Australian Rappers of All Time: From Hilltop Hoods to The Kid Laroi](https://www.ibtimes.com.au/top-10-best-australian-rappers-all-time-hilltop-hoods-kid-laroi-1864787) - Ibtimes.com.au
+- [As Hilltop Hoods Complete Biggest Tour Yet, Australian Hip-Hop Legends Reflect on ‘Creativity Outside the Creativity’ - Billboard](https://www.billboard.com/music/rb-hip-hop/hilltop-hoods-tour-album-interview-1236203193/) - Billboard
+- [Justin Bieber Marks Quiet 32nd Birthday With Family, Teases New Music and Coachella Headlining Slot](https://www.ibtimes.com.au/justin-bieber-marks-quiet-32nd-birthday-family-teases-new-music-coachella-headlining-slot-1864784) - Ibtimes.com.au
+- [Rush's Alex Lifeson and Geddy Lee tease Junos surprise ahead of reunion tour later this year](https://www.cbc.ca/music/rush-juno-awards-2026-9.7144684) - CBC News
+- [Hayley Williams Kicks Off “Ego Death” Tour: Setlist + Video](https://consequence.net/2026/03/hayley-williams-ego-death-tour-setlist-video/) - Consequence.net
+- [‘I Need Cheese For My Egg’: Cardi B Says Live Nation Will Have To Cut The Check For Her Next Album & Tour](https://bossip.com/4537609/cardi-b-live-nation-next-album-tour/) - Bossip
+- [Drake’s Label Fires Back at Rapper in Appeals Court: ‘Astoundingly Hypocritical’](http://www.rollingstone.com/music/music-news/drake-kendrick-lamar-not-like-us-umg-defamation-appeal-1235530267/) - Rolling Stone
+- [Drake’s Label Fires Back at Rapper in Appeals Court: ‘Astoundingly Hypocritical’ - rollingstone.com](https://www.rollingstone.com/music/music-news/drake-kendrick-lamar-not-like-us-umg-defamation-appeal-1235530267/) - Rollingstone
+- [UMG Blasts Drake Appeal in Lawsuit Over Kendrick Lamar’s ‘Not Like Us’: ‘That Is Not the Law’ - Billboard](https://www.billboard.com/pro/umg-responds-drake-appeal-suit-kendrick-lamar-not-like-us/) - Billboard
+- [Tecate Pa’l Norte Day 1: Tyler, The Creator, Deftones & Jackson Wang](http://www.billboard.com/lists/tecate-pal-norte-2026-day-1-best-tyler-the-creator-deftones/) - Billboard
+- [Tyler, The Creator, Deftones & Jackson Wang Among Best of Day 1 of Tecate Pa’l Norte 2026 - Billboard](https://www.billboard.com/lists/tecate-pal-norte-2026-day-1-best-tyler-the-creator-deftones/) - Billboard
+- [Kill The Lights (Ex-Bullet For My Valentine, Etc.) Premiere New Single & Music Video "Iron Bite"](http://www.metalunderground.com/news/details.cfm?newsid=161108) - Metalunderground.com
+- [Apple at 50: The iPod Mattered More Than the iPhone](https://uk.pcmag.com/audio/164090/apple-at-50-the-ipod-mattered-more-than-the-iphone) - PCMag.com
+- [Apple at 50: The iPod Mattered More Than the iPhone](https://me.pcmag.com/en/audio/36249/apple-at-50-the-ipod-mattered-more-than-the-iphone) - PCMag.com
+- [NEVERMORE Pull Out Of Festival Appearance Due To Issues With US Work Permits](https://metalinjection.net/tour-dates/festivals/nevermore-pull-out-of-festival-appearance-due-to-issues-with-us-work-permits) - Metal Injection.net
+- [U.S. EXPANDS ITS VISA BOND PROGRAM - tourism-review.com](https://www.tourism-review.com/us-visa-bond-program-requires-extra-money-news15378) - Tourism-review
+- [State Department to require bonds of up to $15,000 for visa applications from a dozen more countries - bizpacreview.com](https://www.bizpacreview.com/2026/03/19/state-department-to-require-bonds-of-up-to-15000-for-visa-applications-from-a-dozen-more-countries-1628205/) - Bizpacreview
+- [U.S. Expands Visa Bond Requirement to 50 Nations - Skift](https://skift.com/2026/03/19/u-s-expands-visa-bond-requirement-to-50-nations/) - Skift
+- [State Department to ask for bonds of up to $15,000 for visa applications from a dozen more countries - Fox News](https://www.foxnews.com/politics/state-department-expands-visa-bond-countries) - Foxnews
+- [Как я написал Telegram-бота для поиска UPC-кодов релизов: 10 платформ, один парсер и много боли](https://habr.com/ru/articles/1016230/#post-content-body) - Habr.com
+- [Johnny Cougar – American Dream (The Mainman Recordings 1976-1977) (2026)](https://exystence.net/blog/2026/03/28/johnny-cougar-american-dream-the-mainman-recordings-1976-1977-2026/) - Exystence.net
