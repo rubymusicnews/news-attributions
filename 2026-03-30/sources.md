@@ -1,0 +1,42 @@
+# Sources for 2026-03-30 News Episode 
+- [BTS Are Back on Top With Record-Breaking First-Week ‘Arirang’ Sales](http://www.rollingstone.com/music/music-news/bts-arirang-first-week-sales-record-1235538129/) - Rolling Stone
+- [BTS Are Back on Top With Record-Breaking First-Week ‘Arirang’ Sales - Rolling Stone](https://www.rollingstone.com/music/music-news/bts-arirang-first-week-sales-record-1235538129/) - Rollingstone
+- [BTS Earns 7th No. 1 Album on Billboard 200 With ‘ARIRANG’ - billboard.com](https://www.billboard.com/music/chart-beat/bts-arirang-no1-billboard-200-albums-chart-1236209566/) - Billboard
+- [BTS’ ‘Arirang’ Debuts at No. 1 on Albums Chart With Biggest Sales Week for a Group in Over a Decade - Variety](https://variety.com/2026/music/news/bts-arirang-biggest-sales-week-for-group-in-over-a-decade-1236702284/) - Variety
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - NPR](https://www.npr.org/2026/03/20/nx-s1-5753919/bts-arirang-kpop-comeback-review) - Npr
+- [‘Comeback of the century’: K-pop phenomenon BTS returns with first concert in years - CNN](https://www.cnn.com/2026/03/21/style/bts-arirang-comeback-concert-korea-intl-hnk) - Cnn
+- [10 Best Most Popular K-Pop Group in 2026: BTS Remains World's Most Popular, Followed by BLACKPINK](https://www.ibtimes.com.au/10-best-most-popular-k-pop-group-2026-bts-remains-worlds-most-popular-followed-blackpink-1864839) - Ibtimes.com.au
+- [K-Pop in 2025: What ‘KPop Demon Hunters’ and NewJeans Tell Us About the Genre - The New York Times](https://www.nytimes.com/2025/12/25/arts/music/k-pop-newjeans-katseye-kpop-demon-hunters.html) - Nytimes
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- [BTS Is Back. But the K-Pop Landscape Has Changed. - The New York Times](https://www.nytimes.com/2026/03/20/arts/music/bts-k-pop-industry-demon-hunters.html) - Nytimes
+- [BTS Is Back—And Expected To Shatter These Music Industry Records - Forbes](https://www.forbes.com/sites/maryroeloffs/2026/03/19/bts-is-back-and-expected-to-shatter-these-music-industry-records/) - Forbes
+- [K-Pop’s BTS Sets Late Night Return With Back-To-Back ‘Tonight Show’ Episodes - Deadline](https://deadline.com/2026/03/bts-jimmy-fallon-tonight-show-1236758963/) - Deadline
+- [BTS Arirang review: K-pop idols rekindle their fire - BBC](https://www.bbc.com/news/articles/c070eg32dryo) - Bbc
+- [BTS scores 7th No. 1 album on Billboard 200 with 'ARIRANG' - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20260330/bts-scores-7th-no-1-album-on-billboard-200-with-arirang) - 코리아타임스
+- [BTS’s “ARIRANG” Debuts At No. 1 On Billboard 200 With Biggest Sales Week Of Any Group In Over A Decade](http://www.soompi.com/article/1828554wpp/btss-arirang-debuts-at-no-1-on-billboard-200-with-biggest-sales-week-of-any-group-in-over-a-decade) - soompi
+- [BTS Earns 7th No. 1 Album on Billboard 200 With ‘ARIRANG’ - billboard.com](https://www.billboard.com/music/chart-beat/bts-arirang-no1-billboard-200-albums-chart-1236209566/) - Billboard
+- [BTS’ ‘Arirang’ Debuts at No. 1 on Albums Chart With Biggest Sales Week for a Group in Over a Decade - Variety](https://variety.com/2026/music/news/bts-arirang-biggest-sales-week-for-group-in-over-a-decade-1236702284/) - Variety
+- [BTS Are Back on Top With Record-Breaking First-Week ‘Arirang’ Sales - Rolling Stone](https://www.rollingstone.com/music/music-news/bts-arirang-first-week-sales-record-1235538129/) - Rollingstone
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-20/with-arirang-bts-returns-to-a-k-pop-moment-of-its-own-making) - Iowapublicradio
+- [Top 10 Spotify Artists by Monthly Listeners (as of March 29, 2026) : Bruno Mars Surges to Top Spot](https://www.ibtimes.com.au/top-10-spotify-artists-monthly-listeners-march-29-2026-bruno-mars-surges-top-spot-1864845) - Ibtimes.com.au
+- [Rihanna Sparks Frenzy With Studio Return and Baby No. 4 Hints as 2026 Unfolds for Music and Family](https://www.ibtimes.com.au/rihanna-sparks-frenzy-studio-return-baby-no-4-hints-2026-unfolds-music-family-1864848) - Ibtimes.com.au
+- [Queen – Queen II (Collectors Edition) (2026)](https://exystence.net/blog/2026/03/29/queen-queen-ii-collectors-edition-2026/) - Exystence.net
+- [‘Queen II,’ the Album Where They Truly Became Queen, Gets a Glorious Deluxe Boxed Set Treatment: Album Review - Variety Australia](https://au.variety.com/2026/music/news/queen-ii-deluxe-collectors-boxed-set-album-review-34705/) - Variety
+- [‘Queen II,’ the Album Where They Truly Became Queen, Gets a Glorious Deluxe Boxed Set Treatment: Album Review - Variety](https://variety.com/2026/music/reviews/queen-ii-deluxe-collectors-boxed-set-album-review-1236701661/) - Variety
+- [Afrojack debuts new David Guetta and Sia collaboration, 'Awake Tonight', at Ultra 2026: Watch](https://djmag.com/news/afrojack-debuts-new-david-guetta-and-sia-collaboration-awake-tonight-ultra-2026-watch) - DJ Mag
+- [Drake Teases "ICEMAN" Album Release in 2026 While Streaming Dominance and Lingering Kendrick Lamar Feud](https://www.ibtimes.com.au/drake-teases-iceman-album-release-2026-while-streaming-dominance-lingering-kendrick-lamar-feud-1864851) - Ibtimes.com.au
+- [Drake Calls Out ‘People Who Look Up to’ Him as Wait for ‘Iceman’ Continues - Billboard](https://www.billboard.com/music/rb-hip-hop/drake-calls-out-people-who-look-up-to-him-iceman-wait-1236152092/) - Billboard
+- [Armin van Buuren reveals plans for debut A State of Trance festival in US](https://djmag.com/news/armin-van-buuren-reveals-plans-debut-state-of-trance-festival-us) - DJ Mag
+- [Snoop Dogg Drops New Album, Olympic Legacy Continues in Busy 2026](https://www.ibtimes.com.au/snoop-dogg-drops-new-album-olympic-legacy-continues-busy-2026-1864882) - Ibtimes.com.au
+- [James Blake Asks for His Production Credit on Kanye West’s ‘Bully’ to Be Removed](https://variety.com/2026/music/news/james-blake-remove-production-credit-kanye-west-bully-1236702211/) - Variety
+- [James Blake Requests Removal From Kanye West’s Bully Production Credits - pitchfork.com](https://pitchfork.com/news/james-blake-requests-removal-from-kanyes-wests-bully-production-credits/) - Pitchfork
+- [James Blake requests for name to be taken off credits for Kanye West's 'Bully': "It's not what I created" - NME](https://www.nme.com/news/music/james-blake-requests-for-name-to-be-taken-off-credits-for-kanye-wests-bully-its-not-what-i-created-3937234) - Nme
+- [Paul McCartney Delights at Intimate, Rare Show at the Fonda Theatre](http://www.rollingstone.com/music/music-live-reviews/paul-mccartney-fonda-theatre-hollywood-second-night-1235538592/) - Rolling Stone
+- [Paul McCartney to rock LA’s Fonda Theatre in two intimate concerts. Get tickets - New York Post](https://nypost.com/2026/03/19/ticket-sales/get-tickets-to-see-paul-mccartney-to-rock-las-fonda-theatre/) - Nypost
+- [Paul McCartney Delights at Intimate, Rare Show at the Fonda Theatre - Rolling Stone](https://www.rollingstone.com/music/music-live-reviews/paul-mccartney-fonda-theatre-hollywood-second-night-1235538592/) - Rollingstone
+- [Paul McCartney Shines at Rare Underplay at Fonda Theatre - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/paul-mccartney-fonda-theatre-concert-recap-1236548922/) - Hollywoodreporter
+- [‘West Coast girly’ Jade LeMac on songwriting, the Junos and touring with Hilary Duff](https://www.cbc.ca/news/canada/british-columbia/jade-lemac-b-c-junos-9.7144896) - CBC News
+- [Juno Awards 2026 Best Moments: Joni Mitchell Sings, Rush Reunites, Drake Pays Tribute to Nelly Furtado - Billboard Canada](https://ca.billboard.com/music/awards/juno-awards-2026-winners) - Billboard
+- [Juno Awards 2026 Best Moments: Joni Mitchell Sings, Rush Reunites, Drake Pays Tribute to Nelly Furtado - ca.billboard.com](https://ca.billboard.com/music/awards/juno-awards-2026-winners?bil=554&debugld=stickybtest&g=) - Billboard
+- [Louis Tomlinson är lika söt som en tussilago](https://www.aftonbladet.se/nojesbladet/musik/a/7ppBeW/louistomlinsonarlikasotsomentussilago) - Aftonbladet.se
+- [Fansen stöttar när Tomlinson vissnar](https://www.aftonbladet.se/nojesbladet/musik/a/7ppBeW/konsertenaroantastligtsotsomentussilago) - Aftonbladet.se
