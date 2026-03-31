@@ -1,0 +1,40 @@
+# Sources for 2026-03-31 News Episode 
+- [Pet Shop Boys, Suede e Slowdive tra gli ospiti del Medimex 2026](https://www.ansa.it/sito/notizie/cultura/musica/2026/03/30/pet-shop-boys-suede-e-slowdive-tra-gli-ospiti-del-medimex_5407cb81-6e86-4e3c-8c32-6907b7bac03d.html) - ANSA.it
+- [Blackpink’s Lisa Announces Las Vegas Residency ‘Viva La Lisa’](http://deadline.com/2026/03/blackpink-lisa-las-vegas-residency-viva-la-lisa-1236768935/) - Deadline
+- [BLACKPINK LISA announces Las Vegas residency #tabloid](https://alltoc.com/tabloid/blackpink-lisa-announces-las-vegas-residency) - Alltoc.com
+- [BLACKPINK's Lisa Becomes First K-Pop Artist to Launch a Las Vegas Residency - People.com](https://people.com/blackpink-lisa-first-k-pop-artist-las-vegas-residency-11937195) - People
+- [Music star Lisa to headline first K-pop residency on Las Vegas Strip - KSNV](https://news3lv.com/news/local/music-star-lisa-headlining-first-k-pop-residency-las-vegas-strip-the-colosseum-caesars-palace-blackpink-rap-dance-nevada) - News3lv
+- [Watch Joni Mitchell Perform, Accept Lifetime Achievement Award at 2026 Junos](https://pitchfork.com/news/watch-joni-mitchell-perform-accept-lifetime-achievement-award-at-2026-junos/) - Pitchfork
+- [Watch Joni Mitchell Perform 'Big Yellow Taxi' With Sarah McLachlan, Allison Russell at Juno Awards - rollingstone.com](https://www.rollingstone.com/music/music-news/joni-mitchell-sarah-mclachlan-juno-awards-performance-1235538642/) - Rollingstone
+- [Juno Awards 2026 Best Moments: Joni Mitchell Sings, Rush Reunites, Drake Pays Tribute to Nelly Furtado - ca.billboard.com](https://ca.billboard.com/music/awards/juno-awards-2026-winners?bil=554&debugld=stickybtest&g=) - Billboard
+- [‘That’s What This Is All About’: Kevin Lyman on 30 Years of Vans Warped Tour and What Comes Next - Billboard Canada](https://ca.billboard.com/business/touring/kevin-lyman-30-years-vans-warped-tour-1236209393/) - Billboard
+- [Chris Blackwell und Bob Marley: Zusammen sorgten sie für den internationalen Durchbruch von Reggae](https://www.nzz.ch/feuilleton/musik/von-jamaika-in-die-welt-chris-blackwell-bob-marley-und-island-records-ld.1930710) - Www.nzz.ch
+- [Jimmy Page Shares Home Demo of Led Zeppelin’s “Ten Years Gone”: Stream](https://consequence.net/2026/03/jimmy-page-home-demo-ten-years-gone/) - Consequence.net
+- ["Robert Plant came up with some lyrics for my music that were extraordinary." Jimmy Page releases previously unheard home demo version of Led Zeppelin's Ten Years Gone - Louder](https://www.loudersound.com/music/jimmy-page-ten-years-gone-demo) - Loudersound
+- [Celine Dion announces first concerts since stiff-person syndrome diagnosis](https://abcnews.com/Entertainment/wireStory/celine-dion-announces-concerts-stiff-person-syndrome-diagnosis-131555925) - Abcnews.com
+- [Celine Dion announces first concerts since stiff-person syndrome diagnosis with Paris residency](https://cnalifestyle.channelnewsasia.com/entertainment/celine-dion-paris-concerts-stiff-person-syndrome-580891) - CNA
+- [Celine Dion's Emotional Comeback Announcement Has Fans In Tears - HuffPost](https://www.huffpost.com/entry/celine-dion-confirms-paris-concerts-return_n_69cada5ae4b0128a9ef97e97) - Huffpost
+- [Celine Dion announces comeback concerts: ‘I’m so ready to do this’ - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-03-30/celine-dion-concerts-paris-september-october-stiff-person-syndrome) - Latimes
+- [Céline Dion to perform first concert series since 2020 in Paris - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/30/celine-dion-paris-2026-performances/89384369007/) - Usatoday
+- [Celine Dion Announces Comeback Concerts in Paris - The New York Times](https://www.nytimes.com/2026/03/30/arts/music/celine-dion-paris-concerts.html) - Nytimes
+- [Celine Dion returns to the stage after rare illness forced yearslong silence - ynetnews](https://www.ynetnews.com/culture/article/rkaf711ozg) - Ynetnews
+- [What the Netflix–Warner Music Deal Really Means for Artists and Brands](https://www.adweek.com/creativity/what-the-netflix-warner-music-deal-really-means-for-artists-and-brands/) - Adweek
+- [Warner Music Group Partners With Netflix For Artist Documentaries - Billboard](https://www.billboard.com/pro/warner-music-group-netflix-parnership-artist-documentaries/) - Billboard
+- [Netflix, Warner Music strike multi‑year deal for artist documentaries - Reuters](https://www.reuters.com/business/media-telecom/netflix-warner-music-strike-multiyear-deal-artist-documentaries-2026-03-20/) - Reuters
+- [Netflix Sets Documentary Partnership With Warner Music Group - deadline.com](https://deadline.com/2026/03/netflix-warner-music-group-set-documentary-partnership-1236761542/) - Deadline
+- [How Kraftwerk’s 22-Minute Song “Autobahn” Became an Early Masterpiece in Electronic Music (1975)](https://www.openculture.com/2026/03/how-kraftwerks-22-minute-song-autobahn-became-an-early-masterpiece-in-electronic-music-1975.html) - Openculture.com
+- [Arabic shoegaze duo Kiss Facility speak a language deeper than words](https://www.dazeddigital.com/music/article/69966/1/arabic-shoegaze-duo-kiss-facility-sega-bodega-mayah-alkhateri?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=arabic-shoegaze-duo-kiss-facility-speak-a-language-deeper-than-words) - Dazed
+- ['Wagwan' Lyrics: Central Cee Drops New Video After Historic MOBO Win](https://www.justjared.com/2026/03/30/wagwan-lyrics-central-cee-video/) - Just Jared
+- [Com brasileiros e lendas do rock, Eric Clapton anuncia cast do Crossroads Guitar Festival 2026](https://whiplash.net/materias/news_673/377936-ericclapton.html) - Whiplash.net
+- [PRESIDENT Announce 2026 North American Tour](https://consequence.net/2026/03/president-2026-north-american-tour/) - Consequence.net
+- [President Announce First Headlining North American Tour](https://loudwire.com/president-2026-north-american-headline-tour/) - Loudwire
+- [PRESIDENT Plot 2026 North American Tour](https://exclaim.ca/music/article/president-plot-2026-north-american-tour) - Exclaim!
+- [Drake Can’t Help But Air Decade-Old Awards Show Grievance While Honoring Nelly Furtado](http://www.rollingstone.com/music/music-news/drake-honors-nelly-furtado-juno-awards-2011-snub-1235538791/) - Rolling Stone
+- [Watch Drake Honor Nelly Furtado, Rehash Junos Beef](https://pitchfork.com/news/watch-drake-honor-nelly-furtado-rehash-junos-beef/) - Pitchfork
+- [Junos 2026: Drake's surprise appearance, and Tate McRae's absence mark Canada's biggest night in music](https://www.cbc.ca/news/entertainment/junos-2026-recap-9.7146785) - CBC News
+- [Dreams Come True on Flea’s First Solo Record](https://www.spinmagazine.com/2026/03/dreams-come-true-on-fleas-first-solo-record/) - Spinmagazine.com
+- [At 63, Flea finally becomes the jazz musician he always dreamed of being - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-03-25/flea-honora-new-album-feature-red-hot-chili-peppers-jazz) - Latimes
+- [Flea Jazzes up For Debut Solo Album ‘Honora’: Stream It Now - Billboard](https://www.billboard.com/music/rock/flea-debut-solo-album-honora-stream-it-now-1236208219/) - Billboard
+- [Music Review: Red Hot Chili Peppers' Flea realizes lifelong dream with solo jazz album, 'Honora' - Greenwich Time](https://www.greenwichtime.com/entertainment/article/music-review-red-hot-chili-peppers-flea-22095736.php) - Greenwichtime
+- [Red Hot Chili Peppers' Flea realizes lifelong dream with solo jazz album - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/red-hot-chili-peppers-flea-solo-jazz-album/6481274/?amp=1) - Nbcnewyork
+- [Watch Flea Cover Frank Ocean’s ‘Thinkin Bout You’ on ‘Fallon’ - Rolling Stone](https://www.rollingstone.com/music/music-news/flea-red-hot-chili-peppers-thinkin-bout-you-fallon-1235536184/) - Rollingstone
