@@ -1,0 +1,37 @@
+# Sources for 2026-04-01 News Episode 
+- [Everything you need to know about Asia's new Eurovision song contest](https://www.abc.net.au/news/2026-04-01/asia-edition-of-eurovision-announced-with-bangkok-to-host-final/106519220) - ABC News (AU)
+- [Get ready for kitsch and drama, Asia. Pop extravaganza Eurovision is coming your way - CNN](https://www.cnn.com/2026/03/31/asia/eurovision-pop-music-asia-intl-hnk) - Cnn
+- [Eurovision heads to Asia with debut contest in Bangkok - ynetnews](https://www.ynetnews.com/culture/article/hygv0ktjze) - Ynetnews
+- [Eurovision Song Contest Set to Launch in Asia With Bangkok as Host City - Variety](https://variety.com/2026/tv/global/eurovision-song-contest-asia-bangkok-1236703469/) - Variety
+- [Eurovision, the glitzy contest where music meets politics, is adding an Asian edition - NBC News](https://www.nbcnews.com/world/asia/eurovision-song-contest-announces-asia-edition-rcna265925) - Nbcnews
+- [Eurovision Song Contest is expanding with an Asian edition later this year - theheraldreview.com](https://www.theheraldreview.com/entertainment/article/eurovision-song-contest-is-expanding-with-an-22161392.php) - Theheraldreview
+- [Eurovision expands into Asia with 10-nation song contest - The Guardian](https://www.theguardian.com/tv-and-radio/2026/mar/31/eurovision-song-contest-expands-into-asia) - Theguardian
+- [Eurovision Song Contest Launching Asian Edition in 2026 - Billboard](https://www.billboard.com/music/music-news/eurovision-song-contest-expanding-asian-edition-2026-bangkok-1236211155/) - Billboard
+- [Bring Me The Horizon Premiere New Live Music Video "Doomed" From Upcoming New Concert Film "L.I.V.E. In São Paulo"](http://www.metalunderground.com/news/details.cfm?newsid=161119) - Metalunderground.com
+- [Taylor Swift Drops Surprise Music Video for “Elizabeth Taylor”](https://www.eonline.com/news/1430355/taylor-swift-elizabeth-taylor-music-video) - Eonline.com
+- [Taylor Swift pays homage to Elizabeth Taylor with surprise music video - BBC](https://www.bbc.com/news/articles/cvg0743ve3do) - Bbc
+- [Taylor Swift Drops Lush ‘Elizabeth Taylor’ Video Paying Homage to Legendary Screen Star - Billboard](https://www.billboard.com/music/pop/taylor-swift-elizabeth-taylor-video-1236211162/) - Billboard
+- [Taylor Swift Releases ‘Elizabeth Taylor’ Music Video Featuring Clips of the Screen Icon - Yahoo News UK](https://uk.news.yahoo.com/taylor-swift-releases-elizabeth-taylor-123117129.html) - Yahoo
+- [Taylor Swift Honors a Legend With New ‘Elizabeth Taylor’ Music Video - Rolling Stone](https://www.rollingstone.com/music/music-news/taylor-swift-elizabeth-taylor-music-video-1235539333/) - Rollingstone
+- [Foo Fighters Score One More Bestseller Before The Band’s Album Drops](https://www.forbes.com/sites/hughmcintyre/2026/03/31/foo-fighters-score-one-more-bestseller-before-the-bands-album-drops/) - Forbes
+- [1VERSE On Their World Tour And Dealing With ‘Shattered’ Moments](https://www.forbes.com/sites/laurasirikul/2026/03/31/1verse-on-their-world-tour-and-dealing-with-shattered-moments/) - Forbes
+- [The Taylor Swift Effect: Why Music Deals Are Getting Shorter & Smarter](https://www.forbes.com/sites/legalentertainment/2026/03/31/the-taylor-swift-effect-why-music-deals-are-getting-shorter--smarter/) - Forbes
+- [Seeker Music Closes $267 Million ABS to Grow Catalog - Variety](https://variety.com/2026/music/news/seeker-music-closes-267-million-abs-1236699752/) - Variety
+- ['Another Day Old' Lyrics: AI Singer Eddie Dalton Hits iTunes Charts With Viral Songs, But He Is Not Real](https://www.justjared.com/2026/03/31/ai-singer-eddie-dalton-itunes-charts-lyrics-another-day-old-not-real/) - Just Jared
+- [AI Is Forcing Middle-Class Creators To Think Like Music Label Executives - Forbes](https://www.forbes.com/sites/jasminebrowley/2026/03/30/ai-is-forcing-middle-class-creators-to-think-like-music-label-executives/) - Forbes
+- [I Only Listened to AI Music for a Week. It Was Terrible, but Not for the Reason You Think - CNET](https://www.cnet.com/tech/services-and-software/generative-ai-music-experiment-culture/) - Cnet
+- [Kat Graham unveils “World Song,” a powerful anthem of unity and global connection [Video]](https://earmilk.com/2026/03/31/kat-graham-unveils-world-song-a-powerful-anthem-of-unity-and-global-connection-video/) - Earmilk.com
+- [BABYMETAL Announces North & South American Tour With HALESTORM & VIOLENT VIRA](https://metalinjection.net/tour-dates/babymetal-announces-north-south-american-tour-with-halestorm-violent-vira) - Metal Injection.net
+- [Babymetal Announce North and Latin American Dates of Their 2026 World Tour](https://www.metalsucks.net/2026/03/31/babymetal-announce-north-and-latin-american-dates-of-their-2026-world-tour/) - MetalSucks
+- [Babymetal Announce 2026 North American Tour Dates With Halestorm](https://loudwire.com/babymetal-2026-world-tour-halestorm-more/) - Loudwire
+- [BABYMETAL Announce 2026 North American Tour with Halestorm](https://consequence.net/2026/03/babymetal-2026-north-american-tour-halestorm/) - Consequence.net
+- [Babymetal Enlist Halestorm for 2026 North American Tour](https://exclaim.ca/music/article/babymetal-enlist-halestorm-for-2026-north-american-tour) - Exclaim!
+- [SoundCloud to help artists drop exclusive tracks for superfans](http://musically.com/2026/03/31/soundcloud-to-help-artists-drop-exclusive-tracks-for-superfans/) - Music Ally
+- [Aerosmith’s Debut Album Debuts More Than 50 Years After Its Release](https://www.forbes.com/sites/hughmcintyre/2026/03/31/aerosmiths-debut-album-debuts-more-than-50-years-after-its-release/) - Forbes
+- [Aerosmith Share New Expanded Edition of Self-Titled Debut - uDiscoverMusic](https://www.udiscovermusic.com/news/aerosmith-legendary-edition-out-now/) - Udiscovermusic
+- [Aerosmith 'Legendary Edition' of 1973 Self-Titled Debut Out March 20 - Rock Cellar Magazine](https://rockcellarmagazine.com/aerosmith-legendary-edition-album-2026-listen/) - Rockcellarmagazine
+- [Collabhouse Go is an ‘essential toolkit’ for independent artists](http://musically.com/2026/03/31/collabhouse-go-is-an-essential-toolkit-for-independent-artists/) - Music Ally
+- [Beth Orton Returns With “The Ground Above”](https://pitchfork.com/news/beth-orton-returns-with-the-ground-above/) - Pitchfork
+- [Cardi B Shuts Down Lawsuit Claiming ‘Enough (Miami)’ Stole Beats From ‘Reservation Dogs’ Song](http://www.rollingstone.com/music/music-news/cardi-b-lawsuit-enough-miami-reservation-dogs-song-1235539284/) - Rolling Stone
+- [Cardi B’s Copyright Infringement Lawsuit Tossed By Judge](https://hiphopwired.com/3049920/cardi-b-copyright-lawsuit-dismissed/) - Hip-Hop Wired
+- [Cardi B Defeats ‘Enough (Miami)’ Song Copying Lawsuit: ‘No Factual Support’ - billboard.com](https://www.billboard.com/pro/cardi-b-beats-lawsuit-enough-miami-copied-song/) - Billboard
