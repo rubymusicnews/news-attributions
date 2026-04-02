@@ -1,0 +1,54 @@
+# Sources for 2026-04-02 News Episode 
+- [BTS homenageia Oldboy ao recriar uma das melhores cenas da história do cinema em novo videoclipe](https://br.ign.com/oldboy/152048/news/bts-homenageia-oldboy-ao-recriar-uma-das-melhores-cenas-da-historia-do-cinema-em-novo-videoclipe) - IGN
+- [17 Ways K-Pop Became More Global Than Ever in 2025 - Billboard](https://www.billboard.com/lists/k-pop-more-global-than-ever-2025-year-end-review/) - Billboard
+- [BTS: Arirang review – the world’s biggest pop band return with dumb fun and downright weirdness - The Guardian](https://www.theguardian.com/music/2026/mar/20/bts-arirang-review-the-worlds-biggest-pop-band-return-with-dumb-fun-and-downright-weirdness) - Theguardian
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - NPR](https://www.npr.org/2026/03/20/nx-s1-5753919/bts-arirang-kpop-comeback-review) - Npr
+- [BTS Honors Their Roots and Looks to the Future on Long-Awaited ‘Arirang’: A Track-By-Track Breakdown - The Hollywood Reporter](https://www.hollywoodreporter.com/lists/bts-arirang-track-by-track-breakdown/) - Hollywoodreporter
+- [BTS ‘ARIRANG’ Lead Single ’SWIM’ Captures Their Impact On Our Lives - Forbes](https://www.forbes.com/sites/laurasirikul/2026/03/20/bts-arirang-lead-single-swim-captures-their-impact-on-our-lives/) - Forbes
+- [With 'Arirang,' BTS returns to a K-pop moment of its own making - Iowa Public Radio](https://www.iowapublicradio.org/2026-03-20/with-arirang-bts-returns-to-a-k-pop-moment-of-its-own-making) - Iowapublicradio
+- [Legendary rock band could be behind mysterious posters for The Cockroaches](https://www.the-independent.com/arts-entertainment/music/news/cockroaches-rolling-stones-album-london-b2950138.html) - The-independent.com
+- [What Is ‘Clipping,’ the Viral Marketing Strategy That’s Taking Over the Music Biz? - Variety](https://variety.com/2026/music/news/clipping-marketing-tool-took-over-music-industry-1236699705/) - Variety
+- [Bruce Springsteen Kicks Off Tour in Minneapolis with Calls for “Hope Over Fear, Democracy Over Authoritarianism”: Setlist, Photos + Video](https://consequence.net/2026/04/bruce-springsteen-minneapolis-tour-kickoff/) - Consequence.net
+- [Bruce Springsteen Declares ‘War’ Against Trump at Defiant Tour Opener in Minneapolis](http://www.rollingstone.com/music/music-live-reviews/bruce-springsteen-tour-opener-minneapolis-set-list-1235539982/) - Rolling Stone
+- [Why did Bruce Springsteen turn political at his tour opener? #entertainment](https://alltoc.com/entertainment/why-did-bruce-springsteen-turn-political-at-his-tour-opener) - Alltoc.com
+- [Bruce Springsteen blasts Trump, covers Prince at explosive tour opener - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/bruce-springsteen-tour-opener-22183916.php) - Sfchronicle
+- [Bruce Springsteen Says Upcoming Tour Will Be 'Political & Very Topical' - Billboard](https://www.billboard.com/music/rock/springsteen-e-street-band-tour-political-very-topical-no-kings-1236207282/) - Billboard
+- [Bruce Springsteen Says His Upcoming Land of Hope and Dreams Tour 'Is Going to Be Political' - Rolling Stone](https://www.rollingstone.com/music/music-news/bruce-springsteen-land-of-hope-and-dreams-political-tour-1235537482/) - Rollingstone
+- [Bruce Springsteen Declares ‘War’ Against Trump at Defiant Tour Opener in Minneapolis - Rolling Stone](https://www.rollingstone.com/music/music-live-reviews/bruce-springsteen-tour-opener-minneapolis-set-list-1235539982/) - Rollingstone
+- [Guns N' Roses' Massive Reunion by the Numbers](https://ultimateclassicrock.com/guns-n-roses-reunion-by-the-numbers/) - Ultimate Classic Rock
+- [Guns N’ Roses Kick Off 2026 World Tour in Mexico: Here Is the Complete Setlist - Billboard](https://www.billboard.com/lists/guns-n-roses-2026-tour-setlist-mexico/) - Billboard
+- [Guns N' Roses Drops Surprise 2026 European Tour Bombshell: Germany Fans, Your Prayers Answered with - AD HOC NEWS](https://www.ad-hoc-news.de/boerse/news/ueberblick/guns-n-roses-drops-surprise-2026-european-tour-bombshell-germany-fans/68950506) - Ad-hoc-news
+- [Grupo Frontera, Guns N’ Roses & Turnstile Among Best of Day 2 of Tecate Pa’l Norte 2026 - billboard.com](https://www.billboard.com/lists/tecate-pal-norte-2026-grupo-frontera-among-best-of-day-2/) - Billboard
+- [Maden Lane setzen mit ihrem Debütalbum „Maden Lane“ neue Maßstäbe im Neo-Soul](https://www.whudat.de/maden-lane-setzen-mit-ihrem-debuetalbum-maden-lane-neue-massstaebe-im-neo-soul/) - Whudat.de
+- [Paul McCartney ‘to play for Apple staff at 50th anniversary concert’ – decades after dispute with company](https://www.the-independent.com/arts-entertainment/music/news/paul-mccartney-apple-concert-anniversary-b2949918.html) - The-independent.com
+- [Paul McCartney Blazes Through Career-Spanning Set at Apple Park for 50th Anniversary Celebrations - MacRumors](https://www.macrumors.com/2026/04/01/paul-mccartney-set-at-apple-park/) - Macrumors
+- [Paul McCartney headlining Apple’s 50th anniversary bash at Apple Park tonight - 9to5Mac](https://9to5mac.com/2026/03/31/paul-mccartney-heading-apples-50th-anniversary-bash-at-apple-park-tonight/) - 9to5mac
+- [Paul McCartney performs private show on Apple's Bay Area campus - SFGATE](https://www.sfgate.com/sf-culture/article/paul-mccartney-apple-concert-22183985.php) - Sfgate
+- [Paul McCartney rocks Apple HQ with lengthy set of classic tunes - The Mercury News](https://www.mercurynews.com/2026/04/01/paul-mccartney-apple-anniversary-concert-setlist/) - Mercurynews
+- [Get Back! Paul McCartney Rumored to Perform at Apple 50th Anniversary Event - CNET](https://www.cnet.com/tech/paul-mccartney-rumored-to-perform-at-apple-50th-anniversary/) - Cnet
+- [The Best Live Band Around? Sturgill Simpson Announces Fall Tour with the Dark Clouds](http://www.rollingstone.com/music/music-country/sturgill-simpson-2026-tour-dates-dark-clouds-1235540026/) - Rolling Stone
+- [Review – Johnny Blue Skies (Sturgill Simpson) “Mutiny After Midnight” - - Saving Country Music](https://savingcountrymusic.com/review-johnny-blue-skies-sturgill-simpson-mutiny-after-midnight/) - Savingcountrymusic
+- [Johnny Blue Skies & the Dark Clouds Set Upcoming Album ‘Mutiny After Midnight’ — And It’s a ‘Dance Record’ - Billboard](https://www.billboard.com/music/music-news/johnny-blue-skies-dark-clouds-mutiny-after-midnight-album-1236181035/) - Billboard
+- [Johnny Blue Skies & The Dark Clouds Surprise-Release New Album 'Mutiny After Midnight' - stereogum.com](https://stereogum.com/2490818/johnny-blue-skies-the-dark-clouds-surprise-release-new-album-mutiny-after-midnight/music) - Stereogum
+- [The Best Live Band Around? Sturgill Simpson Announces Fall Tour with the Dark Clouds - rollingstone.com](https://www.rollingstone.com/music/music-country/sturgill-simpson-2026-tour-dates-dark-clouds-1235540026/) - Rollingstone
+- [Sturgill Simpson Announces Johnny Blue Skies & The Dark Clouds 2026 Tour Dates - JamBase](https://www.jambase.com/article/sturgill-simpson-johnny-blue-skies-tour-dates-2026) - Jambase
+- [Sturgill Simpson Announces 2026 Tour as Johnny Blue Skies - Consequence of Sound](https://consequence.net/2026/04/sturgill-simpson-johnny-blue-skies-2026-tour/) - Consequence
+- [Sturgill Simpson Lines Up Johnny Blue Skies Tour - Pitchfork](https://pitchfork.com/news/sturgill-simpson-lines-up-johnny-blue-skies-tour/) - Pitchfork
+- [Sturgill Simpson/Johnny Blue Skies Album Bows at No. 3, Sans Streaming - Variety](https://variety.com/2026/music/news/johnny-blue-eyes-album-chart-debut-vinyl-sturgill-simpson-1236696412/) - Variety
+- [Sturgill Simpson pulls off an unusual chart feat - VPM](https://www.vpm.org/npr-news/2026-03-26/sturgill-simpson-pulls-off-an-unusual-chart-feat) - Vpm
+- [Megan Moroney showcases her command of country heartache on 'Cloud 9'](https://www.npr.org/2026/04/01/nx-s1-5766239/megan-moroney-showcases-her-command-of-country-heartache-on-cloud-9) - NPR
+- [Converge Announces Second Album of 2026, Shares New Song and Tour](https://pitchfork.com/news/converge-announces-second-album-of-2026-shares-new-song-and-tour/) - Pitchfork
+- [CONVERGE Announces Second Album Of 2026, The Hum Of Hurt - Metal Injection](https://metalinjection.net/upcoming-releases/converge-announces-second-album-of-2026-the-hum-of-hurt) - Metalinjection
+- [Converge's Second New Album Of 2026 "Hum Of Hurt" Slated For June Release - Theprp.com](https://www.theprp.com/2026/03/31/news/converges-second-new-album-of-2026-hum-of-hurt-slated-for-june-release/) - Theprp
+- [Collective Soul Announce New Album Touch and Go, Inspired by New Wave Music](https://consequence.net/2026/04/collective-soul-new-album-touch-and-go/) - Consequence.net
+- [Better Than Ezra Launch Contest for Fans to Write New Song with AI](https://consequence.net/2026/04/better-than-ezra-ai-songwriting-competition/) - Consequence.net
+- [AI Is Forcing Middle-Class Creators To Think Like Music Label Executives - Forbes](https://www.forbes.com/sites/jasminebrowley/2026/03/30/ai-is-forcing-middle-class-creators-to-think-like-music-label-executives/) - Forbes
+- [I Only Listened to AI Music for a Week. It Was Terrible, but Not for the Reason You Think - CNET](https://www.cnet.com/tech/services-and-software/generative-ai-music-experiment-culture/) - Cnet
+- [Dialled In Records launches to uplift South Asian talent](http://musically.com/2026/04/01/dialled-in-records-launches-to-uplift-south-asian-talent/) - Music Ally
+- [Dialled In Launches Record Label With Island-EMI's The Collective - Variety](https://variety.com/2026/music/news/dialled-in-record-label-island-emi-the-collective-1236702463/) - Variety
+- [Weezer’s Back ‘Again’ With New Single](https://www.spinmagazine.com/2026/04/weezer-new-single/) - Spinmagazine.com
+- ['90s Rock Band Announces 2026 Tour Dates 32 Years After Multi-Platinum Debut Album - Yahoo](https://www.yahoo.com/entertainment/music/articles/90s-rock-band-announces-2026-015000480.html) - Yahoo
+- [Weezer Play Acoustic Rooftop Set in Venice Beach Following Tour Announcement - billboard.com](https://www.billboard.com/music/music-news/weezer-rooftop-set-venice-beach-1236209386/) - Billboard
+- [Weezer Play Pop-Up Rooftop Gig to Mark ‘The Gathering’ Tour - Rolling Stone](https://www.rollingstone.com/music/music-news/weezer-rooftop-gig-the-gathering-tour-1235538525/) - Rollingstone
+- [Weezer Drop Rocking New Single ‘Shine Again’: Listen - Billboard](https://www.billboard.com/music/rock/weezer-new-single-shine-again-listen-1236212563/) - Billboard
+- [Luke Combs Hits A New Career High — Even As BTS Blocks Him From No. 1](https://www.forbes.com/sites/hughmcintyre/2026/04/01/luke-combs-hits-a-new-career-high---even-as-bts-blocks-him-from-no-1/) - Forbes
