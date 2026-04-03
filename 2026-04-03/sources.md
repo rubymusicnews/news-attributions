@@ -1,0 +1,34 @@
+# Sources for 2026-04-03 News Episode 
+- [The 2025 Royalty Numbers are in: Loud & Clear Updated with new Data & Takeaways](http://musically.com/2026/04/02/the-2025-royalty-numbers-are-in-loud-clear-updated-with-new-data-takeaways/) - Music Ally
+- [Director Axel Digoix Reveals Tinariwen’s True Story in “Erghad Afewo” Music Video](https://www.stashmedia.tv/director-axel-digoix-reveals-tinariwens-true-story-in-erghad-afewo-music-video/) - Stashmedia.tv
+- [Sepultura Premiere New Single "Beyond The Dream" From Upcoming Final Studio Album "The Cloud Of Unknowing"](http://www.metalunderground.com/news/details.cfm?newsid=161130) - Metalunderground.com
+- [The Temper Trap ‘Gaze’ Again On New Album](https://www.spinmagazine.com/2026/04/the-temper-trap-new-album/) - Spinmagazine.com
+- [The Temper Trap to return with first album in a decade, Sungaze](https://www.thelineofbestfit.com/news/the-temper-trap-to-return-with-first-album-in-a-decade-sungaze) - Thelineofbestfit.com
+- [Olivia Rodrigo Details Third Album](https://www.spinmagazine.com/2026/04/olivia-rodrigo-details-third-album/) - Spinmagazine.com
+- [Olivia Rodrigo Announces New Album 'You Seem Pretty Sad for a Girl So in Love': Release Date & Cover Revealed](https://www.justjared.com/2026/04/02/olivia-rodrigo-new-album-you-seem-pretty-sad-for-a-girl-so-in-love-release-date/) - Just Jared
+- [What to Know About Olivia Rodrigo's Third Album you seem pretty sad for a girl so in love](https://www.teenvogue.com/story/olivia-rodrigo-third-album-you-seem-pretty-sad-for-a-girl-so-in-love-everything-you-need-to-know) - Teen Vogue
+- [Olivia Rodrigo Announces New Album You Seem Pretty Sad for a Girl So in Love - Pitchfork](https://pitchfork.com/news/olivia-rodrigo-announces-new-album-you-seem-pretty-sad-for-a-girl-so-in-love/) - Pitchfork
+- [Olivia Rodrigo Is ‘Pretty Sad for a Girl So in Love’ - vulture.com](https://www.vulture.com/article/olivia-rodrigo-is-pretty-sad-for-a-girl-so-in-love-album-details.html) - Vulture
+- [Olivia Rodrigo Announces New Album ‘You Seem Pretty Sad for a Girl So in Love’ - Variety Australia](https://au.variety.com/2026/music/global/olivia-rodrigo-new-album-title-june-release-date-34873/) - Variety
+- [Olivia Rodrigo Reveals New Album ‘You Seem Pretty Sad for a Girl So in Love’ - Rolling Stone](https://www.rollingstone.com/music/music-news/olivia-rodrigo-announces-new-album-you-seem-pretty-sad-1235531647/) - Rollingstone
+- [Ella Langley’s ‘Choosin’ Texas’ Video: All the Cameos You May Have Missed](http://www.rollingstone.com/music/music-country/ella-langley-choosin-texas-video-cameos-you-missed-1235540786/) - Rolling Stone
+- [From Abilene to Waco, The Biggest Billboard Texas Hits - Billboard](https://www.billboard.com/lists/biggest-billboard-texas-hits/) - Billboard
+- [The Album That Made Me Fall Back in Love With Heavy Metal](https://www.theatlantic.com/culture/2026/04/neurosis-an-undying-love-for-a-burning-world-review/686656/) - The Atlantic
+- [The Album That Made Me Fall Back in Love With Heavy Metal - The Atlantic](https://www.theatlantic.com/culture/2026/04/neurosis-an-undying-love-for-a-burning-world-review/686656/?utm_source=feed) - Theatlantic
+- [US music bodies weigh in to publishers’ Anthropic lawsuit](http://musically.com/2026/04/02/us-music-bodies-weigh-in-to-publishers-anthropic-lawsuit/) - Music Ally
+- [Publishers Say Anthropic's Use Of Lyrics Violates Copyrights - Law360](https://www.law360.com/articles/2457080) - Law360
+- [Publishers Back Concord Music Group’s AI Suit - publishersweekly.com](https://www.publishersweekly.com/pw/by-topic/digital/copyright/article/100053-publishers-media-groups-back-concord-music-group-s-suit-against-anthropic.html) - Publishersweekly
+- [Anthropic Gets a Taste of Its Own Medicine - businessinsider.com](https://www.businessinsider.com/anthropic-copyright-infringement-claude-code-2026-4) - Businessinsider
+- [Publishers, Authors File Brief Supporting Music Publishers in Lawsuit Against Anthropic - Publishing Perspectives](https://publishingperspectives.com/2026/03/publishers-authors-file-brief-supporting-music-publishers-in-lawsuit-against-anthropic/) - Publishingperspectives
+- [Sparta Rocks With J. Robbins, Frank Iero On New LP](https://www.spinmagazine.com/2026/04/sparta-new-album/) - Spinmagazine.com
+- [Sparta Announce New Album, Unveil “Crater” Co-Written by MCR’s Frank Iero: Stream](https://consequence.net/2026/04/sparta-new-album-unveil-crater-with-frank-iero/) - Consequence.net
+- [Olivia Dean Slams Ticket Resellers, Says Fans Should Not Pay Someone Else $600 for Shows](https://www.justjared.com/2026/04/02/olivia-dean-slams-ticket-resellers-says-fans-should-not-pay-someone-else-600-for-shows/) - Just Jared
+- [Bob Sinclar & Kiesza’s Modern Spin on ‘80s Hit ‘I Can’t Wait!’ Makes Billboard Canada Airplay Chart Debut - Billboard Canada](https://ca.billboard.com/music/chart-beat/bob-sinclar-kieza-billboard-canada-charts) - Billboard
+- [Apple Music partners with Ticketmaster to power its concert discovery feature - TechCrunch](https://techcrunch.com/2026/03/24/apple-music-partners-with-ticketmaster-to-power-its-concert-discovery-feature/) - Techcrunch
+- [Ticketmaster quietly raised other fees after US crackdown on hidden charges - The Guardian](https://www.theguardian.com/business/2026/mar/26/ticketmaster-fees-hidden-charges) - Theguardian
+- [Vinny Appice Looks Back on Years With Dio - Interview](https://loudwire.com/vinny-appice-discusses-final-years-with-heaven-hell-shares-dio-memories-interview/) - Loudwire
+- [of Montreal Announce New Album aethermead, Share Forceful Lead Single “When”: Stream](https://consequence.net/2026/04/of-montreal-aethermead-lead-single-when/) - Consequence.net
+- [How to Watch Coachella on YouTube](https://www.iphoneincanada.ca/2026/04/02/hhow-to-watch-coachella-on-youtube/) - iPhone in Canada
+- [YouTube Upgrades Its Music TV Experience, Just in Time for Coachella](https://www.cnet.com/tech/services-and-software/youtube-stations-music-tv-fast-channels-coachella/) - CNET
+- [Deary’s debut Birding engages all the senses](https://www.thelineofbestfit.com/albums/deary-birding-engages-all-senses) - Thelineofbestfit.com
+- [deary – Birding (2026)](https://exystence.net/blog/2026/04/02/deary-birding-2026/) - Exystence.net
