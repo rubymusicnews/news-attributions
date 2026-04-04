@@ -1,0 +1,32 @@
+# Sources for 2026-04-04 News Episode 
+- [Thundercat Embarks on an Outer-Space Voyage Through Grief and Beauty](http://www.rollingstone.com/music/music-album-reviews/thundercat-distraction-album-review-1235525929/) - Rolling Stone
+- [Thundercat dispenses hazy charm and virtuoso bass on Distracted — review - Financial Times](https://www.ft.com/content/a3ae7f6a-13f2-4f28-8a69-a57e5acc383a) - Ft
+- [James Gadson, Drummer for Diana Ross and Bill Withers, Dead at 86](http://www.rollingstone.com/music/music-news/james-gadson-drummer-obituary-1235541434/) - Rolling Stone
+- [Drummer James Gadson, who played with Bill Withers and Marvin Gaye, dies at 86 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-03/james-gadson-drummer-bill-withers-marvin-gaye-diana-ross-dead) - Latimes
+- [U2 Surprise Release Six-Song Spiritual EP Easter Lily](http://www.rollingstone.com/music/music-news/u2-ep-easter-lily-1235541007/) - Rolling Stone
+- [No Foolin’: U2 Surprise Releases Another New EP](https://www.spinmagazine.com/2026/04/u2-new-ep-2/) - Spinmagazine.com
+- ['U2 - EASTER LILY' - NEW EP OUT NOW - U2 > Home](https://www.u2.com/news/title/u2-easter-lily-new-ep-out-now/) - U2
+- [U2 Return with New EP Easter Lily - Pitchfork](https://pitchfork.com/news/u2-return-with-new-ep-easter-lily/) - Pitchfork
+- [U2 Releases the Band’s Second Six-Song EP of 2026, ‘Easter Lily’ - Variety](https://variety.com/2026/music/news/u2-easter-lily-ep-release-1236706082/) - Variety
+- [U2 Surprise Release Six-Song Spiritual EP ‘Easter Lily’ - Rolling Stone](https://www.rollingstone.com/music/music-news/u2-ep-easter-lily-1235541007/) - Rollingstone
+- [Music Legends: The World of Gaming porta a Milano i compositori di Persona, Castlevania e la voce di NieR](https://multiplayer.it/notizie/music-legends-the-world-of-gaming-milano-2026.html) - Multiplayer.it
+- [Will Manon Perform With KATSEYE at Coachella? HYBE Just Gave an Update](https://www.cosmopolitan.com/entertainment/celebs/a70929309/will-manon-perform-with-katseye-at-coachella/) - Cosmopolitan.com
+- [Why the World Can’t Stop Talking About Katseye - vogue.ph](https://vogue.ph/lifestyle/music/katseye-fandom-april-2026/) - Vogue
+- [Manon Removes KATSEYE From Instagram Bio, Releases Statement - Stereogum](https://stereogum.com/2494594/manon-removes-katseye-from-instagram-bio-releases-statement/news) - Stereogum
+- [Grammy-Nominated Artist ILLENIUM Joins Forces with David Guetta and Dustin Lynch on New Single ‘Die Living’](https://dancingastronaut.com/2026/04/grammy-nominated-artist-illenium-joins-forces-with-david-guetta-and-dustin-lynch-on-new-single-die-living/) - Dancing Astronaut
+- [The album is back](http://musically.com/2026/04/03/the-album-is-back/) - Music Ally
+- [BTS’ New Album ‘ARIRANG’ Breaks Multiple Spotify Records Following Release - Billboard](https://www.billboard.com/music/music-news/bts-arirang-breaks-spotify-records-2026-1236203953/) - Billboard
+- [What the Netflix–Warner Music Deal Really Means for Artists and Brands - ADWEEK](https://www.adweek.com/creativity/what-the-netflix-warner-music-deal-really-means-for-artists-and-brands/) - Adweek
+- [What Is ‘Clipping,’ the Viral Marketing Strategy That’s Taking Over the Music Biz? - Variety](https://variety.com/2026/music/news/clipping-marketing-tool-took-over-music-industry-1236699705/) - Variety
+- [Watch Paul Simon Play the 1973 Deep Cut ‘Something So Right’ for First Time in 33 Years](http://www.rollingstone.com/music/music-news/paul-simon-something-so-right-33-years-1235541440/) - Rolling Stone
+- [Paul Simon Performs Gentle Version of “Something So Right” on Colbert: Watch](https://consequence.net/2026/04/paul-simon-something-so-right-colbert/) - Consequence.net
+- [When did Paul Simon perform ‘Something So Right’? #entertainment](https://alltoc.com/entertainment/when-did-paul-simon-perform-something-so-right) - Alltoc.com
+- [Mork To Release New Album "Monolitt" In June; Shares New Music Video "Ødelagt"](http://www.metalunderground.com/news/details.cfm?newsid=161143) - Metalunderground.com
+- [Periphery Premiere New Single & Music Video "Mr. God" From Upcoming New Album "A Pale White Dot"](http://www.metalunderground.com/news/details.cfm?newsid=161144) - Metalunderground.com
+- [SiM Debuts First New Music of 2026 New Single “FiVE TiMES DEAD (by my wallet)”](https://www.animenewsnetwork.com/press-release/2026-04-03/sim-debuts-first-new-music-of-2026-new-single-five-times-dead/.236066) - Anime News Network
+- [Ravyn Lenae and Dominic Fike’s “Reputation” is a campfire classic](https://www.thefader.com/2026/04/03/ravyn-lenae-dominic-fike-reputation-bobby-music-video) - The FADER
+- [Listen to Ravyn Lenae’s New Songs “Bobby” and “Reputation”](https://pitchfork.com/news/listen-to-ravyn-songs-bobby-reputation-dominic-fike/) - Pitchfork
+- [Holding Absence Premiere New Single & Music Video "Whisper Of A Dream" - Sign With Sumerian Records](http://www.metalunderground.com/news/details.cfm?newsid=161146) - Metalunderground.com
+- [Wolfgang Van Halen Rick Rolls Audience After Teasing a Van Halen Song: Watch](https://consequence.net/2026/04/wolfgang-van-halen-rick-rolls-after-teasing-van-halen/) - Consequence.net
+- [Sunn O)))’s Beautiful Noise: Crushing Power Chords an Gorgeous Walls of Sound: Album Review](https://variety.com/2026/music/reviews/sunn-o-album-review-1236706202/) - Variety
+- [130 Tracks of Guitar Per Song? Sunn O))) Is Back, and Going Big. - The New York Times](https://www.nytimes.com/2026/01/13/arts/music/sunn-o-new-album-sub-pop.html) - Nytimes
