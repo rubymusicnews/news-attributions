@@ -1,0 +1,20 @@
+# Sources for 2026-04-05 News Episode 
+- [See the xx Play First Show in Eight Years in Mexico City](http://www.rollingstone.com/music/music-news/the-xx-play-first-show-eight-years-mexico-city-1235541920/) - Rolling Stone
+- ['Desperado' Lyrics & English Translation: T.O.P Returns With First Solo Music in Over a Decade](https://www.justjared.com/2026/04/04/desperado-lyrics-top-another-dimension-album/) - Just Jared
+- [Peach PRC Releases Debut Album 'Porcelain', Shares New Video](http://www.billboard.com/music/pop/peach-prc-debut-album-porcelain-1236215402/) - Billboard
+- ['Hysteria' Lyrics: Bebe Rexha Drops New Song From 'Dirty Blonde' Album](https://www.justjared.com/2026/04/04/hysteria-lyrics-bebe-rexha-dirty-blonde-song/) - Just Jared
+- [Starmer 'deeply concerned' by Kanye West's UK festival booking](https://news.sky.com/story/keir-starmer-deeply-concerned-by-kanye-wests-wireless-festival-booking-despite-antisemitic-remarks-13528071) - Sky.com
+- [Kanye West headlining Wireless festival is ‘deeply concerning’, says Keir Starmer - The Guardian](https://www.theguardian.com/music/2026/apr/05/kanye-west-wireless-festival-deeply-concerning-keir-starmer) - Theguardian
+- [Kanye West to return to UK for Wireless Festival - bbc.com](https://www.bbc.com/news/articles/ckgxrkw352no) - Bbc
+- [Keir Starmer 'concerned' over Kanye West UK festival dates - bbc.com](https://www.bbc.com/news/articles/cp86942yj97o) - Bbc
+- [Jewish Leadership Council condemn Wireless festival for booking Kanye West to headline - The Guardian](https://www.theguardian.com/music/2026/mar/31/wireless-festival-london-kanye-west-ye-to-headline-jewish) - Theguardian
+- [Why are Spice Girls reunion tour hopes rising? #lifestyle](https://alltoc.com/lifestyle/why-are-spice-girls-reunion-tour-hopes-rising) - Alltoc.com
+- [Lords of Acid Enlist Princess Superstar for “Karaoke Superstar,” First New Song in Eight Years: Stream](https://consequence.net/2026/04/lords-of-acid-princess-superstar-karaoke-superstar/) - Consequence.net
+- [My Chemical Romance: Three Cheers for Sweet Revenge (Deluxe Edition)](https://www.theabsolutesound.com/articles/my-chemical-romance-three-cheers-for-sweet-revenge-deluxe-edition/) - Theabsolutesound.com
+- [音楽フェス＜CENTRAL MUSIC & ENTERTAINMENT 2026＞開幕。初日はガールズ・アイドルグループがKアリーナで競演](https://barks.jp/news/1060065) - Barks.jp
+- [HIVESONG sparks a digital uprising with electrifying new anthem “Electric Fever”](https://earmilk.com/2026/04/03/hivesong-sparks-a-digital-uprising-with-electrifying-new-anthem-electric-fever/) - Earmilk.com
+- [Justin Bieber is set for a huge concert comeback — but after public struggles, can he pull it off?](https://pagesix.com/2026/04/04/celebrity-news/justin-biebers-got-a-lot-riding-on-coachella-comeback/) - Page Six
+- [Justin Bieber Shares Inside Look at His Secret Pre-Coachella Show: ‘See You All Soon’ - Billboard](https://www.billboard.com/music/music-news/justin-bieber-inside-pre-coachella-show-roxy-video-1236211833/) - Billboard
+- [The Pineapple Thief – Retracing Our Steps (2007-2014) (2025)](https://exystence.net/blog/2026/04/04/the-pineapple-thief-retracing-our-steps-2007-2014-2025/) - Exystence.net
+- [Makthaverskan – Glass and Bones (2026)](https://exystence.net/blog/2026/04/04/makthaverskan-glass-and-bones-2026/) - Exystence.net
+- [Die FM4 Neuvorstellungen der Woche](https://fm4.orf.at/stories/3053005/) - Fm4.orf.at
