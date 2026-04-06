@@ -1,0 +1,27 @@
+# Sources for 2026-04-06 News Episode 
+- [BTS Makes History As “ARIRANG” Spends 2nd Week At No. 1 On Billboard 200](http://www.soompi.com/article/1830504wpp/bts-makes-history-as-arirang-spends-2nd-week-at-no-1-on-billboard-200) - soompi
+- [BTS’ ‘ARIRANG’ Spends Second Week Atop Billboard 200 - Billboard](https://www.billboard.com/music/chart-beat/bts-arirang-second-week-number-one-billboard-200-chart-1236215482/) - Billboard
+- [Kanye West’s ‘Bully’ Debuts at No. 2 on Albums Chart as BTS Holds Top Spot With ‘Arirang’ - Variety](https://variety.com/2026/music/news/kanye-wests-bully-debuts-at-no-2-albums-chart-bts-arirang-1236708933/) - Variety
+- [BTS Earns 7th No. 1 Album on Billboard 200 With ‘ARIRANG’ - billboard.com](https://www.billboard.com/music/chart-beat/bts-arirang-no1-billboard-200-albums-chart-1236209566/) - Billboard
+- [BTS Are Back on Top With Record-Breaking First-Week ‘Arirang’ Sales - Rolling Stone](https://www.rollingstone.com/music/music-news/bts-arirang-first-week-sales-record-1235538129/) - Rollingstone
+- [BTS rampages back to the top of the charts - NPR](https://www.npr.org/2026/03/30/nx-s1-5766451/bts-arirang-pop-charts) - Npr
+- [How Moby-Dick inspired the songs of Gen Z’s new music obsession, Searows](https://www.the-independent.com/arts-entertainment/music/news/searows-interview-death-in-the-business-of-whaling-b2926701.html) - The-independent.com
+- [How Moby-Dick inspired the songs of Gen Z’s new music obsession, Searows](https://www.the-independent.com/arts-entertainment/music/features/searows-interview-death-in-the-business-of-whaling-b2926701.html) - The-independent.com
+- [Hikaru Utada Returns With New Single “PAPPAPARADISE” Out May 6: Serves As The Ending Theme For Beloved Anime Chibi Maruko-chan](https://www.animenewsnetwork.com/press-release/2026-04-04/hikaru-utada-returns-with-new-single-pappaparadise-out-may-6-serves-as-the-ending-theme-for-beloved-/.236100) - Anime News Network
+- [TB2 ushers in new era with Lifestyle](https://punchng.com/tb2-ushers-in-new-era-with-lifestyle/) - The Punch
+- [Why Rob Dukes Says Getting Fired From Exodus Was a 'Blessing'](https://loudwire.com/rob-dukes-getting-fired-exodus-blessing-in-disguise/) - Loudwire
+- [Der Song zum Sonntag: Bon Iver - „Heavenly Father“](https://fm4.orf.at/stories/3052984/) - Fm4.orf.at
+- [The Long Ryders – High Noon Hymns (2026)](https://exystence.net/blog/2026/04/05/the-long-ryders-high-noon-hymns-2026/) - Exystence.net
+- [Puma June doesn't hold anything back on 'Shadows of My Trauma'](https://earmilk.com/2026/04/04/puma-june-doesnt-hold-anything-back-on-shadows-of-my-trauma/) - Earmilk.com
+- [Pepsi Cancels Sponsorship of U.K. Festival Where Kanye West Is Set to Headline, Hours After Prime Minister Decries ‘His Previous Celebration of Nazism’](https://variety.com/2026/music/news/kanye-west-wireless-pepsi-cancels-sponsor-prime-minister-1236708665/) - Variety
+- [Pepsi Cancels Sponsorship of London Music Fest Over Booking of Headliner Kanye West](https://www.thewrap.com/creative-content/music/pepsi-cancels-sponsorship-wireless-fest-headliner-kanye-west/) - TheWrap
+- [A music festival booked Kanye West, now known as Ye, and lost major sponsors - NPR](https://www.npr.org/2026/04/05/nx-s1-5774562/kanye-west-ye-wireless-festival-london-uk-pepsi-diageo) - Npr
+- [A music festival booked Kanye West, now known as Ye, and lost major sponsors - KUOW](https://www.kuow.org/stories/a-music-festival-booked-kanye-west-now-known-as-ye-and-lost-major-sponsors) - Kuow
+- [A music festival booked Kanye West, now known as Ye, and lost major sponsors - Little Rock Public Radio](https://www.ualrpublicradio.org/npr-news/2026-04-05/a-music-festival-booked-kanye-west-now-known-as-ye-and-lost-major-sponsors) - Ualrpublicradio
+- [UK's PM cites Kanye West's antisemitism in criticizing his choice as Wireless festival headliner - ynetnews](https://www.ynetnews.com/jewish-world/article/ryzwqgl3zg) - Ynetnews
+- [UK's Starmer denounces Kanye West as Wireless headliner over antisemitism - ynetnews](https://www.ynetnews.com/culture/article/ryzwqgl3zg) - Ynetnews
+- [Lynn Miles – A Bouquet of Black Flowers (2026)](https://exystence.net/blog/2026/04/05/lynn-miles-a-bouquet-of-black-flowers-2026/) - Exystence.net
+- [Growing up black in a white family – the truth behind my birth](https://www.bbc.co.uk/programmes/p0nb29nf) - BBC News
+- [Cold Court unleash their monster of a track,"Burn"](https://earmilk.com/2026/04/04/cold-court-unleash-their-monster-of-a-trackburn/) - Earmilk.com
+- [1Z Entertainment - Wikipedia](https://en.wikipedia.org/wiki/1Z_Entertainment) - Wikipedia.org
+- [Clearlight – Symphonies: The Collected Recordings (2026)](https://exystence.net/blog/2026/04/05/clearlight-symphonies-the-collected-recordings-2026/) - Exystence.net
