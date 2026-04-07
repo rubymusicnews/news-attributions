@@ -1,0 +1,62 @@
+# Sources for 2026-04-07 News Episode 
+- [Latin Mafia Made It to the Top By Feeling It All](http://www.rollingstone.com/music/music-features/latin-mafia-cover-story-1235541623/) - Rolling Stone
+- [Young Miko Charts Her First-Ever Arena Tour](http://www.rollingstone.com/music/music-latin/young-miko-late-checkout-tour-dates-prices-1235542656/) - Rolling Stone
+- [Young Miko Announces 2026 “Late Checkout Tour”](https://consequence.net/2026/04/young-miko-2026-late-checkout-tour/) - Consequence.net
+- [Young Miko Announces Her First Arena Trek: Here Are the Dates for the 2026 Late Checkout Tour - Billboard](https://www.billboard.com/music/latin/young-miko-2026-tour-dates-late-checkout-tour-1236215681/) - Billboard
+- [Young Miko Announces ‘Late Checkout’ Tour — 31 Dates, 11 Countries (EXCLUSIVE) - Variety](https://variety.com/2026/music/news/young-miko-late-checkout-tour-dates-1236709236/) - Variety
+- [Young Miko announces ‘Late Checkout Tour,’ Barclays show. Get tickets - New York Post](https://nypost.com/2026/04/06/entertainment/young-miko-late-checkout-tour-where-to-buy-tickets-schedule/) - Nypost
+- [Genie und Grössenwahnsinn: Kanye Wests Musik steht längst im Schatten seiner Selbstinszenierung](https://www.nzz.ch/feuilleton/musik/kanye-west-genie-skandale-und-das-neue-album-bully-ld.1932059) - Www.nzz.ch
+- [Kanye West's sold-out comeback shows prove that forgiveness is up to the fans — not the brands](https://www.businessinsider.com/kanye-west-comeback-sofi-bully-album-backlash-reactions-analysis-2026-4) - Business Insider
+- [Kanye West Brings Out Lauryn Hill and Travis Scott for Wild Second Night in L.A. - Rolling Stone](https://www.rollingstone.com/music/music-news/kanye-west-lauryn-hill-travis-scott-los-angeles-concert-two-1235541886/) - Rollingstone
+- [The Industry Is Once Again Giving Kanye West a Pass - consequence.net](https://consequence.net/2026/04/kanye-west-apology-redemption/) - Consequence
+- [Ye’s Comeback Faces Sponsor Exodus And U.K. Political Pushback - Forbes](https://www.forbes.com/sites/asia-alexander/2026/04/06/yes-comeback-faces-sponsor-exodus-and-uk-political-pushback/) - Forbes
+- [Kanye West "Bully" Credits: Every Feature And Producer - HotNewHipHop](https://www.hotnewhiphop.com/985872-kanye-west-bully-credits-features-producers) - Hotnewhiphop
+- [The 6 Best Songs From Ye’s ‘Bully’ Album - Rolling Stone](https://www.rollingstone.com/music/music-news/kanye-west-bully-album-best-songs-ye-1235538475/) - Rollingstone
+- [Ye’s ‘Bully’ Album: All 18 Tracks Ranked - Billboard](https://www.billboard.com/lists/kanye-west-bully-tracks-ranked-best-songs/) - Billboard
+- [Ye attempts a comeback with sold-out LA-area concert, support from Lauryn Hill - AP News](https://apnews.com/article/kanye-west-concert-ye-lauryn-hill-sofi-stadium-043baf2592f5b9b0daf3e2014d57e992) - Apnews
+- [MONSTA X Add North American Leg to World Tour](https://exclaim.ca/music/article/monsta-x-add-north-american-leg-to-world-tour) - Exclaim!
+- [Monsta X Unveils North America Dates for THE X : NEXUS World Tour - Billboard](https://www.billboard.com/music/concerts/monsta-x-2026-the-x-nexus-world-tour-dates-north-america-1236215603/) - Billboard
+- [Monsta X Unleashes New English-Language Album ‘Unfold’: Stream It Now - Billboard](https://www.billboard.com/music/pop/monsta-x-english-language-album-unfold-stream-it-now-1236214734/) - Billboard
+- [MONSTA X Releases Emotional 3rd English Album, 'Unfold' - Yahoo News Canada](https://ca.news.yahoo.com/monsta-x-releases-emotional-3rd-195645535.html) - Yahoo
+- [Visa cements global K-pop connection as Worldwide Tour Sponsor for “BTS WORLD TOUR ‘ARIRANG’”](https://www.thehindubusinessline.com/brandhub/pr-release/visa-cements-globalk-pop-connection-as-worldwide-tour-sponsor-for-bts-world-tour-arirang/article70829802.ece) - BusinessLine
+- ['Reality Awaits' on the Strokes' First New Album in Six Years](https://exclaim.ca/music/article/reality-awaits-on-the-strokes-first-new-album-in-six-years) - Exclaim!
+- [The Strokes’ First New Album In Six Years Is Coming This Summer, The Band Announces](https://uproxx.com/indie/the-strokes-reality-awaits-new-album/) - UPROXX
+- [The Strokes Tussle With ‘Reality’ On New LP](https://www.spinmagazine.com/2026/04/the-strokes-new-album/) - Spinmagazine.com
+- [The Strokes announce new album ahead of San Francisco show: Everything to know - sfchronicle.com](https://www.sfchronicle.com/entertainment/article/the-strokes-reality-awaits-22191791.php) - Sfchronicle
+- [Sea.Hear.Now announces 2026 lineup: The Strokes, Mumford and Sons, more - New York Post](https://nypost.com/2026/03/24/ticket-sales/sea-hear-now-festival-2026-where-to-buy-tickets-lineup/) - Nypost
+- [20 Acts We Can’t Wait to See at Coachella - Rolling Stone](https://www.rollingstone.com/music/music-lists/coachella-most-anticipated-acts-1235542311/) - Rollingstone
+- [Queen Latifah Returns to Host the 2026 American Music Awards](http://www.rollingstone.com/music/music-news/queen-latifa-host-american-music-awards-2026-1235542761/) - Rolling Stone
+- [Queen Latifah To Host 2026 American Music Awards](http://deadline.com/2026/04/queen-latifah-host-2026-american-music-awards-1236783014/) - Deadline
+- [Queen Latifah To Host 2026 American Music Awards - Deadline](https://deadline.com/2026/04/queen-latifah-host-2026-american-music-awards-1236783014/) - Deadline
+- [Queen Latifah to Host the 2026 American Music Awards - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/queen-latifah-host-2026-american-music-awards-1236556863/) - Hollywoodreporter
+- [Queen Latifah Returning to Host American Music Awards — 31 Years Later - Billboard](https://www.billboard.com/music/awards/queen-latifah-host-2026-american-music-awards-1236216430/) - Billboard
+- [Kanye West’s ‘Bully’ First-Week Sales Are In As Deluxe Edition Nears](http://hiphopdx.com/news/kanye-west-bully-sales-billboard-chart/) - HipHopDX
+- [Ye’s Comeback Faces Sponsor Exodus And U.K. Political Pushback - Forbes](https://www.forbes.com/sites/asia-alexander/2026/04/06/yes-comeback-faces-sponsor-exodus-and-uk-political-pushback/) - Forbes
+- [Billboard 200 #1 Album Week of April 11 Trading Odds & Predictions - Polymarket](https://polymarket.com/event/billboard-200-1-album-week-of-april-11) - Polymarket
+- [A music festival booked Kanye West, now known as Ye, and lost major sponsors - NPR](https://www.npr.org/2026/04/05/nx-s1-5774562/kanye-west-ye-wireless-festival-london-uk-pepsi-diageo) - Npr
+- [Kanye West Pledges to Meet U.K. Jewish Leaders Amid Wireless Festival Controversy - hollywoodreporter.com](https://www.hollywoodreporter.com/music/music-news/kanye-west-jewish-leaders-wireless-festival-1236557200/) - Hollywoodreporter
+- [A music festival booked Kanye West, now known as Ye, and lost major sponsors - Little Rock Public Radio](https://www.ualrpublicradio.org/npr-news/2026-04-05/a-music-festival-booked-kanye-west-now-known-as-ye-and-lost-major-sponsors) - Ualrpublicradio
+- [The Major Music Record Kanye West Just Hit Amid His Comeback](https://www.cinemablend.com/streaming-news/kanye-west-scored-major-live-music-record-amid-comeback) - CinemaBlend
+- [Why the Rehabilitation of Kanye West Says So Much About America](https://variety.com/2026/music/opinion/why-kanye-west-rehabilitation-says-so-much-about-america-1236709926/) - Variety
+- [Ye’s Comeback Faces Sponsor Exodus And U.K. Political Pushback - Forbes](https://www.forbes.com/sites/asia-alexander/2026/04/06/yes-comeback-faces-sponsor-exodus-and-uk-political-pushback/) - Forbes
+- [Ye Just Made $33 Million in Two Nights. Will His Comeback Last? - Bloomberg.com](https://www.bloomberg.com/news/newsletters/2026-04-05/kanye-west-concert-breaks-records-with-18-million-night) - Bloomberg
+- [Kanye West Plays First American Concert Since 2021 - nytimes.com](https://www.nytimes.com/2026/04/02/arts/music/kanye-west-concert-los-angeles.html) - Nytimes
+- [Ye attempts a comeback with sold-out LA-area concert, support from Lauryn Hill - AP News](https://apnews.com/article/kanye-west-concert-ye-lauryn-hill-sofi-stadium-043baf2592f5b9b0daf3e2014d57e992) - Apnews
+- [These Companies Are Making It Possible for Fans to Own the Gear Behind the Music They Love](https://www.spinmagazine.com/2026/04/these-companies-are-making-it-possible-for-fans-to-own-the-gear-behind-the-music-they-love/) - Spinmagazine.com
+- [One of John Lennon’s Final Autographs Hits the Auction Block - Artnet News](https://news.artnet.com/art-world/john-lennon-last-autograph-auction-propstore-2761139) - Artnet
+- [Geddy Lee on Touring Again Under the RUSH Name: “What the F**k Should We Call It, Iron Maiden?”](https://consequence.net/2026/04/geddy-lee-on-touring-rush-what-the-fk-iron-maiden/) - Consequence.net
+- [Geddy Lee on Using Rush Name: 'What Else Do You F--king Call It?'](https://ultimateclassicrock.com/geddy-lee-rush-name-reunion-tour/) - Ultimate Classic Rock
+- [Rush's Alex Lifeson and Geddy Lee tease Junos surprise ahead of reunion tour later this year - CBC](https://www.cbc.ca/music/rush-juno-awards-2026-9.7144684) - Cbc
+- [Legendary rock band performs with new drummer for first time (video) - Syracuse.com](https://www.syracuse.com/entertainment/2026/03/legendary-rock-band-performs-with-new-drummer-for-first-time-video.html) - Syracuse
+- [RUSH Surprise Juno Awards with First Performance in 11 Years: Watch - Consequence of Sound](https://consequence.net/2026/03/rush-juno-awards-first-performance-11-years/) - Consequence
+- [Watch Rush Play Live With New Drummer Anika Nilles for the First Time - Rolling Stone](https://www.rollingstone.com/music/music-news/watch-rush-play-live-new-drummer-anika-nilles-first-time-1235538613/) - Rollingstone
+- [Rush Perform for the First Time With Drummer Anika Nilles in Surprise Appearance at Canada’s Juno Awards - Variety](https://variety.com/2026/music/news/rush-perform-drummer-anika-nilles-first-time-juno-awards-1236702490/) - Variety
+- [From stadiums to home screens: Why concert livestreams could be OTT’s next big act](https://economictimes.indiatimes.com/magazines/panache/from-stadiums-to-home-screens-why-concert-livestreams-could-be-otts-next-big-act/articleshow/130054929.cms) - The Times of India
+- [What the Netflix–Warner Music Deal Really Means for Artists and Brands - ADWEEK](https://www.adweek.com/creativity/what-the-netflix-warner-music-deal-really-means-for-artists-and-brands/) - Adweek
+- [BTS THE COMEBACK LIVE Pulls In Huge Viewership Numbers for Netflix - What's on Netflix](https://www.whats-on-netflix.com/news/top-10-reports/bts-the-comeback-live-viewership/) - Whats-on-netflix
+- [BTS’s ‘Comeback Live’ Special Drew 18.4 Million Views on Netflix - Billboard](https://www.billboard.com/music/pop/bts-comeback-live-18-4-million-views-netflix-1236206297/) - Billboard
+- ['House Tour' Music Video: Sabrina Carpenter Robs a House With Madelyn Cline & Margaret Qualley In New Visual - Watch Now!](https://www.justjared.com/2026/04/06/house-tour-music-video-sabrina-carpenter-robs-a-house-with-madelyn-cline-margaret-qualley-in-new-visual-watch-now/) - Just Jared
+- [See Margaret Qualley & Madelyn Cline in Sabrina Carpenter's New 'House Tour' Music Video!](https://www.brit.co/house-tour-music-video-sabrina-carpenter-madelyn-cline-margaret-qualley/) - Brit + Co
+- [Sabrina Carpenter Goes Bling Ring in New “House Tour” Video - Pitchfork](https://pitchfork.com/news/sabrina-carpenter-goes-bling-ring-in-new-house-tour-video/) - Pitchfork
+- [Sabrina Carpenter, Margaret Qualley & Madelyn Cline Make Grand Theft Larceny Look Chic in ‘House Tour’ Video - Billboard](https://www.billboard.com/music/music-news/sabrina-carpenter-house-tour-video-margaret-qualley-1236215682/) - Billboard
+- [Watch: Mesmerizing Animated Music Video for Yorushika's 'Madder'](https://www.firstshowing.net/2026/watch-mesmerizing-animated-music-video-for-yorushikas-madder/) - First Showing
