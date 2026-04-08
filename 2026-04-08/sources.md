@@ -1,0 +1,30 @@
+# Sources for 2026-04-08 News Episode 
+- [Harry Styles Welcomes James Murphy, Dev Hynes To Meltdown](https://www.spinmagazine.com/2026/04/harry-styles-meltdown-festival/) - Spinmagazine.com
+- [Harry Styles’ Meltdown Festival Lineup Features Diverse Genres, Disco Occasionally](http://www.rollingstone.com/music/music-news/harry-styles-meltdown-festival-lineup-london-1235543128/) - Rolling Stone
+- [Harry Styles Unveils Genre-Spanning 2026 Meltdown Festival Lineup: See Who’s Performing - Billboard](https://www.billboard.com/music/music-news/harry-styles-2026-meltdown-festival-lineup-artists-1236216732/) - Billboard
+- [Harry Styles announces jazz, pop, indie and electronic artists for his Meltdown festival - The Guardian](https://www.theguardian.com/music/2026/apr/07/harry-styles-announces-artists-for-meltdown-festival) - Theguardian
+- [Harry Styles shares indie-packed line-up for his curated Meltdown 2026 - NME](https://www.nme.com/news/music/harry-styles-shares-indie-packed-line-up-for-his-curated-meltdown-2026-3938855) - Nme
+- [Daddy Yankee Is the 2026 Latin Grammy Person of the Year](http://www.rollingstone.com/music/music-latin/daddy-yankee-2026-latin-recording-academy-person-of-year-1235542778/) - Rolling Stone
+- [Daddy Yankee Named Latin Recording Academy’s 2026 Person of the Year - billboard.com](https://www.billboard.com/music/latin/daddy-yankee-latin-recording-academy-2026-person-of-year-1236216333/) - Billboard
+- [Thaiboy Digital Plots the Underworld Tour](https://pitchfork.com/news/thaiboy-digital-plots-the-underworld-tour/) - Pitchfork
+- [Aterciopelados: Tiny Desk Concert](https://www.npr.org/2026/04/07/g-s1-114297/aterciopelados-tiny-desk-concert) - NPR
+- [Aterciopelados: Tiny Desk Concert - NPR](https://www.npr.org/2026/04/07/g-s1-114297/aterciopelados-tiny-desk-concert?jwsource=cl) - Npr
+- [Aterciopelados: Tiny Desk Concert - Northern Public Radio](https://www.northernpublicradio.org/2026-04-07/aterciopelados-tiny-desk-concert) - Northernpublicradio
+- [Aterciopelados: Tiny Desk Concert - KAXE](https://www.kaxe.org/2026-04-07/aterciopelados-tiny-desk-concert) - Kaxe
+- [Aterciopelados: Tiny Desk Concert - WKNO FM](https://www.wknofm.org/music-npr/2026-04-07/aterciopelados-tiny-desk-concert) - Wknofm
+- [Aterciopelados: Tiny Desk Concert - iowapublicradio.org](https://www.iowapublicradio.org/2026-04-07/aterciopelados-tiny-desk-concert) - Iowapublicradio
+- [Tiffany Day on 2hollis comparisons and her ’HALO’ breakthrough](https://www.thefader.com/2026/04/07/tiffany-day-halo-album-interview) - The FADER
+- [Tiffany Day thought her career was over. Then she found her truest sound yet - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-03/tiffany-day-hyperpop-new-album-halo) - Latimes
+- [Chris Stussy Releases Debut Album, Lost, Found & Forgotten](https://dancingastronaut.com/2026/04/chris-stussy-releases-debut-album-lost-found-forgotten/) - Dancing Astronaut
+- [The Mars Volta Announce Career-Spanning 2026 US Tour](https://consequence.net/2026/04/the-mars-volta-2026-us-tour/) - Consequence.net
+- [Billy Idol Announces Summer 2026 US Tour](https://consequence.net/2026/04/billy-idol-summer-2026-us-tour/) - Consequence.net
+- [At the Gates Unleash New Song “The Dissonant Void”: Stream](https://consequence.net/2026/04/at-the-gates-unleash-the-dissonant-void/) - Consequence.net
+- [KHROTO breaks through emotional barriers on “AGAKI” feat. Kiyo a.k.a. Nakid](https://earmilk.com/2026/04/07/khroto-breaks-through-emotional-barriers-on-agaki-feat-kiyo-a-k-a-nakid/) - Earmilk.com
+- [KHROTO captures a quiet chaos of adulthood on latest release “Betsuni Heiki”](https://earmilk.com/2026/04/07/khroto-captures-a-quiet-chaos-of-adulthood-on-latest-release-betsuni-heiki/) - Earmilk.com
+- [Iceage to return with "urgent and raw" sixth album, For Love of Grace & the Hereafter](https://www.thelineofbestfit.com/news/iceage-return-with-urgent-and-raw-sixth-album-for-love-of-grace-the-hereafter) - Thelineofbestfit.com
+- [Iceage Announce New Album For Love of Grace & the Hereafter](https://pitchfork.com/news/iceage-announce-new-album-for-love-of-grace-and-the-hereafter/) - Pitchfork
+- [Iceage Announce New Album For Love of Grace & the Hereafter, Share “Ember”: Stream](https://consequence.net/2026/04/iceage-new-album-for-love-of-grace-the-hereafter-ember/) - Consequence.net
+- [The Format Announce Fall 2026 North American Tour with The Get Up Kids](https://consequence.net/2026/04/the-format-2026-north-american-tour/) - Consequence.net
+- [Stanley Simmons, Sons of KISS’ Paul Stanley & Gene Simmons, Announce First-Ever Live Shows](https://consequence.net/2026/04/stanley-simmons-first-live-shows/) - Consequence.net
+- [Twisted Sister Announce 2026 Tour Dates With Sebastian Bach](https://ultimateclassicrock.com/twisted-sister-sebastian-bach-tour-dates/) - Ultimate Classic Rock
+- [Dee Snider Resigns From Twisted Sister Due to ‘Health Challenges’ - Billboard](https://www.billboard.com/music/rock/dee-snider-resigns-twisted-sister-health-challenges-1236174556/) - Billboard
