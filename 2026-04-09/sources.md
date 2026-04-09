@@ -1,0 +1,34 @@
+# Sources for 2026-04-09 News Episode 
+- [What to Expect from Karol G’s Headlining Coachella Set](http://www.rollingstone.com/music/music-latin/karol-g-coachella-set-what-to-expect-1235543249/) - Rolling Stone
+- [20 Acts We Can’t Wait to See at Coachella - Rolling Stone](https://www.rollingstone.com/music/music-lists/coachella-most-anticipated-acts-1235542311/) - Rollingstone
+- [K-pop without the K: BTS’ English-heavy comeback sparks debate over cultural identity](https://theconversation.com/k-pop-without-the-k-bts-english-heavy-comeback-sparks-debate-over-cultural-identity-279765) - The Conversation Africa
+- [BTS to Return in March With First Album in Nearly Four Years - Variety](https://variety.com/2025/music/news/bts-new-album-coming-march-1236621674/) - Variety
+- ["BTS: The Return" captures a poignant snapshot of a troubled comeback - Salon.com](https://www.salon.com/2026/03/27/bts-the-return-movie-comeback-arirang/) - Salon
+- [Arirang: Is BTS losing its K-pop identity as it aims for a bigger world stage? - BBC](https://www.bbc.com/news/articles/cg73dnz0l1xo) - Bbc
+- [It Was Supposed to Be the Comeback of a Lifetime for the World’s Biggest Band. What Happened? - Slate](https://slate.com/culture/2026/03/bts-arirang-album-netflix-swim-comeback-concert-2026.html) - Slate
+- [Chairman Bang Tells the Real Story Behind Making BTS’ Historic ‘ARIRANG’ - billboard.com](https://www.billboard.com/music/music-news/bts-arirang-chairman-bang-interview-1236217554/) - Billboard
+- ['Bad Angel' Lyrics: Lisa Teams Up With Anyma for New Song](https://www.justjared.com/2026/04/08/bad-angel-lyrics-lisa-anyma-song/) - Just Jared
+- [LISA & Anyma Reveal Collab ‘Bad Angel’ Is Coming Just in Time for Coachella - Billboard](https://www.billboard.com/music/music-news/blackpink-lisa-anyma-new-song-bad-angel-release-date-1236216877/) - Billboard
+- [LISA & Anyma Release ‘Bad Angel’: Stream It Now - billboard.com](https://www.billboard.com/music/pop/anyma-lisa-bad-angel-collaboration-coachella-aeden-1236217364/) - Billboard
+- [Pink Floyd, nuovo album '8-Tracks' celebra il percorso di consacrazione](https://www.ansa.it/sito/notizie/cultura/musica/2026/04/08/pink-floyd-nuovo-album-8-tracks-celebra-il-percorso-di-consacrazione_d23d3504-6285-4ab3-a6ff-23349d01d7a1.html) - ANSA.it
+- [Dove Ellis, Mammút, Arima Ederra, PISS and Adult DVD lead this year's Iceland Airwaves lineup](https://www.thelineofbestfit.com/news/iceland-airwaves-2026-dove-ellis-mammut-arima-ederra-piss-adult-dvd) - Thelineofbestfit.com
+- [Iceland Airwaves Announces First Artists for 2026 Festival - Iceland Review](https://www.icelandreview.com/news/iceland-airwaves-announces-first-artists-for-2026-festival/) - Icelandreview
+- [Volunteers turn a fan’s recordings of 10,000 concerts into an online treasure trove](https://www.the-independent.com/arts-entertainment/music/news/nirvana-1989-recording-aadam-jacobs-b2953719.html) - The-independent.com
+- [Volunteers turn a fan's recordings of 10,000 concerts into an online treasure trove](https://abcnews.com/US/wireStory/volunteers-turn-fans-recordings-10000-concerts-online-treasure-131826061) - Abcnews.com
+- [He Recorded an Astounding 10K Concerts. You Can Listen](https://www.newser.com/story/386932/he-recorded-an-astounding-10k-concerts-you-can-listen.html) - Newser
+- [Volunteers turn a fan’s recordings of 10,000 concerts into an online treasure trove](https://nypost.com/2026/04/08/lifestyle/music-fan-aadam-jacobs-concert-recordings-turned-into-online-treasure-trove-archive/) - New York Post
+- [Volunteers turn a fan's recordings of 10,000 concerts into an online treasure trove](https://abcnews.com/Technology/wireStory/volunteers-turn-fans-recordings-10000-concerts-online-treasure-131826073) - Abcnews.com
+- [Recognise 103: GiGi FM](https://djmag.com/features/recognise-103-gigi-fm) - DJ Mag
+- [“World’s Fastest Drummer” Riccardo Merlini Plays Soundgarden’s “Rusty Cage” as He Hears It for First Time: Watch](https://consequence.net/2026/04/riccardo-merlini-soundgarden-rusty-cage-first-time/) - Consequence.net
+- [Levi’s Partners with ColorsxStudios to Promote Emerging Music Talent](http://wwd.com/sourcing-journal/sj-denim/levis-colorsxstudios-promote-emerging-music-talent-1238891637/) - WWD
+- [Levi’s Partners with ColorsxStudios to Promote Emerging Music Talent - WWD](https://wwd.com/sourcing-journal/sj-denim/levis-colorsxstudios-promote-emerging-music-talent-1238891637/) - Wwd
+- [American Football Soars With Turnstile’s Brendan Yates](https://www.spinmagazine.com/2026/04/american-football-turnstile-song/) - Spinmagazine.com
+- [American Football and Turnstile’s Brendan Yates Team Up for “No Feeling”: Stream](https://consequence.net/2026/04/american-football-turnstile-brendan-yates-no-feeling/) - Consequence.net
+- [American Football team up with Turnstile's Brendan Yates on new single, "No Feeling"](https://www.thelineofbestfit.com/news/american-football-team-up-with-turnstiles-brendan-yates-on-new-single-no-feeling) - Thelineofbestfit.com
+- [American Football Enlist Turnstile’s Brendan Yates for New Song](https://pitchfork.com/news/american-football-enlist-turnstiles-brendan-yates-for-new-song/) - Pitchfork
+- [The Alarm Premiere “Live Today,” Final Music Video Featuring Late Frontman Mike Peters: Watch](https://consequence.net/2026/04/the-alarm-premiere-live-today-mike-peters-final-video/) - Consequence.net
+- [Texas Country Rebel Paul Cauthen on How He Landed on Beyoncé’s Radar](http://www.rollingstone.com/music/music-features/paul-cauthen-writing-songs-for-beyonce-1235543061/) - Rolling Stone
+- [Otoboke Beaver Return With “I Don’t Need to Be in Your Strike Zone”](https://pitchfork.com/news/otoboke-beaver-return-with-i-dont-need-to-be-in-your-strike-zone/) - Pitchfork
+- [Otoboke Beaver Announce New Maxi-Single, Share “I Don’t Need To Be In Your Strike Zone”: Stream](https://consequence.net/2026/04/otoboke-beaver-maxi-single-strike-zone/) - Consequence.net
+- [Otoboke Beaver announce new maxi single, “Is The New Album Out Yet?"](https://www.thelineofbestfit.com/news/otoboke-beaver-announce-new-maxi-single-is-the-new-album-out-yet) - Thelineofbestfit.com
+- [UK Doom Metal Legends Warning Announce First Album in 20 Years, Unveil Single “Stations”: Stream](https://consequence.net/2026/04/warning-first-album-20-years/) - Consequence.net
