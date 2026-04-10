@@ -1,0 +1,38 @@
+# Sources for 2026-04-10 News Episode 
+- [BLACKPINK Becomes 1st K-Pop Artist In History To Hit 2.2 Billion Views With 2 MVs](http://www.soompi.com/article/1831712wpp/blackpink-becomes-1st-k-pop-artist-in-history-to-hit-2-2-billion-views-with-2-mvs) - soompi
+- [Coachella 2026 Live: How to Watch the Festival for Free and Who's Performing](https://www.cnet.com/tech/services-and-software/coachella-2026-how-to-watch-the-festival-live-for-free-justin-bieber-sabrina-carpenter/) - CNET
+- [Coachella 2026 Livestream to Features All Seven Stages, 4K Resolution - Consequence of Sound](https://consequence.net/2026/04/coachella-2026-livestream/) - Consequence
+- [Coachella 2026 Lineup & Schedule: All the Set Times You Need to Know - Pitchfork](https://pitchfork.com/news/coachella-2026-lineup-and-schedule-all-the-set-times-you-need-to-know/) - Pitchfork
+- [Ella Langley Shows Why She’s a Budding Country Superstar on ‘Dandelion’](http://www.rollingstone.com/music/music-album-reviews/ella-langley-dandelion-review-1235544258/) - Rolling Stone
+- [Ella Langley: Chilling All the Way to the Top of the Charts - Rolling Stone](https://www.rollingstone.com/music/music-features/ella-langley-choosin-texas-interview-1235536275/) - Rollingstone
+- [Music Review: Make way for Ella Langley's 'Dandelion,' a new era of old-soul country - Greenwich Time](https://www.greenwichtime.com/entertainment/article/music-review-make-way-for-ella-langley-s-22196084.php) - Greenwichtime
+- [Ella Langley Stays True to Her Roots on Introspective New Album ‘Dandelion’: Stream It Now - Billboard](https://www.billboard.com/music/country/ella-langley-dandelion-stream-it-now-1236218920/) - Billboard
+- [Ella Langley: 5 Hidden Musical Gems - Billboard](https://www.billboard.com/lists/ella-langley-best-songs-you-dont-know/) - Billboard
+- [‘NINETEEN’ Lyrics & English Translation: Hear hrtz.wav’s Debut Song After Forming on K-Pop Survival Show](https://www.justjared.com/2026/04/09/nineteen-lyrics-hrtz-wav-debut-single-steal-heart-club-band-english-translation/) - Just Jared
+- [Lecrae: Tiny Desk Concert](https://www.npr.org/2026/04/09/g-s1-116338/lecrae-tiny-desk-concert) - NPR
+- [Lecrae First Christian Rapper On NPR's Tiny Desk Concert - Gospel Music Association](https://gospelmusic.org/news/lecrae-first-christian-rapper-on-nprs-tiny-desk-concert) - Gospelmusic
+- [Roger Waters Looking for Singer to Front Son’s Band for Pink Floyd Tribute Tour](https://consequence.net/2026/04/roger-waters-looking-for-singer-son-band-pink-floyd-tribute-tour/) - Consequence.net
+- [Steve Angello remixes Basement Jaxx’s ‘Where’s Your Head At’ on XL: Listen](https://djmag.com/news/steve-angello-remixes-basement-jaxxs-wheres-your-head-xl-listen) - DJ Mag
+- [Watch Robert Plant Perform Led Zeppelin’s “Ramble On” on Colbert](https://pitchfork.com/news/watch-robert-plant-perform-led-zeppelins-ramble-on-on-colbert/) - Pitchfork
+- [Robert Plant Performs Led Zeppelin Classic on ‘Late Show’: Watch - Billboard](https://www.billboard.com/music/rock/robert-plant-led-zeppelin-classic-late-show-watch-1236218652/) - Billboard
+- [Hip-Hop Pioneer Afrika Bambaataa Dead at 67](http://www.rollingstone.com/music/music-news/afrika-bambaataa-dead-obituary-1234868031/) - Rolling Stone
+- [Afrika Bambaataa Dead at 67](https://exclaim.ca/music/article/afrika-bambaataa-dead-at-67) - Exclaim!
+- [Afrika Bambaataa, Influential Hip Hop Artist and Zulu Nation Founder, Dies at 67 - Variety](https://variety.com/2026/music/news/afrika-bambaataa-dead-planet-rock-1236712886/) - Variety
+- [Afrika Bambaataa, a pioneer of hip-hop, dies at age 68 - NBC News](https://www.nbcnews.com/news/obituaries/afrika-bambaataa-pioneer-hip-hop-dies-age-68-rcna267550) - Nbcnews
+- [Hip-hop pioneer Afrika Bambaataa dies at age 68 - WXXI News](https://www.wxxinews.org/npr-news/2026-04-10/hip-hop-pioneer-afrika-bambaataa-dies-at-age-68) - Wxxinews
+- [Afrika Bambaataa, hip-hop pioneer and Zulu Nation founder, dies - USA Today](https://www.usatoday.com/story/entertainment/music/2026/04/09/afrika-bambaataa-died/89539257007/) - Usatoday
+- [Hip-hop pioneer Afrika Bambaataa dies at age 68 - WQLN](https://www.wqln.org/npr-news/2026-04-10/hip-hop-pioneer-afrika-bambaataa-dies-at-age-68) - Wqln
+- [Hip-hop pioneer Afrika Bambaataa dies at age 68 - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/afrika-bambaataa-hip-hop-pioneer-dies-at-68/6488233/) - Nbcnewyork
+- ['After the Flood' argues Bob Dylan's late career is just as potent as his early years](https://www.npr.org/2026/04/09/nx-s1-5779271/bob-dylan-after-the-flood-review-robert-polito) - NPR
+- ['After the Flood' argues Bob Dylan's late career is just as potent as his early years - Northern Public Radio](https://www.northernpublicradio.org/2026-04-09/after-the-flood-argues-bob-dylans-late-career-is-just-as-potent-as-his-early-years) - Northernpublicradio
+- [Review: Bob Dylan was at the Genesee Theatre, singing songs with ghosts - chicagotribune.com](https://www.chicagotribune.com/2026/03/31/review-bob-dylan-was-at-the-genesee-theatre-singing-songs-with-ghosts/) - Chicagotribune
+- [Asha Puthli & Say She She - PAWA!](https://djmag.com/reviews/asha-puthli-say-she-she-pawa) - DJ Mag
+- [Why did Lambrini Girls pull out of Coachella? #entertainment](https://alltoc.com/entertainment/why-did-lambrini-girls-pull-out-of-coachella) - Alltoc.com
+- [Coachella band forced to cancel show over guitarist’s ‘acute brain injury’](https://nypost.com/2026/04/08/us-news/coachella-band-forced-to-cancel-show-over-guitarists-acute-brain-injury/) - New York Post
+- [Band cancels Coachella set because of 'acute brain injury' - SFGATE](https://www.sfgate.com/sf-culture/article/band-cancels-coachella-22196424.php) - Sfgate
+- [Lambrini Girls Off Coachella, Reschedule Tour After Singer Breaks Neck - Billboard](https://www.billboard.com/music/rock/lambrini-girls-off-coachella-reschedule-tour-singer-neck-fracture-1236218730/) - Billboard
+- [Violent Femmes – The Blind Leading the Naked (Remastered 2026)](https://exystence.net/blog/2026/04/09/violent-femmes-the-blind-leading-the-naked-remastered-2026/) - Exystence.net
+- [Khemmis Announce New Album and Tour, Unleash “Invocation of the Dreamer”: Stream](https://consequence.net/2026/04/khemmis-tour-2026-new-album-invocation/) - Consequence.net
+- [Khemmis to Take New Self-Titled Album on North American Tour](https://exclaim.ca/music/article/khemmis-to-take-new-self-titled-album-on-north-american-tour) - Exclaim!
+- [Khemmis to release new self-titled studio album June 12th 2026 - Grande Rock webzine](https://grande-rock.com/news/khemmis-to-release-new-self-titled-studio-album-june-12th-2026/) - Grande-rock
+- [PRE-ORDER KHEMMIS’ New Self-Titled Album on Decibel-Exclusive Vinyl NOW! Limited to 200! - Decibel Magazine](https://www.decibelmagazine.com/2026/04/09/pre-order-khemmis-new-self-titled-album-on-decibel-exclusive-vinyl-now-limited-to-200/) - Decibelmagazine
