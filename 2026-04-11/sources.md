@@ -1,0 +1,33 @@
+# Sources for 2026-04-11 News Episode 
+- [Evanescence Announce New Album Sanctuary, Unveil Single “Who Will You Follow”: Stream](https://consequence.net/2026/04/evanescence-new-album-sanctuary-single-who-will-you-follow/) - Consequence.net
+- [Evanescence Announce Sixth Studio Album 'Sanctuary'](https://loudwire.com/evanescence-sanctuary-album/) - Loudwire
+- [Japan’s Prime Minister welcomes Deep Purple, capping 50-year love affair with heavy metal: ‘You’re my god’](https://fortune.com/2026/04/10/japans-prime-minister-welcomes-deep-purple-capping-50-year-love-affair-with-heavy-metal-youre-my-god/) - Fortune
+- ['You are my god,' Takaichi tells Deep Purple drummer Ian Paice](https://japantoday.com/category/entertainment/%27you-are-my-god-%27-takaichi-tells-deep-purple-drummer-ian-paice) - Japan Today
+- [Japanese prime minister Takaichi thrilled by Deep Purple's visit to her office](https://abcnews.com/Entertainment/wireStory/japanese-prime-minister-takaichi-thrilled-deep-purples-visit-131909379) - Abcnews.com
+- [Japanese Prime Minister Fangirls Out While Meeting Members Of Deep Purple](https://www.huffpost.com/entry/japan-sanae-takaichi-deep-purple_n_69d91219e4b048dba44ce894) - HuffPost
+- [Japanese prime minister Takaichi thrilled by Deep Purple’s visit to her office - AP News](https://apnews.com/article/japan-takaichi-deep-purple-band-drum-5d8a86f43206643373cc672c1d1bf63c) - Apnews
+- [Japanese prime minister Takaichi thrilled by Deep Purple's visit to her office - Greenwich Time](https://www.greenwichtime.com/entertainment/article/japanese-prime-minister-takaichi-thrilled-by-deep-22199104.php) - Greenwichtime
+- ['You are my god', Japan's PM tells British rock band Deep Purple - BBC](https://www.bbc.com/news/articles/cre12n72nwno) - Bbc
+- [Japan launches So-Fu Music scheme for artists and managers](http://musically.com/2026/04/10/japan-launches-so-fu-music-scheme-for-artists-and-managers/) - Music Ally
+- [The Rolling Stones to Release New Album as the Cockroaches](https://exclaim.ca/music/article/the-rolling-stones-to-release-new-album-as-the-cockroaches) - Exclaim!
+- [Yes Announce New Studio Album, Unveil “Aurora”: Stream](https://consequence.net/2026/04/yes-announce-new-studio-album-aurora/) - Consequence.net
+- [Backstreet Boys’ Ex Manager Admits to Undermining Band to Help ‘NSYNC: ‘I’m Going to Turn All My Guns Against You’](http://www.rollingstone.com/music/music-news/backstreet-boys-ex-manager-nsync-boy-band-confidential-1235544767/) - Rolling Stone
+- [Usher & Chris Brown Announce Co-Headlining 'R&B: Raymond & Brown Tour,' Dates Still Unknown](https://www.justjared.com/2026/04/10/usher-chris-brown-announce-co-headlining-rb-raymond-brown-tour-dates-still-unknown/) - Just Jared
+- [Chris Brown & Usher Tour Updates: Ticket Prices, When to Buy Them & More](https://hollywoodlife.com/feature/chris-brown-usher-tour-updates-ticket-prices-sale-dates-5528442/) - Hollywood Life
+- [Usher & Chris Brown Announce Joint North American Tour: The R&B (Raymond & Brown) Tour](https://bossip.com/4545952/usher-and-chris-brown-announce-joint-tour/) - Bossip
+- [Usher, Chris Brown join forces for surprise tour - USA Today](https://www.usatoday.com/story/entertainment/music/2026/04/10/usher-chris-brown-tour/89552067007/) - Usatoday
+- [Chris Brown and Usher are going on tour together: ‘It’s time’ - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-04-10/chris-brown-and-usher-tour) - Latimes
+- [Chris Brown & Usher Team Up for Raymond & Brown Stadium Tour: Watch the Teaser - Billboard](https://www.billboard.com/music/rb-hip-hop/chris-brown-usher-joint-tour-rb-tour-teaser-1236219892/) - Billboard
+- [You have likely heard about 'K-pop'. But what about 'P-pop'?](https://www.abc.net.au/news/2026-04-11/p-pop-groups-secure-gigs-at-major-us-festivals/106537858) - ABC News (AU)
+- [BINI Previews ‘Big Responsibility’ of Its Coachella 2026 Set & Breaks Down New EP ‘Signals’ - Billboard](https://www.billboard.com/lists/bini-coachella-2026-new-album-signals-interview/) - Billboard
+- [K-pop conquered Coachella. Now it’s Bini’s turn to show off the Philippines - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-09/coachella-2026-bini-feature-philippines-mojave-tent-friday) - Latimes
+- [SB19’s ‘Wakas At Simula’ Album: All 24 Tracks Ranked - Billboard](https://www.billboard.com/lists/sb19-wakas-at-simula-album-review-tracks-ranked/) - Billboard
+- [Lulu Simon release new single "Happy Again"](https://earmilk.com/2026/04/10/lulu-simon-release-new-single-happy-again/) - Earmilk.com
+- [Black metal band Agriculture channels polka, Buddhism and Slipknot](https://www.npr.org/2026/04/10/nx-s1-5779967/black-metal-band-agriculture-channels-polka-buddhism-and-slipknot) - NPR
+- ['Madwoman' Lyrics: Laufey Releases New Single & 'A Matter of Time: The Final Hour' Album - Listen Now!](https://www.justjared.com/2026/04/10/madwoman-lyrics-laufey-releases-new-single-a-matter-of-time-the-final-hour-album-listen-now/) - Just Jared
+- [Laufey Set to Receive 2026 ASCAP Creative Voice Award - billboard.com](https://www.billboard.com/music/awards/laufey-2026-ascap-creative-voice-award-1236217344/) - Billboard
+- [New Music Friday: The best albums out April 10](https://www.npr.org/2026/04/10/nx-s1-5778465/new-music-friday-best-albums-april-10-2026) - NPR
+- [Ella Langley Stays True to Her Roots on Introspective New Album ‘Dandelion’: Stream It Now - Billboard](https://www.billboard.com/music/country/ella-langley-dandelion-stream-it-now-1236218920/) - Billboard
+- [Music Review: Make way for Ella Langley’s ‘Dandelion,’ a new era of old-soul country - AP News](https://apnews.com/article/ella-langley-dandelion-music-review-1abd0aaeb05016560f95f369ba796fcf) - Apnews
+- [Alabama Shakes Lament Breakdown of the “American Dream” on New Song: Stream](https://consequence.net/2026/04/alabama-shakes-new-song-american-dream/) - Consequence.net
+- [As Everything Unfolds Premiere New Single & Music Video "FIND ANOTHER WAY" From Upcoming New Album "DID YOU ASK TO BE SET FREE?"](http://www.metalunderground.com/news/details.cfm?newsid=161184) - Metalunderground.com
