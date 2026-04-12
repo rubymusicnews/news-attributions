@@ -1,0 +1,43 @@
+# Sources for 2026-04-12 News Episode 
+- [Jackson Wang’s MAGIC MAN 2 Tour: Brooklyn Show 7 Best Moments](http://www.billboard.com/lists/jackson-wang-tour-best-moments-brooklyn/) - Billboard
+- [Jackson Wang’s MAGIC MAN 2 Is Where Happiness Prevails: Best Moments From His Brooklyn Show - Billboard](https://www.billboard.com/lists/jackson-wang-tour-best-moments-brooklyn/) - Billboard
+- [10 Fun Facts About Sabrina Carpenter: From Disney Star to Coachella Headliner and Grammy Powerhouse](https://www.ibtimes.com.au/10-fun-facts-about-sabrina-carpenter-disney-star-coachella-headliner-grammy-powerhouse-1866196) - Ibtimes.com.au
+- [Sabrina Carpenter brings out Susan Sarandon for ‘iconic’ Coachella appearance](https://www.the-independent.com/arts-entertainment/music/news/sabrina-carpenter-susan-sarandon-coachella-will-ferrell-b2955771.html) - The-independent.com
+- [Sabrina Carpenter ignites debate over response to fan interrupting her Coachella set](https://www.the-independent.com/arts-entertainment/music/news/sabrina-carpenter-coachella-2026-culture-b2955865.html) - The-independent.com
+- [Sabrina Carpenter Apologizes for Calling Chant Yodeling at Coachella](http://www.hollywoodreporter.com/music/music-news/sabrina-carpenter-apologizes-yodeling-arabic-chant-coachella-1236561935/) - Hollywood Reporter
+- [Sabrina Carpenter brings her hits (and Susan Sarandon?) to Coachella - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-11/coachella-sabrina-carpenter-day-1-review-susan-sarandon) - Latimes
+- [Sabrina Carpenter brings out Will Ferrell to save her Coachella show - SFGATE](https://www.sfgate.com/sf-culture/article/coachella-will-ferrell-22200902.php) - Sfgate
+- [Sabrina Carpenter's Coachella Set Featured Sam Elliott, Susan Sarandon & More - Deadline](https://deadline.com/2026/04/sabrina-carpenter-coachella-sam-elliott-susan-sarandon-will-ferrell-1236858220/) - Deadline
+- [Sabrina Carpenter Headlines Coachella 2026 with Susan Sarandon and Will Ferrell Among Surprise Guests - People.com](https://people.com/sabrina-carpenter-headlines-coachella-2026-susan-sarandon-will-ferrell-surprise-guests-11947364) - People
+- [Watch Sabrina Carpenter Headline the First Night of Coachella 2026 - Pitchfork](https://pitchfork.com/news/watch-sabrina-carpenter-headline-the-first-night-of-coachella-2026/) - Pitchfork
+- [Coachella Best Moments 2026: Sabrina Carpenter, KATSEYE & More](http://www.billboard.com/lists/coachella-2026-day-one-best-sabrina-carpenter-katseye/) - Billboard
+- [Coachella 2026: Indie minimalists The xx come back bigger, brasher than ever - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-10/coachella-2026-indie-minimalists-xx-come-back-bigger-brasher-than-ever) - Latimes
+- [See Coachella 2026 first week lineup, daily schedule, livestream, more - USA Today](https://www.usatoday.com/story/entertainment/music/2026/04/10/coachella-2026-lineup-schedule-watch/89535676007/) - Usatoday
+- [Coachella posts set times and surprise! Jack White is on the bill - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-06/coachella-2026-set-times-jack-white-suprise-mojave-tent) - Latimes
+- [Huntrix Joins KATSEYE for Surprise Coachella Performance](http://www.hollywoodreporter.com/music/music-news/coachella-huntrix-katseye-golden-performance-1236561805/) - Hollywood Reporter
+- [Coachella’s “Golden” Moment: EJAE, Rei Ami and Audrey Nuna Join KATSEYE for Surprise Performance - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/coachella-huntrix-katseye-golden-performance-1236561805/) - Hollywoodreporter
+- [KATSEYE Performs ‘Golden’ At Coachella with HUNTR/X voices - Forbes](https://www.forbes.com/sites/hannahabraham/2026/04/11/coachella-2026-katseye-performs-golden-with-ejae-audrey-nuna-and-rei-ami/) - Forbes
+- ['KPop Demon Hunters' Sing 'Golden' at Coachella With Katseye - Variety](https://variety.com/2026/music/news/kpop-demon-hunters-golden-coachella-katseye-1236713976/) - Variety
+- [Katseye Talks Performing "Pinky Up" For the First Time At Coachella - billboard.com](https://www.billboard.com/video/katseye-talks-about-performing-pinky-up-for-the-first-time-at-coachella/) - Billboard
+- [Dave Stapleton – Quiet Fire (2026)](https://exystence.net/blog/2026/04/11/dave-stapleton-quiet-fire-2026/) - Exystence.net
+- [Born to rage in the USA: Bruce Springsteen’s lifelong protest in song — from Vietnam to Trump](https://www.the-independent.com/arts-entertainment/music/features/bruce-springsteen-politics-trump-vietnam-b2951616.html) - The-independent.com
+- [Bruce Springsteen delivers fiery performance at No Kings protest - USA Today](https://www.usatoday.com/story/entertainment/music/2026/03/30/bruce-springsteen-no-kings-protest-trump/89385546007/) - Usatoday
+- [Bruce Springsteen Gets Political at Show in Minneapolis: 'We Have a President Who Can't Handle the Truth' - Rolling Stone](https://www.rollingstone.com/music/music-news/bruce-springsteen-trump-minneapolis-tour-opener-1235539958/) - Rollingstone
+- [Bruce Springsteen brings ‘Streets of Minneapolis' home as he launches U.S. tour with ‘War' - NBC New York](https://www.nbcnewyork.com/news/national-international/bruce-springsteen-streets-of-minneapolis-tour/6484335/?amp=1) - Nbcnewyork
+- [Bruce Springsteen Declares 'War' Against Trump at Defiant Tour Opener in Minneapolis - yahoo.com](https://www.yahoo.com/entertainment/music/articles/bruce-springsteen-declares-war-against-123032454.html) - Yahoo
+- [Bruce Springsteen Rallies Hard Against Trump on New Tour, Leads “ICE Out Now” Chant - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/bruce-springsteen-rallies-trump-tour-1236553596/) - Hollywoodreporter
+- [Bruce Springsteen brings 'Streets of Minneapolis' home to launch a political US tour - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/bruce-springsteen-brings-streets-of-minneapolis-22161195.php) - Sfchronicle
+- [KID PHENOMENON on the Evolution of Expression After SXSW 2026](http://www.billboard.com/music/music-news/kid-phenomenon-interview-sxsw-2026-tokyo-neo-pop-1236219075/) - Billboard
+- [KID PHENOMENON on the Evolution of Expression After SXSW 2026 & Presenting ‘TOKYO NEO POP’ to the World - billboard.com](https://www.billboard.com/music/music-news/kid-phenomenon-interview-sxsw-2026-tokyo-neo-pop-1236219075/) - Billboard
+- [BTS – Swim](https://thesinglesjukebox.com/bts-swim/) - Thesinglesjukebox.com
+- ['It's like a water park': BTS battle torrential rain as $1bn world tour kicks off - BBC](https://www.bbc.com/news/articles/cq59qzzg93jo) - Bbc
+- [BTS Tops 6 Billboard Charts + Becomes 1st Asian Act To Simultaneously Chart 10 Songs On Hot 100 For Multiple Weeks - Soompi](https://www.soompi.com/article/1831202wpp/bts-tops-6-billboard-charts-becomes-1st-asian-act-to-simultaneously-chart-10-songs-on-hot-100-for-multiple-weeks) - Soompi
+- [Coachella star condemns ICE raids in defiant stage address](https://www.the-independent.com/tv/culture/coachella-ice-cmat-performance-watch-b2955853.html) - The-independent.com
+- [Karol G Wants Coachella Performance to Have Impact on Latin Community, More Than Just Saying “ICE Out” - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/karol-g-coachella-performance-impact-latin-community-ice-1236560864/) - Hollywoodreporter
+- [Eine Zeitreise in die 90er zu Jeff Buckley](https://fm4.orf.at/stories/3053142/) - Fm4.orf.at
+- [Asim Azhar’s north America tour sparks excitement with first big reveal](https://www.24newshd.tv/11-Apr-2026/asim-azhar-s-north-america-tour-sparks-excitement-first-big-reveal) - 24newshd.tv
+- [Morgan Wallen's Tour Kickoff in Minneapolis: Best Moments](http://www.billboard.com/lists/morgan-wallen-tour-minneapolis-best-moments/) - Billboard
+- [Morgan Wallen 'Still the Problem Tour' Set List Revealed After Opening Night - See Which Songs He's Performing](https://www.justjared.com/2026/04/11/morgan-wallen-still-the-problem-tour-set-list-revealed-after-opening-night-see-which-songs-hes-performing/) - Just Jared
+- [Morgan Wallen’s U.S. Bank Setlist: Every Song Performed At The Opening of His Still The Problem Tour in Minneapolis - billboard.com](https://www.billboard.com/lists/morgan-wallens-setlist-opening-night-still-the-problem-tour/) - Billboard
+- [OBEYER Premiere New Single & Music Video "Trauma Host" From Upcoming New EP "Pallor"](http://www.metalunderground.com/news/details.cfm?newsid=161187) - Metalunderground.com
+- [Janet Jackson’s “Nasty” woman’s anthem](https://www.salon.com/2026/04/11/janet-jacksons-nasty-womans-anthem/) - Salon
