@@ -1,0 +1,33 @@
+# Sources for 2026-04-14 News Episode 
+- [The Strokes Set Summer Tour in Support of ‘Reality Awaits’](http://www.rollingstone.com/music/music-news/the-strokes-summer-tour-reality-awaits-1235545713/) - Rolling Stone
+- [The Strokes Announce 2026 Headlining Tour](https://consequence.net/2026/04/the-strokes-2026-headlining-tour/) - Consequence.net
+- [The Strokes Schedule 'Reality Awaits' World Tour](https://exclaim.ca/music/article/the-strokes-schedule-reality-awaits-north-american-tour) - Exclaim!
+- [The Strokes announce new world tour, including stop at popular NJ music festival - NBC New York](https://www.nbcnewyork.com/entertainment/the-strokes-announce-new-world-tour-nj-music-festival/6489300/?amp=1) - Nbcnewyork
+- [The Strokes announce new album ahead of San Francisco show: Everything to know - sfchronicle.com](https://www.sfchronicle.com/entertainment/article/the-strokes-reality-awaits-22191791.php) - Sfchronicle
+- [sombr Announces 2026 Arena Tour with Stacked Group of Opening Acts](https://consequence.net/2026/04/sombr-2026-arena-tour/) - Consequence.net
+- [Sombr Announces ‘You Are the Reason’ North American Fall Tour](http://www.rollingstone.com/music/music-news/sombr-north-america-fall-arena-tour-announcement-1235545848/) - Rolling Stone
+- [sombr Announces Dates For 2026 North American You Are the Reason Fall Arena Tour - Billboard](https://www.billboard.com/music/pop/sombr-2026-north-american-fall-arena-tour-dates-1236221493/) - Billboard
+- [Monsta X Is Letting Their Next Chapter Unfold](http://wwd.com/eye/people/monsta-x-unfold-english-album-1238899085/) - WWD
+- [Monsta X Unveils North America Dates for THE X : NEXUS World Tour - Billboard](https://www.billboard.com/music/concerts/monsta-x-2026-the-x-nexus-world-tour-dates-north-america-1236215603/) - Billboard
+- [Monsta X Is Letting Their Next Chapter Unfold - WWD](https://wwd.com/eye/people/monsta-x-unfold-english-album-1238899085/) - Wwd
+- [Monsta X announces ‘The X Nexus Tour,’ NYC show. Get tickets today - nypost.com](https://nypost.com/2026/04/07/ticket-sales/monsta-x-the-x-nexus-tour-where-to-buy-tickets-schedule-dates/) - Nypost
+- [Monsta X Unleashes New English-Language Album ‘Unfold’: Stream It Now - Billboard](https://www.billboard.com/music/pop/monsta-x-english-language-album-unfold-stream-it-now-1236214734/) - Billboard
+- [MONSTA X Releases Emotional 3rd English Album, 'Unfold' - Yahoo News Canada](https://ca.news.yahoo.com/monsta-x-releases-emotional-3rd-195645535.html) - Yahoo
+- [Zara Larsson Gets Her Flowers](https://www.newyorker.com/magazine/2026/04/20/zara-larsson-music-review) - The New Yorker
+- [‘I lost a $3m brand deal. I was like: OK, losers!’ Swedish pop provocateur Zara Larsson on fame, fun and fighting the power - The Guardian](https://www.theguardian.com/music/2026/apr/03/zara-larsson-popstar-interview-on-fame-fun-fighting-the-power-lush-life) - Theguardian
+- [TRAILBLAZER](https://www.spinmagazine.com/2026/04/rezz-the-trailblazer/) - Spinmagazine.com
+- [Mannequin Pussy: Tiny Desk Concert](https://www.npr.org/2026/04/13/g-s1-116803/mannequin-pussy-tiny-desk-concert) - NPR
+- [Noah Kahan: Out of Body Turns The Artist’s Success Story Inside Out](http://www.denofgeek.com/movies/noah-kahan-out-of-body-documentary-success-story/) - Den of Geek US
+- [Noah Kahan Makes an Unlikely Home-Town Hero](https://www.newyorker.com/culture/pop-music/noah-kahan-makes-an-unlikely-home-town-hero) - The New Yorker
+- [‘Noah Kahan: Out of Body’ Trailer: Netflix Doc Looks to Show Breakout Singer Experiencing Self-Doubt as He Becomes a Stadium Act - Variety](https://variety.com/2026/music/news/noah-kahan-trailer-out-of-body-netflix-documentary-1236703215/) - Variety
+- [‘Noah Kahan: Out of Body’ Trailer Released - au.variety.com](https://au.variety.com/2026/music/global/noah-kahan-trailer-out-of-body-netflix-documentary-34794/) - Variety
+- [Noah Kahan Opens Up About His Struggles with Body Dysmorphia and Self-Image: It's a 'Horrible Cycle' - People.com](https://people.com/noah-kahan-body-dysmorphia-and-self-image-struggles-11943914) - People
+- [Noah Kahan Wasn’t Sure He Wanted Anyone to See His New Netflix Doc - The Hollywood Reporter](https://www.hollywoodreporter.com/movies/movie-features/noah-kahan-out-of-body-netflix-documentary-1236559314/) - Hollywoodreporter
+- [PIQSIQ, AHI, Matthew Byrne Lead Canadian Folk Music Awards Winners for 2026](https://exclaim.ca/music/article/piqsiq-ahi-matthew-byrne-lead-canadian-folk-music-awards-winners-for-2026) - Exclaim!
+- [Alice Cooper Performs Surprise Cover of Nirvana’s “Smells Like Teen Spirit”: Watch](https://consequence.net/2026/04/alice-cooper-nirvana-smells-like-teen-spirit/) - Consequence.net
+- [The Anchoress announces new album As We Once Were with single about parenting clichés](https://www.thelineofbestfit.com/news/the-anchoress-announces-new-album-as-we-once-were-with-single-about-parenting-clichés) - Thelineofbestfit.com
+- [Iona Luke shares pure grunge catharsis on new track "Existential"](https://earmilk.com/2026/04/13/iona-luke-shares-pure-grunge-catharsis-on-new-track-existential/) - Earmilk.com
+- [Bruce Springsteen Seeks Seizure of Bootleg Merch](https://consequence.net/2026/04/bruce-springsteen-bootleg-merch/) - Consequence.net
+- [Bruce Springsteen’s Merch Partner Sues to Stop Tour Knockoffs in New Jersey - Billboard](https://www.billboard.com/pro/bruce-springsteen-partner-sues-tour-knockoffs-new-jersey/) - Billboard
+- [‘Wizkid’s ‘Essence’ deserves a Grammy’ — Onanuga](https://www.vanguardngr.com/2026/04/wizkids-essence-deserves-a-grammy-onanuga/) - Vanguard
+- [YVNG JIN dives into the complexities of love on '4 EVER YVNG'](https://earmilk.com/2026/04/13/yvng-jin-dives-into-the-complexities-of-love-on-4-ever-yvng/) - Earmilk.com
