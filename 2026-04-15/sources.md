@@ -1,0 +1,28 @@
+# Sources for 2026-04-15 News Episode 
+- [Iron Maiden Among 2026 Rock & Roll Hall of Fame Inductees, But Will They Show Up?](https://consequence.net/2026/04/iron-maiden-2026-rock-roll-hall-of-fame-inductees/) - Consequence.net
+- [Iron Maiden's Statement on Rock and Roll Hall of Fame Induction](https://ultimateclassicrock.com/iron-maiden-rock-and-roll-hall-of-fame-reaction/) - Ultimate Classic Rock
+- [Billy Idol on Hall of Fame Induction: ‘You Couldn’t Have Dreamed It Better’](http://www.rollingstone.com/music/music-features/billy-idol-rock-and-roll-hall-of-fame-induction-1235546238/) - Rolling Stone
+- [Iron Maiden To Be Inducted Into Rock And Roll Hall Of Fame](http://www.metalunderground.com/news/details.cfm?newsid=161196) - Metalunderground.com
+- [Fela becomes first African inducted into Rock & Roll Hall of Fame](https://punchng.com/fela-becomes-first-african-inducted-into-rock-roll-hall-of-fame/) - The Punch
+- [Lady Gaga Ends Final Show of Mayhem Ball Tour By Telling Fans, 'I'll Be Back'](https://www.justjared.com/2026/04/14/lady-gaga-ends-final-show-of-mayhem-ball-tour-by-telling-fans-ill-be-back/) - Just Jared
+- [Lady Gaga Closes Chapter on ‘Mayhem’ Era With Tears, Gratitude & a Few Surprises: ‘I’ll Be Back’ - Billboard](https://www.billboard.com/music/music-news/lady-gaga-mayhem-ball-new-york-final-show-1236222427/) - Billboard
+- [Τέιλορ Σουίφτ: «Χρυσή κούρσα» στις υποψηφιότητες των American Music Awards 2026- Διεκδικεί 8 βραβεία](https://www.skai.gr/news/entertainment/i-teilor-souift-proigeitai-stis-ypopsifiotites-ton-american-music-awards-2026) - Skai.gr
+- [American Music Awards: Taylor Swift führt Nominierungen an](https://www.stern.de/kultur/american-music-awards--taylor-swift-fuehrt-nominierungen-an-37308984.html) - STERN.de
+- [Η Τέιλορ Σουίφτ προηγείται στα φετινά American Music Awards: Δείτε τη λίστα με τις υποψηφιότητες](https://www.protothema.gr/life-style/article/1802891/i-teilor-souift-proigeitai-sta-fetina-american-music-awards-deite-ti-lista-me-tis-upopsifiotites/) - Protothema.gr
+- [Η Τέιλορ Σουίφτ θεωρείται το μεγάλο φαβορί για τα American Music Awards 2026](https://www.newsit.gr/lifestyle/i-teilor-souift-theoreitai-to-megalo-favori-gia-ta-american-music-awards-2026/4650219/) - Newsit.gr
+- [Todos los nominados a los American Music Awards de 2026: Taylor Swift lidera la lista](https://exitoina.perfil.com/noticias/musica/todos-nominados-american-music-awards-2026-taylor-swift-lidera-lista.phtml) - Perfil.com
+- [RM on the Meaning of Life and More: ‘I Try to Express Universal Things’](http://www.rollingstone.com/music/music-features/rm-interview-arirang-bts-1235544804/) - Rolling Stone
+- [MC Lyte Talks ‘Surreal’ and ‘Humbling’ Rock Hall of Fame Induction](http://www.rollingstone.com/music/music-features/mc-lyte-rock-hall-of-fame-interview-1235546700/) - Rolling Stone
+- [Rock & Roll Hall of Fame Reveals Class of 2026: See Who Made It In This Year - Billboard](https://www.billboard.com/music/awards/rock-hall-fame-class-of-2026-1236221852/) - Billboard
+- [Julia Cumming Is Ready for the Spotlight](http://www.rollingstone.com/music/music-features/julia-cumming-sunflower-bean-solo-album-interview-1235541488/) - Rolling Stone
+- [Sunn O)))](https://www.npr.org/2026/04/14/nx-s1-5783975/sunn-o) - NPR
+- [Album Review: Sunn O))) – Self-Titled - New Noise Magazine](https://newnoisemagazine.com/reviews/album-review-sunn-o-self-titled/) - Newnoisemagazine
+- [Canada's national orchestra to honour Mi’kmaw music during Nova Scotia shows](https://www.cbc.ca/news/canada/nova-scotia/canada-s-national-orchestra-to-honour-mikmaw-music-during-nova-scotia-shows-9.7162872) - CBC News
+- [Canada's national orchestra to honour Indigenous music during Nova Scotia shows](https://www.cbc.ca/news/canada/nova-scotia/canada-s-national-orchestra-to-honour-indigenous-music-during-nova-scotia-shows-9.7162872) - CBC News
+- [Waxahatchee Covers This Is Lorelei’s “Where’s Your Love Now”](https://pitchfork.com/news/waxahatchee-covers-this-is-loreleis-wheres-your-love-now/) - Pitchfork
+- [Bob Dylan Asked This Country Singer for Her Number. She’s Now Opening His Tour](http://www.rollingstone.com/music/music-news/bob-dylan-tour-brittney-spencer-1235547172/) - Rolling Stone
+- [David Lee Roth on Hanging With Teddy Swims at Coachella: ‘We Got Along Like Pirates’](http://www.rollingstone.com/music/music-features/david-lee-roth-how-he-met-teddy-swims-coachella-1235546653/) - Rolling Stone
+- [Truck Violence Sign to the Flenser for New Album](https://pitchfork.com/news/truck-violence-sign-to-the-flenser-for-new-album/) - Pitchfork
+- [Top RSD 2026 Releases](https://www.spinmagazine.com/2026/04/top-rsd-2026-releases/) - Spinmagazine.com
+- [Record Store Day 2026: 14 Releases Worth Digging For - Billboard](https://www.billboard.com/lists/record-store-day-2026-best-releases/) - Billboard
+- [Parra for Cuva talks organic textures and intimacy on upcoming LP, 'Nacar' [INTERVIEW]](https://earmilk.com/2026/04/14/parra-for-cuva-talks-organic-textures-and-intimacy-on-upcoming-lp-nacar-interview/) - Earmilk.com
