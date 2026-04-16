@@ -1,0 +1,44 @@
+# Sources for 2026-04-16 News Episode 
+- [Jessie Ware Plots Fall 2026 Tour](https://pitchfork.com/news/jessie-ware-plots-fall-2026-tour/) - Pitchfork
+- [Jessie Ware Announces 2026 “The Superbloom Tour”](https://consequence.net/2026/04/jessie-ware-superbloom-tour/) - Consequence.net
+- [Jessie Ware Sets Major International ‘Superbloom’ Tour - Billboard](https://www.billboard.com/music/pop/jessie-ware-major-international-superbloom-tour-1236224147/) - Billboard
+- [Madonna’s ‘Confessions On A Dance Floor: Part II’ Gets July Release Date](http://deadline.com/2026/04/madonna-confessions-on-a-dance-floor-part-ii-release-date-1236861426/) - Deadline
+- [Madonna Reveals Confessions II Release, Cover](https://www.newser.com/story/387405/madonna-reveals-confessions-ii-release-cover.html) - Newser
+- [Madonna announces her fifteenth album, Confessions On A Dance Floor: Part II](https://www.thelineofbestfit.com/news/madonna-announces-her-fifteenth-album-confessions-on-a-dance-floor-part-ii) - Thelineofbestfit.com
+- [Madonna Teases 'Confession on the Dance Floor 2' With Instrumental Snippet - Billboard](https://www.billboard.com/music/pop/madonna-teases-confession-on-dance-floor-2-song-snippet-pic-1236222351/) - Billboard
+- [Madonna’s New Album ‘Confessions on a Dance Floor: Part II’ Sets July Release - Variety](https://variety.com/2026/music/global/madonna-new-album-confessions-on-a-dance-floor-ii-july-release-1236722324/) - Variety
+- [Madonna Announces New Album Confessions on a Dance Floor: Part II - Pitchfork](https://pitchfork.com/news/madonna-readies-confessions-on-a-dance-floor-sequel/) - Pitchfork
+- [Madonna Confirms Release Date For ‘Confessions II’ Album: ‘To Rave Is an Art’ - Billboard](https://www.billboard.com/music/pop/madonna-release-date-confessions-ii-1236223323/) - Billboard
+- [Jury finds that Live Nation acted as a monopoly and overcharged ticket buyers](https://www.npr.org/2026/04/15/nx-s1-5786715/live-nation-ticketmaster-antitrust-verdict-monopoly) - NPR
+- [US jury finds Live Nation and Ticketmaster subsidiary operated monopoly - The Guardian](https://www.theguardian.com/business/2026/apr/15/live-nation-ticketmaster-monopoly-ruling) - Theguardian
+- [Jury finds that Ticketmaster and Live Nation had an anticompetitive monopoly over big concert venues - Bozeman Daily Chronicle](https://www.bozemandailychronicle.com/ap_news/business/jury-finds-that-ticketmaster-and-live-nation-had-an-anticompetitive-monopoly-over-big-concert-venues/article_4b5418ad-9a98-546f-aa60-2ff2c33f8af1.html) - Bozemandailychronicle
+- [Jury Finds Live Nation Acts as a Monopoly in a Victory for States - The New York Times](https://www.nytimes.com/2026/04/15/arts/music/live-nation-antitrust-trial-verdict-monopoly.html) - Nytimes
+- [Jury finds Live Nation and Ticketmaster operated as a monopoly and overcharged fans - CNN](https://www.cnn.com/2026/04/15/politics/ticketmaster-live-nation-monopoly-verdict) - Cnn
+- [For artists, the Live Nation trial is just one piece of a difficult touring ecosystem - Houston Public Media](https://www.houstonpublicmedia.org/npr/2026/04/04/nx-s1-5771762/for-artists-the-live-nation-trial-is-just-one-piece-of-a-difficult-touring-ecosystem/) - Houstonpublicmedia
+- [Kanye West Postpones Marseille Concert In Face Of Potential French Government Ban](http://deadline.com/2026/04/kanye-west-postpones-marseille-france-concert-1236861192/) - Deadline
+- [Kanye West adia concerto em França](https://observador.pt/2026/04/15/kanye-west-adia-concerto-em-franca-apos-muita-reflexao-e-consideracao/) - Observador.pt
+- [Kanye West postpones France gig until further notice](https://www.bbc.com/news/articles/c36rrrp5wnlo) - BBC News
+- [Kanye West Cancels Paris Concert as Authorities Weigh Blocking Him From Entering France](https://www.justjared.com/2026/04/15/kanye-west-cancels-paris-concert-as-authorities-weigh-blocking-him-from-entering-france/) - Just Jared
+- [Ye Postpones Concert in France as Government Considers Banning It - The New York Times](https://www.nytimes.com/2026/04/15/world/europe/kanye-west-ye-france-concert.html) - Nytimes
+- [French interior minister wants to stop Kanye West concert - politico.eu](https://www.politico.eu/article/france-marseille-moves-block-kanye-west-concert-over-antisemitic-remarks/) - Politico
+- [Kanye West Postpones Marseille Concert In Face Of Potential French Government Ban - Deadline](https://deadline.com/2026/04/kanye-west-postpones-marseille-france-concert-1236861192/) - Deadline
+- [Kanye West controversies - how did we get here? - BBC](https://www.bbc.com/news/articles/c9vl1pn70ddo) - Bbc
+- [Pressure mounts on Kanye West to be pulled from his headline role at a summer festival in London - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/pressure-kanye-west-headline-summer-festival-london/6485870/) - Nbcnewyork
+- [10,000 Chicago Concert Recordings Are Being Uploaded to the Internet Archive: Nirvana, Phish, Sonic Youth, They Might Be Giants & More](https://www.openculture.com/2026/04/10000-chicago-concert-recordings-are-being-uploaded-to-the-internet-archive-nirvana-phish-sonic-youth-they-might-be-giants-more.html) - Openculture.com
+- [Online-Archive tausender geheimer Konzertaufnahmen](https://www.kraftfuttermischwerk.de/blogg/online-archive-tausender-geheimer-konzertaufnahmen/) - Kraftfuttermischwerk.de
+- [From Early Nirvana To Phish, A Chicago Fan's Secret Recordings Of 10,000 Shows Are Now Online](https://blockclubchicago.org/2026/04/10/from-early-nirvana-to-phish-a-chicago-fans-secret-recordings-of-10000-shows-are-now-online/) - Block Club Chicago
+- [Man who recorded over 10,000 live concerts is releasing them all online for free - Dexerto](https://www.dexerto.com/entertainment/man-who-recorded-over-10000-live-concerts-is-releasing-them-all-online-for-free-3350541/) - Dexerto
+- [Rare live recordings of Nirvana and Television, recorded by individuals over several decades, are now available on the Internet Archive. - GIGAZINE](https://gigazine.net/gsc_news/en/20260414-rare-concert-recordings-internet-archive/) - Gigazine
+- [Volunteers turn a fan's recordings of 10,000 concerts into an online treasure trove - nbcnews.com](https://www.nbcnews.com/pop-culture/pop-culture-news/volunteers-turn-fans-recordings-10000-concerts-online-treasure-trove-rcna267206) - Nbcnews
+- [Country Upstart Maddox Batson Gets Compared to Bieber, But He Really Loves George Strait](http://www.rollingstone.com/music/music-features/maddox-batson-countrys-justin-bieber-interview-1235547502/) - Rolling Stone
+- [YOASOBI Announce “Never Ending Stories” North American Tour](https://consequence.net/2026/04/yoasobi-never-ending-stories-north-american-tour/) - Consequence.net
+- [Yoasobi announces ‘Never Ending Stories Tour,’ Barclays show. Get tickets - New York Post](https://nypost.com/2026/04/15/ticket-sales/yoasobi-never-ending-stories-tour-2026-where-to-buy-tickets/) - Nypost
+- [NOSTALGIA Music Label alături de Edward Maya, Alexandra Stan și Soundfeed organizează „Popcorn Music Camp”: O inițiativă pentru relansarea globală a sunetului românesc](https://adevarul.ro/showbiz/muzica/nostalgia-music-label-alaturi-de-edward-maya-2522901.html) - Adevarul.ro
+- [Dave Mustaine Shares How He Influenced Every ‘Big 4’ Thrash Band](https://loudwire.com/dave-mustaine-influenced-every-big-4-thrash-band/) - Loudwire
+- [Who Are the 'Big 4' Bands of Heavy Metal?](https://ultimateclassicrock.com/big-4-heavy-metal/) - Ultimate Classic Rock
+- [Tune in to a mini-concert with Tedeschi Trucks Band](https://www.npr.org/sections/world-cafe/2026/04/15/nx-s1-5786524/tedeschi-trucks-band-mini-concert) - NPR
+- [Silvana Estrada: ‘Bad Bunny is my hero, but Latin America is a continent’](https://www.dazeddigital.com/music/article/70096/1/silvana-estrada-bad-bunny-is-my-hero-but-latin-america-is-a-continent?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=silvana-estrada-bad-bunny-is-my-hero-but-latin-america-is-a-continent) - Dazed
+- [WU LYF Returns From 15 Year Slumber to Make Us Feel Again](https://www.spinmagazine.com/2026/04/wu-lyf-album-review/) - Spinmagazine.com
+- [WU LYF on Their Comeback & Innovative Membership Model - Billboard](https://www.billboard.com/music/features/wu-lyf-comeback-new-album-membership-model-1236218668/) - Billboard
+- [Streaming platforms give us access to new music, so why are fewer people listening to it?](https://theconversation.com/streaming-platforms-give-us-access-to-new-music-so-why-are-fewer-people-listening-to-it-278088) - The Conversation Africa
+- [Al Medimex a Taranto mostra sui Ramones e mapping sul Castello Aragonese](https://www.ansa.it/sito/notizie/cultura/musica/2026/04/15/al-medimex-a-taranto-mostra-sui-ramones-e-mapping-sul-castello-aragonese_639faadc-a19c-4d5c-97b0-8cf3b5ac2e19.html) - ANSA.it
