@@ -1,0 +1,33 @@
+# Sources for 2026-04-17 News Episode 
+- [Massive Attack and Tom Waits Release New Single “Boots on the Ground”: Stream](https://consequence.net/2026/04/massive-attack-and-tom-waits-release-new-single-boots-on-the-ground-stream/) - Consequence.net
+- [Tom Waits’ First New Music in 15 Years Is a Chilling, Macabre Protest Song](http://www.rollingstone.com/music/music-news/tom-waits-massive-attack-boots-on-the-ground-new-song-1235548122/) - Rolling Stone
+- [Massive Attack return with first new music in six years, ‘Boots on The Ground’: Listen](https://djmag.com/news/massive-attack-return-first-new-music-six-years-boots-ground-listen) - DJ Mag
+- [Massive Attack and Tom Waits just released the most powerful protest song in years](https://www.the-independent.com/arts-entertainment/music/news/massive-attack-tom-waits-boots-on-the-ground-lyrics-b2958099.html) - The-independent.com
+- [Massive Attack’s First Song in Six Years Features Tom Waits](https://pitchfork.com/news/massive-attacks-first-song-in-six-years-features-tom-waits/) - Pitchfork
+- [Massive Attack and Tom Waits team up on new track](https://www.rte.ie/entertainment/2026/0416/1568535-massive-attack-and-tom-waits-team-up-on-new-track/) - RTE
+- [Massive Attack, Tom Waits Unite On New Single](https://www.spinmagazine.com/2026/04/massive-attack-tom-waits-single/) - Spinmagazine.com
+- [Suga: ‘I’m a Good Fit for This Job’](http://www.rollingstone.com/music/music-features/suga-bts-interview-arirang-hip-hop-1235544824/) - Rolling Stone
+- [Suga: ‘I’m a Good Fit for This Job’ - Rolling Stone](https://www.rollingstone.com/music/music-features/suga-bts-interview-arirang-hip-hop-1235544824/) - Rollingstone
+- [SUGA Says BTS Staying Together Feels ‘Obvious’ to the Members: ‘We Can Keep Going in Our 70s & 80s’ - Billboard](https://www.billboard.com/music/music-news/bts-suga-group-will-always-stay-together-1236224224/) - Billboard
+- [10 Surprising Revelations From Becoming Led Zeppelin Documentary](https://screenrant.com/becoming-led-zeppelin-documentary-revelations/) - Screen Rant
+- [Laufey is the headline artist for season 14 of Fortnite Festival](http://musically.com/2026/04/16/laufey-is-the-headline-artist-for-season-14-of-fortnite-festival/) - Music Ally
+- [Fortnite Festival Adds Karaoke Vocals and Jazz Pop Star Laufey - IGN](https://www.ign.com/articles/fortnite-adds-karaoke-mode-and-laufey) - Ign
+- [Fortnite Adds Karaoke Mode, and Laufey - IGN Southeast Asia](https://sea.ign.com/news/241396/fortnite-adds-karaoke-mode-and-laufey) - Ign
+- [Stormzy’s Glastonbury stab-proof vest goes on display in landmark exhibition of Black British music](https://djmag.com/news/stormzys-glastonbury-stab-proof-vest-goes-display-landmark-exhibition-of-black-british-music) - DJ Mag
+- [‘A fresh look at contemporary culture’: Gus Casely-Hayford, director of V&A East, takes us inside the new London museum - The Art Newspaper](https://www.theartnewspaper.com/2026/04/15/a-fresh-look-at-contemporary-culture-gus-casely-hayford-director-of-va-east-takes-us-inside-the-new-london-museum) - Theartnewspaper
+- [DevilDriver Announce New Album and Tour, Unleash “Dig Your Own Grave”: Stream](https://consequence.net/2026/04/devildriver-tour-album-single-dig-your-own-grave/) - Consequence.net
+- [Billy Corgan Declares He’ll Never Use AI to Make Music: “It’s a Deal with the Devil”](https://consequence.net/2026/04/billy-corgan-never-use-ai-make-music/) - Consequence.net
+- [Boards of Canada Release First New Song in 13 Years: Stream](https://consequence.net/2026/04/boards-of-canada-tape-05-new-song/) - Consequence.net
+- [Boards of Canada Return With First New Music in 13 Years - Pitchfork](https://pitchfork.com/news/boards-of-canada-return-with-first-new-music-in-13-years/) - Pitchfork
+- [Mysterious VHS Tapes May Herald the Release of a New Boards of Canada Project - Gizmodo](https://gizmodo.com/mysterious-vhs-tapes-may-herald-the-release-of-a-new-boards-of-canada-project-2000743529) - Gizmodo
+- [Warp Records’ Cryptic Poster Run Hints at Boards of Canada Return - Billboard](https://www.billboard.com/music/music-news/warp-records-cryptic-poster-boards-of-canada-1236224138/) - Billboard
+- [A deep dive into the fan-led SOPHIE archive project](https://www.dazeddigital.com/music/article/70100/1/deep-dive-into-fan-led-sophie-archive-preservation-project-whole-new-world?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=a-deep-dive-into-the-fan-led-sophie-archive-project) - Dazed
+- [Karol G Spent 3 Times Her Coachella Pay on Her 2026 Headlining Set](https://www.justjared.com/2026/04/16/karol-g-coachella-2026-pay-vs-production-costs/) - Just Jared
+- [Spotify Partners With Local Music Venues](https://www.musicbusinessworldwide.com/spotify-strikes-year-long-deal-with-national-independent-venue-association-to-boost-indie-venues-in-the-us/) - Music Business Worldwide
+- [Spotify and NIVA Partner to Support Independent Music Venues - Variety](https://variety.com/2026/music/news/spotify-niva-partner-independent-music-venues-1236722101/) - Variety
+- [Spotify Boosts Visibility for Indie Venues On-Platform With New NIVA Partnership - Billboard](https://www.billboard.com/pro/spotify-boosts-independent-venues-visibility-platform/) - Billboard
+- [Spotify launches push to back L.A.’s independent music venues - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-04-15/spotify-niva-back-las-independent-music-venues) - Latimes
+- [Spotify Champions Live Music With Independent Music Venue Deal - CNET](https://www.cnet.com/culture/entertainment/spotify-niva-live-independent-music-venue-partnership/) - Cnet
+- [Dayoung on the Reality of Being a K-pop Soloist: 'Everything Comes Down to You'](https://www.teenvogue.com/story/dayoung-k-pop-soloist-everything-comes-down-to-you-interview) - Teen Vogue
+- [Applications open for 2026 edition of IPRS’ Soundscapes of India](http://musically.com/2026/04/16/applications-open-for-2026-edition-of-iprs-soundscapes-of-india/) - Music Ally
+- [Cock Sparrer Are U.K. Punk Legends. Are They Saying Goodbye?](http://www.rollingstone.com/music/music-features/cock-sparrer-punk-band-final-shows-interview-1235547705/) - Rolling Stone
