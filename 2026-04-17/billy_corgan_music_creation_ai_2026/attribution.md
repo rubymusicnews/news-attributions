@@ -1,4 +1,4 @@
-# Daily News Video Credits - 2026-04-17
+# Daily News Video Credits - 2026-04-17 
 Full media attributions for all assets used.
 
 | Type | Title / Description | Author | Source | License |
