@@ -1,0 +1,35 @@
+# Sources for 2026-04-18 News Episode 
+- [J-Hope: ‘This Is Why There Are Seven of Us’](http://www.rollingstone.com/music/music-features/j-hope-interview-arirang-solo-bts-1235544844/) - Rolling Stone
+- [BTS Is Back on Top: ‘We Have to Push It to the Edge’ - Rolling Stone](https://www.rollingstone.com/music/music-features/bts-reuniting-new-album-arirang-interview-1235544625/) - Rollingstone
+- [J-Hope: ‘This Is Why There Are Seven of Us’ - Rolling Stone](https://www.rollingstone.com/music/music-features/j-hope-interview-arirang-solo-bts-1235544844/) - Rollingstone
+- [BTS’ j-hope Explains What He Thinks His ‘Role’ Is in the Band: ‘It Just Comes Naturally’ - Billboard](https://www.billboard.com/music/music-news/bts-j-hope-explains-his-role-band-comes-naturally-1236225457/) - Billboard
+- [María Zardoya’s Not for Radio Drops Spring-Ready EP ‘Bloom’](http://www.rollingstone.com/music/music-news/maria-zardoya-not-for-radio-ep-bloom-1235549013/) - Rolling Stone
+- [Japanese fans gather to welcome BTS on world tour](https://japantoday.com/category/entertainment/japanese-fans-gather-to-welcome-bts-on-world-tour) - Japan Today
+- [Road Work: BTS Reunites for Arirang World Tour After Solo Endeavors - Billboard](https://www.billboard.com/lists/bts-world-tour-arirang-road-work/) - Billboard
+- [BTS’ Jin Reflects on Band’s First Concert of ARIRANG World Tour: ‘I Feel Like I’m Back Home’ - Billboard](https://www.billboard.com/music/music-news/bts-jin-reflects-arirang-tour-kickoff-show-1236218974/) - Billboard
+- [Big screens, bigger fandom: BTS brings ‘ARIRANG’ tour to AMC theaters - Reuters](https://www.reuters.com/business/media-telecom/big-screens-bigger-fandom-bts-brings-arirang-tour-amc-theaters-2026-04-11/) - Reuters
+- [Arirang: Is BTS losing its K-pop identity as it aims for a bigger world stage? - BBC](https://www.bbc.com/news/articles/cg73dnz0l1xo) - Bbc
+- [Celine Dion Drops 'Dansons,' First New Song in Years: Read Lyrics & English Translation!](https://www.justjared.com/2026/04/17/celine-dion-drops-dansons-first-new-song-in-years-read-lyrics-english-translation/) - Just Jared
+- [Céline Dances On](https://www.laineygossip.com/celine-dion-the-strongest-we-have-seen-and-heard-her-in-years-with-new-single-dansons/) - LaineyGossip
+- [Celine Dion Returns With Gorgeous French-Language Song ‘Dansons,’ Her First Single in 7 Years - Billboard](https://www.billboard.com/music/music-news/celine-dion-new-song-dansons-1236225169/) - Billboard
+- [Celine Dion Adds Six Dates To Paris Concert Season - Deadline](https://deadline.com/2026/04/celine-dion-six-dates-paris-concert-season-1236783336/) - Deadline
+- [Coachella Favorite PinkPantheress Is Shaping a New British Wave](https://www.vanityfair.com/culture/story/coachella-favorite-pinkpantheress) - Vanity Fair
+- [Tokischa Had to Go to Hell and Back to Make Her New Album](http://www.rollingstone.com/music/music-latin/tokischa-new-album-amor-and-droga-interview-1235548663/) - Rolling Stone
+- ['Konnakol' Album Stream: Zayn Malik Drops Fifth Solo Studio Album - Listen Now!](https://www.justjared.com/2026/04/17/konnakol-album-stream-zayn-malik-drops-fifth-solo-studio-album-listen-now/) - Just Jared
+- [Zayn Malik ‘Unexpectedly’ Hospitalized on the Day He Drops New Album](http://www.vulture.com/article/zayn-malik-hospitalized.html) - Vulture
+- [Zayn Kicks Back With ‘Konnakol’: Stream It Now - Billboard](https://www.billboard.com/music/pop/zayn-konnakol-stream-it-now-1236224963/) - Billboard
+- [BABYMETAL Premiere Major Lazer's Remix Of "From Me To U" With Poppy](http://www.metalunderground.com/news/details.cfm?newsid=161218) - Metalunderground.com
+- [iTunes Gamed Again with Another AI Singer at Number 1!](https://www.showbiz411.com/2026/04/16/exclusive-itunes-gamed-again-with-another-ai-singer-at-number-1-ingarose-follows-eddie-dalton-as-fake-hit-performer) - Showbiz411
+- [New Singer Dominating iTunes Chart Is AI-Generated - Newsweek](https://www.newsweek.com/new-singer-dominating-itunes-chart-is-ai-generated-11791886) - Newsweek
+- [The Music Industry Crosses an AI Tipping Point - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/the-music-industry-crosses-its-ai-tipping-point-1236556447/) - Hollywoodreporter
+- [AI Generated Song ‘Celebrate Me’ Storms Global Music Charts - Forbes](https://www.forbes.com/sites/conormurray/2026/04/17/the-no-1-song-on-us-itunes-and-several-other-countries-is-ai-generated/) - Forbes
+- ['Drop Dead' Lyrics: Olivia Rodrigo Drops New Song, Talks Who It's About in Interview](https://www.justjared.com/2026/04/17/drop-dead-lyrics-olivia-rodrigo-drops-new-song-talks-who-its-about-in-interview/) - Just Jared
+- [Olivia Rodrigo Plays to Her Strengths](http://www.vulture.com/article/review-olivia-rodrigo-drop-dead.html) - Vulture
+- [When Did Olivia Rodrigo & Louis Partridge Break Up? All About What Happened to the Former Couple](https://www.justjared.com/2026/04/17/when-did-olivia-rodrigo-louis-partridge-break-up-all-about-what-happened-to-the-former-couple/) - Just Jared
+- [Olivia Rodrigo to Release New Single, ‘Drop Dead,’ on April 17 - Variety](https://variety.com/2026/music/news/olivia-rodrigo-new-single-drop-dead-release-1236710540/) - Variety
+- [Olivia Rodrigo Reveals When New Single ‘Drop Dead’ Will Arrive - billboard.com](https://www.billboard.com/music/music-news/olivia-rodrigo-new-song-drop-dead-release-date-1236216988/) - Billboard
+- [Olivia Rodrigo: Drop Dead review – a maximalist rush of infatuation that’s just a bauble short of festive - The Guardian](https://www.theguardian.com/music/2026/apr/17/olivia-rodrigo-drop-dead-review-single) - Theguardian
+- [Gwenifer Raymond signs to Fat Possum, shares NPR Tiny Desk concert](https://www.thelineofbestfit.com/news/gwenifer-raymond-signs-to-fat-possum-shares-npr-tiny-desk-concert) - Thelineofbestfit.com
+- [Skindred Debuts New Music Video "My People"; New Album "You Got This" Out Today](http://www.metalunderground.com/news/details.cfm?newsid=161230) - Metalunderground.com
+- [Read a track-by-track breakdown for Knifetwister Records' new benefit comp, 'Not In Our City 2'!](https://www.punknews.org/article/88037/read-a-track-by-track-breakdown-for-knifetwister-records-new-benefit-comp-not-in-our-city-2) - Punknews.org
+- [Electric Callboy Premiere New Single & Music Video "Hypercharged" From Upcoming New Album "TANZNEID"](http://www.metalunderground.com/news/details.cfm?newsid=161216) - Metalunderground.com
