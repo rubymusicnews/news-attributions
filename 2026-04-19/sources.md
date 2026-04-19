@@ -1,0 +1,25 @@
+# Sources for 2026-04-19 News Episode 
+- [Jimin on Solo Stardom and Gaining Confidence: ‘I Wasn’t Afraid to Ask Questions’](http://www.rollingstone.com/music/music-features/jimin-bts-interview-they-dont-know-bout-us-1235544860/) - Rolling Stone
+- [BTS Is Back on Top: ‘We Have to Push It to the Edge’ - Rolling Stone](https://www.rollingstone.com/music/music-features/bts-reuniting-new-album-arirang-interview-1235544625/) - Rollingstone
+- [Anyma Plays Striking Coachella 2026 Set With Special Guest LISA & More](http://www.billboard.com/music/music-news/anyma-coachella-weekend-two-performance-recap-lisa-joji-1236226209/) - Billboard
+- [Madonna Joins Sabrina Carpenter at Coachella 2026](http://www.billboard.com/music/concerts/madonna-sabrina-carpenter-coachella-2026-1236226082/) - Billboard
+- [Madonna Joined Sabrina Carpenter’s Set at Coachella Weekend Two and Debuted a Brand New Song](https://www.cosmopolitan.com/entertainment/music/a71060103/madonna-sabrina-carpenter-coachella-weekend-two-new-song/) - Cosmopolitan.com
+- [Coachella 2026: Sabrina Carpenter Brings Out Geena Davis, Terry Crews and Madonna as Surprise Guests](https://www.thewrap.com/creative-content/music/coachella-2026-sabrina-carpenter-geena-davis-mid-set-monologue/) - TheWrap
+- [Madonna Confessions II collaboration with Ringo? #entertainment](https://alltoc.com/entertainment/madonna-confessions-ii-collaboration-with-ringo) - Alltoc.com
+- [‘We Need Age Limit For Performers’: Internet Slam Madonna After She Joined Sabrina Carpenter At Coachella](https://www.boredpanda.com/internet-slam-madonna-after-she-joined-sabrina-carpenter-at-coachella/) - Boredpanda.com
+- [Billboard - April 17, 2026](https://post.rlsbb.to/billboard-april-17-2026/) - Rlsbb.to
+- [Music lyric of the day by The Beatles' Paul McCartney: 'And when the broken-hearted people living in the world agree. There will be an answer, let it be...' - A lesson to let go of memories and move forward in life by the English rock band](https://economictimes.indiatimes.com/magazines/panache/music-lyric-of-the-day-by-the-beatles-paul-mccartney-and-when-the-broken-hearted-people-living-in-the-world-agree-there-will-be-an-answer-let-it-be-a-lesson-to-let-go-of-memories-and-move-forward-in-life-by-the-english-rock-band/articleshow/130355352.cms) - The Times of India
+- [Scorpions Cancel India Tour Over Health Issues, Disappoint Fans Across Cities - Headline8](https://www.headline8.news/entertainment/scorpions-cancel-india-tour-over-health-issues-disappoint-fans-across-cities-32710/) - Headline8.news
+- [Shillong Concert of Scorpions’ ‘Coming Home 2026’ Tour Likely Cancelled Over Singer’s Health - Batesi TV](https://batesitv.com/shillong-concert-of-scorpions-coming-home-2026-tour-likely-cancelled-over-singers-health/) - Batesitv.com
+- [‘Murder She Wrote’: The Story Behind Chaka Demus & Pliers’ Anthem](https://freerepublic.com/focus/f-chat/4375360/posts) - Freerepublic.com
+- [Lil Wayne Addresses Not Being Invited to Coachella, Grammy Awards](http://www.billboard.com/music/music-news/lil-wayne-not-invited-coachella-grammys-humbling-experience-1236226240/) - Billboard
+- [Lil Wayne Calls It a ‘Humbling Experience’ Not Being Invited to Coachella or Grammy Awards - Billboard](https://www.billboard.com/music/music-news/lil-wayne-not-invited-coachella-grammys-humbling-experience-1236226240/) - Billboard
+- [Lil Wayne Complains About The Grammys And Coachella Ignoring Him - hotnewhiphop.com](https://www.hotnewhiphop.com/990371-lil-wayne-complains-grammys-coachella-ignoring-him) - Hotnewhiphop
+- [6LACK Shares New Single 'Sunday Again' Featuring 2 Chainz](http://www.billboard.com/music/rb-hip-hop/6lack-new-single-sunday-again-featuring-2-chainz-1236226092/) - Billboard
+- [Pedro Pascal Didn't Know He'd Be in Bad Bunny's Super Bowl Show](http://www.hollywoodreporter.com/music/music-news/pedro-pascal-bad-bunny-super-bowl-halftime-1236568407/) - Hollywood Reporter
+- [Pedro Pascal On Why He Looked Like “Deer In The Headlights” During Bad Bunny’s Super Bowl Halftime](http://deadline.com/2026/04/pedro-pascal-deer-headlights-bad-bunny-super-bowl-halftime-1236864828/) - Deadline
+- [Pedro Pascal Didn't Know He'd Be in Bad Bunny's Super Bowl Show - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/pedro-pascal-bad-bunny-super-bowl-halftime-1236568407/) - Hollywoodreporter
+- [Vanderlust Shares New Music Video "Viral Escape"; New Album "The Human Farm" Out Today](http://www.metalunderground.com/news/details.cfm?newsid=161234) - Metalunderground.com
+- [TOMORA baffle and mystify on Come Closer](https://www.thelineofbestfit.com/albums/tomora-come-closer-baffle-and-mystify) - Thelineofbestfit.com
+- [Acadian family band goes viral for sharing traditional music](https://www.cbc.ca/news/canada/new-brunswick/acadian-celtic-music-la-famille-leblanc-9.7169380) - CBC News
+- [The 11 best UK music festivals for summer 2026](https://www.the-independent.com/arts-entertainment/music/features/best-music-festivals-uk-2026-lineups-tickets-b2959934.html) - The-independent.com
