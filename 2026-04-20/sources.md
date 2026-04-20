@@ -1,0 +1,42 @@
+# Sources for 2026-04-20 News Episode 
+- [BTS’s “ARIRANG” Makes Billboard 200 History As 1st Album By Korean Artist To Spend 4 Weeks In Top 3](http://www.soompi.com/article/1834365wpp/btss-arirang-makes-billboard-200-history-as-1st-album-by-korean-artist-to-spend-4-weeks-in-top-3) - soompi
+- [BTS’ ‘ARIRANG’ Scores Third Week at No. 1 on Billboard 200 - billboard.com](https://www.billboard.com/music/chart-beat/bts-arirang-third-week-number-one-billboard-200-chart-1236221190/) - Billboard
+- [BTS’ ‘Arirang’ Spends Third Week at No. 1 on Billboard 200 Album Chart - Variety](https://variety.com/2026/music/news/bts-arirang-third-week-billboard-200-album-chart-streak-1236719893/) - Variety
+- [V: ‘I Gave My All to Create This Album’](http://www.rollingstone.com/music/music-features/v-interview-bts-solo-album-1235544831/) - Rolling Stone
+- [BTS Is Back on Top: ‘We Have to Push It to the Edge’ - Rolling Stone](https://www.rollingstone.com/music/music-features/bts-reuniting-new-album-arirang-interview-1235544625/) - Rollingstone
+- [Billie Eilish and SZA Join Justin Bieber for Coachella Headlining Set](http://www.hollywoodreporter.com/music/music-news/justin-bieber-special-guests-billie-eilish-sza-coachella-1236568696/) - Hollywood Reporter
+- [Justin Bieber Duets With SZA, Brings Out Billie Eilish For “One Less Lonely Girl” Serenade During Coachella Weekend 2 Set](http://deadline.com/2026/04/justin-bieber-coachella-weekend-2-sza-billie-eilish-guests-1236865245/) - Deadline
+- [Billie Eilish Beliebed Her Heart Out at Coachella](http://www.vulture.com/article/justin-bieber-billie-eilish-coachella-2026.html) - Vulture
+- [Justin Bieber's Coachella Weekend 2 Set List: Singer Brings Out Billie Eilish, Big Sean, SZA & More!](https://www.justjared.com/2026/04/19/justin-biebers-coachella-weekend-2-set-list-singer-brings-out-billie-eilish-big-sean-sza-more/) - Just Jared
+- [Justin Bieber Turns Coachella 2026 Into $5M Merch Empire With Skylrk Record Sales](https://www.ibtimes.com.au/justin-bieber-turns-coachella-2026-5m-merch-empire-skylrk-record-sales-1866998) - Ibtimes.com.au
+- [TAEMIN Talks Coachella Debut, Second-Generation K-pop](http://www.billboard.com/music/pop/taemin-coachella-debut-interview-1236226096/) - Billboard
+- [TAEMIN Is Ready For The Next ‘First’ After COACHELLA - Forbes](https://www.forbes.com/sites/laurasirikul/2026/04/16/taemin-is-ready-for-the-next-first-after-coachella/) - Forbes
+- [Taemin Is Ready to Make an Even Bigger Impact During Coachella Weekend Two - WWD](https://wwd.com/eye/people/taemin-coachella-1238917638/) - Wwd
+- [Taemin Dazzles At Coachella Debut, Premieres 6 New Songs: Full Setlist - Forbes](https://www.forbes.com/sites/jeffbenjamin/2026/04/12/taemin-dazzles-at-coachella-debut-premieres-6-new-songs-full-setlist/) - Forbes
+- [Behold Dr. Dre, Flavor Flav, Springsteen, and Patti Smith Performing “People Have the Power” Together](https://consequence.net/2026/04/dr-dre-springsteen-patti-smith-people-have-the-power/) - Consequence.net
+- [Bruce Springsteen Joins John Densmore for Performance of The Doors’ “Light My Fire”](https://consequence.net/2026/04/bruce-springsteen-john-densmore-the-doors-light-my-fire/) - Consequence.net
+- [Kacey Musgraves Takes Coachella to the ‘Middle of Nowhere’ with First Set in Seven Years](http://www.rollingstone.com/music/music-country/kacey-musgraves-coachella-middle-of-nowhere-live-debuts-1235549759/) - Rolling Stone
+- [Olivia Rodrigo Debuts 'Drop Dead' Live at Addison Rae's Coachella Set](http://www.hollywoodreporter.com/music/music-news/olivia-rodrigo-addison-rae-coachella-drop-dead-live-debut-1236568623/) - Hollywood Reporter
+- [Kacey Musgraves Added To Coachella Festival’s Second Weekend - Billboard](https://www.billboard.com/music/country/kacey-musgraves-added-2026-coachella-festival-2nd-weekend-1236223296/) - Billboard
+- [Animals become Stewart Copeland's bandmates in "Wild Concerto" album](https://www.cbsnews.com/news/transforming-animal-recordings-into-music-60-minutes/) - CBS News
+- [Stewart Copeland album fuses music with sounds of hyenas, monkeys, owls](https://www.cbsnews.com/news/stewart-copeland-album-wild-concerto-fuses-music-animal-sounds-60-minutes-transcript/) - CBS News
+- [Song lyric of the day by Pink Floyd: 'We're just two lost souls swimming in a fishbowl, year after year. Running over the same old ground, what have we found? The same old fears...'](https://economictimes.indiatimes.com/magazines/panache/song-lyric-of-the-day-by-pink-floyd-were-just-two-lost-souls-swimming-in-a-fishbowl-year-after-year-running-over-the-same-old-ground-what-have-we-found-the-same-old-fears-/articleshow/130373146.cms) - The Times of India
+- [Ella Langley’s ‘Dandelion’ Debuts at No. 1 on Album Chart, Following a Six-Week Run by ‘Choosin’ Texas’ Atop the Hot 100](https://variety.com/2026/music/news/ella-langley-album-chart-dandelion-billboard-number-one-1236725568/) - Variety
+- [Ella Langley's 'Dandelion' Debuts at No. 1 on Billboard 200 Chart](http://www.billboard.com/music/chart-beat/ella-langley-dandelion-number-one-billboard-200-chart-1236226543/) - Billboard
+- [Ella Langley: 'Choosin' Texas,' Women in Music, 'SNL' Dreams & More - Billboard](https://www.billboard.com/music/awards/ella-langley-women-in-music-2026-powerhouse-1236222728/) - Billboard
+- [Ella Langley: Photos From the Billboard Women in Music Shoot - Billboard](https://www.billboard.com/photos/ella-langley-photos-billboard-shoot-1236222522/) - Billboard
+- [Ella Langley: Chilling All the Way to the Top of the Charts - Rolling Stone](https://www.rollingstone.com/music/music-features/ella-langley-choosin-texas-interview-1235536275/) - Rollingstone
+- [Indigo Girls Receive Outpouring of Love After Emily Saliers Tearfully Acknowledges Two Incurable Conditions That Will Affect Vocals on Tour](https://variety.com/2026/music/news/indigo-girls-emily-saliers-reveals-conditions-vocals-tour-1236725518/) - Variety
+- [Indigo Girls' Emily Saliers on Medical Conditions Affecting Voice - Billboard](https://www.billboard.com/music/music-news/indigo-girls-emily-voice-cervical-dystonia-essential-tremor-1236226603/) - Billboard
+- [The Strokes End Coachella Weekend Set With Fiery Political Video](https://loudwire.com/the-strokes-coachella-fiery-political-video-us-government/) - Loudwire
+- [The Strokes Close Coachella Set with Video Denouncing U.S. Foreign Intervention - Pitchfork](https://pitchfork.com/news/the-strokes-close-coachella-set-with-video-denouncing-us-foreign-intervention/) - Pitchfork
+- [Coachella stars The Strokes is blasted for shocking political video during performance: ‘Holy s–t’ - New York Post](https://nypost.com/2026/04/19/entertainment/coachella-act-the-strokes-blasted-for-shocking-political-performance/) - Nypost
+- [The Strokes End Coachella Set with Video Targeting CIA, US Actions in Gaza and Iran - Consequence of Sound](https://consequence.net/2026/04/the-strokes-coachella-political-statement/) - Consequence
+- [The Zombies – Begin Here (Mono Remastered) (2026)](https://exystence.net/blog/2026/04/19/the-zombies-begin-here-mono-remastered-2026/) - Exystence.net
+- [Legendary record producer Clive Davis on the unique deal he gave Whitney Houston](https://nypost.com/2026/04/19/opinion/legendary-record-producer-clive-davis-on-the-unique-deal-he-gave-whitney-houston/) - New York Post
+- [This Is What a Music Industry ‘Plant’ Looks Like in 2026 - Gizmodo](https://gizmodo.com/this-is-what-a-music-industry-plant-looks-like-in-2026-2000746265) - Gizmodo
+- [Branded pop-up events take center stage at Coachella](https://japantoday.com/category/entertainment/branded-pop-up-events-take-center-stage-at-coachella) - Japan Today
+- [Coachella’s Big Brand Renaissance - Vogue](https://www.vogue.com/article/coachellas-big-brand-renaissance) - Vogue
+- [Who's Winning the Coachella Creator Wars? - WWD](https://wwd.com/pop-culture/culture-news/coachella-2026-brand-creator-strategy-1238896310/) - Wwd
+- [Coachella looks like fun and glamour for influencers. Behind the scenes, they fiercely strategize - Los Angeles Times](https://www.latimes.com/business/story/2026-04-12/coachella-looks-like-fun-glamour-for-influencers-behind-scenes-they-fiercely-strategize) - Latimes
+- [ABSOLUT BRINGS THE SPICE TO COACHELLA – Company Announcement - Financial Times](https://markets.ft.com/data/announce/detail?dockey=600-202604081000PR_NEWS_USPRX____NY28808-1) - Ft
