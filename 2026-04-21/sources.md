@@ -1,0 +1,18 @@
+# Sources for 2026-04-21 News Episode 
+- [Faouzia Plots 'FILM NOIR' International Tour](https://exclaim.ca/music/article/faouzia-plots-film-noir-international-tour) - Exclaim!
+- [Soompi’s K-Pop Music Chart 2026, April Week 4](http://www.soompi.com/article/1834208wpp/soompis-k-pop-music-chart-2026-april-week-4) - soompi
+- [Kyle Dixon and Michael Stein extend Stranger Things 2026 European tour with immersive light show](https://www.thelineofbestfit.com/news/kyle-dixon-and-michael-stein-extend-stranger-things-2026-european-tour-with-immersive-light-show) - Thelineofbestfit.com
+- ['The One That Got Away' Lyrics: Katy Perry Announces Director's Cut With Stevie Nicks](https://www.justjared.com/2026/04/20/the-one-that-got-away-lyrics-katy-perry-stevie-nicks-directors-cut/) - Just Jared
+- [Adéla’s Pop Song About the KGB? It’s Deeper Than You Think](https://www.vanityfair.com/style/story/adela-kgb-interview) - Vanity Fair
+- [2026 ACM Awards Nominations: Will the Voters Ever Get It Right?](http://www.rollingstone.com/music/music-features/2026-acm-awards-nominations-snubs-hot-takes-questions-1235546167/) - Rolling Stone
+- [MOMO. shares vibrant new single “Egum Eô” ahead of upcoming album ‘Tum Tum Tum’](https://earmilk.com/2026/04/20/momo-shares-vibrant-new-single-egum-eo-ahead-of-upcoming-album-tum-tum-tum/) - Earmilk.com
+- [Daft Punk’s Thomas Bangalter to Co-Headline ‘Immersive Experience’ at Art Basel](https://www.artnews.com/art-news/news/daft-punk-thomas-bangalter-art-basel-1234781941/) - ARTnews
+- [Ethel Cain’s Coachella stage was a ‘graveyard of American industry’](https://www.dazeddigital.com/music/article/70111/1/ethel-cains-coachella-stage-graveyard-of-american-industry-oli-colman?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=ethel-cain-s-coachella-stage-was-a-graveyard-of-american-industry) - Dazed
+- [The Action-Film Director Who’s Taking On Michael Jackson](https://www.newyorker.com/magazine/2026/04/27/antoine-fuqua-profile) - The New Yorker
+- ['Michael' Director Antoine Fuqua Defends Michael Jackson Allegations - Variety](https://variety.com/2026/film/news/michael-director-antoine-fuqua-michael-jackson-alllegations-1236725933/) - Variety
+- [Grimes Says She Made An Album Called Psy Opera](https://pitchfork.com/news/grimes-says-she-made-an-album-called-psy-opera/) - Pitchfork
+- [Inevitably, Grimes's New Album is Called 'Psy Opera'](https://exclaim.ca/music/article/inevitably-grimes-s-new-album-is-called-psy-opera) - Exclaim!
+- [Ceremony Return With “Other Hells,” First New Song in Four Years: Stream](https://consequence.net/2026/04/ceremony-other-hells/) - Consequence.net
+- [Beck Is ‘Lonesome’ Once More On New Single](https://www.spinmagazine.com/2026/04/beck-new-single/) - Spinmagazine.com
+- [Interview: Beck returns, rides lonesome on new song - NPR](https://www.npr.org/2026/04/20/nx-s1-5790485/beck-interview-ride-lonesome) - Npr
+- [Mezcal explores power and control in new single "War Machine"](https://earmilk.com/2026/04/20/mezcal-explores-power-and-control-in-new-single-war-machine/) - Earmilk.com
