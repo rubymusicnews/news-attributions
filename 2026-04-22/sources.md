@@ -1,0 +1,30 @@
+# Sources for 2026-04-22 News Episode 
+- [Drake Confirms Iceman Release Date](https://pitchfork.com/news/drake-confirms-iceman-release-date/) - Pitchfork
+- [Drake teases album release, prompts crowd chaos with massive ice blocks in downtown Toronto](https://www.cbc.ca/news/canada/toronto/iceman-release-date-drake-ice-pile-9.7171479) - CBC News
+- [How Long Until Drake’s Iceman Sculpture Melts? A Quantum Physicist Weighs In](https://pitchfork.com/news/how-long-until-drakes-iceman-sculpture-melts-a-quantum-physicist-weighs-in/) - Pitchfork
+- [There Are Wild Videos Of Drake Fans Lighting Fires On His Viral Ice Sculpture As Toronto Police Get Involved](https://www.cinemablend.com/television/wild-videos-drake-fans-lighting-fires-viral-ice-sculpture-toronto-police-get-involved) - CinemaBlend
+- [Drake's Iceman Rollout: Why the Toronto Ice Stunt Is a Landmark Moment in Music Marketing - ProCapitas](https://www.procapitas.com/news/entertainment/drakes-iceman-album-rollout-toronto-ice-stunt-music-marketing-may-2026) - Procapitas
+- [Drake Announces ‘Iceman’ Album Release Date - Variety Australia](https://au.variety.com/2026/music/news/drake-iceman-album-release-date-35758/) - Variety
+- [Drake Announces ‘Iceman’ Album Release Date - Variety](https://variety.com/2026/music/news/drake-iceman-album-release-date-1236632841/) - Variety
+- [Blackpink Star Lisa Returns With Another Bestseller Without Her Band](https://www.forbes.com/sites/hughmcintyre/2026/04/21/blackpink-star-lisa-returns-with-another-bestseller-without-her-band/) - Forbes
+- [Swapmeet’s Big, Beautiful Indie Noise](http://www.rollingstone.com/music/music-features/swapmeet-australia-indie-band-interview-1235547652/) - Rolling Stone
+- [BTS To Use Amazon Music’s ‘Just Walk Out Tech’ For North American Tour](https://www.forbes.com/sites/laurasirikul/2026/04/21/bts-to-use-amazon-musics-just-walk-out-tech-for-north-american-tour/) - Forbes
+- [Foo Fighters interview: 'We're a different band without Taylor Hawkins'](https://www.bbc.com/news/articles/c0krl571l67o) - BBC News
+- [Music Review: Foo Fighters’ ‘Your Favorite Toy’ is a high-energy return that takes some risks - AP News](https://apnews.com/article/foo-fighters-dave-grohl-music-review-73f0af2c42d376703ca5bd158d386ee5) - Apnews
+- [Prince, déjà une décennie sans lui](https://www.lesinrocks.com/musique/prince-deja-une-decennie-sans-lui-694381-21-04-2026/) - Les Inrocks
+- [Mayte Garcia On Prince's Legacy, Live 4 Love Charities And The Glam Slam Benefit In Hollywood](https://www.forbes.com/sites/dominiquefluker/2026/04/21/mayte-garcia-on-princes-legacy-live-4-love-charities-and-the-glam-slam-benefit-in-hollywood/) - Forbes
+- [Prince, dieci anni fa la morte: quanto vale il suo patrimonio e chi lo controlla](https://www.ilsole24ore.com/art/prince-dieci-anni-fa-morte-quanto-vale-suo-patrimonio-e-chi-controlla-AIlBcWYC) - Il Sole 24 Ore
+- [Prince a dieci anni dalla morte rimane un eroe dal talento unico. Si prese a sputi con Sinead O’ Connor, a Madonna e Springsteen vietò l’uso del suo bagno](https://www.ilfattoquotidiano.it/2026/04/21/prince-a-dieci-anni-dalla-morte-rimane-un-eroe-dal-talento-unico-si-prese-a-sputi-con-sinead-o-connor-a-madonna-e-springsteen-vieto-luso-del-suo-bagno/8362311/) - Ilfattoquotidiano.it
+- [KATSEYE To Perform At 2026 American Music Awards](http://www.soompi.com/article/1834932wpp/katseye-to-perform-at-2026-american-music-awards) - soompi
+- [Here Are All The K-Pop Artists Nominated For The 2026 American Music Awards - Soompi](https://www.soompi.com/article/1833088wpp/here-are-all-the-k-pop-artists-nominated-for-the-2026-american-music-awards) - Soompi
+- [David Byrne Adds New 2026 Tour Dates](https://consequence.net/2026/04/david-byrne-summer-2026-tour-dates/) - Consequence.net
+- [David Byrne extends ‘Who Is The Sky Tour,’ adds Forest Hills show. Get tickets - New York Post](https://nypost.com/2026/04/21/ticket-sales/david-byrne-who-is-the-sky-tour-2026-extended-where-to-buy-tickets/) - Nypost
+- [Failure Announce Fall Tour, Unveil Single “The Rising Skyline” Featuring Hayley Williams: Stream](https://consequence.net/2026/04/failure-fall-tour-single-the-rising-skyline-hayley-williams/) - Consequence.net
+- [On the Crazy 1963 Tour That Established the Rolling Stones’ Bad Boy Image](https://lithub.com/on-the-crazy-1963-tour-that-established-the-rolling-stones-bad-boy-image/) - Lithub.com
+- [Patti Smith, Morrissey Booked for CBGB Festival 2026](https://pitchfork.com/news/patti-smith-morrissey-booked-for-cbgb-festival-2026/) - Pitchfork
+- [CBGB Fest Reboots With Morrissey, Patti Smith](https://www.spinmagazine.com/2026/04/cbgb-festival-lineup/) - Spinmagazine.com
+- [Modest Mouse Announce New Album An Eraser and a Maze, Fall 2026 Tour Dates](https://consequence.net/2026/04/modest-mouse-new-album-an-eraser-and-a-maze-fall-tour-dates/) - Consequence.net
+- [Modest Mouse Announce New Album An Eraser and a Maze, Fall 2026 Tour Dates](https://consequence.net/2026/04/modest-mouse-new-album-an-eraser-and-a-maze-share-picking-dragons-pockets-tour-dates/) - Consequence.net
+- [Billy Idol Saw It Coming](https://consequence.net/2026/04/billy-idol-saw-it-coming-interview/) - Consequence.net
+- [Billy Idol Reacts to Rock Hall Induction News: ‘I Almost Can’t Put It Into Words’ - Billboard](https://www.billboard.com/music/awards/billy-idol-rock-hall-class-of-2026-interview-1236221997/) - Billboard
+- [Out of all Spotify's music discovery tools over 20 years, my loyalty still lies with this underrated feature — and it’s not Discover Weekly](https://www.techradar.com/audio/spotify/out-of-all-spotifys-music-discovery-tools-over-20-years-my-loyalty-still-lies-with-this-underrated-feature-and-its-not-discover-weekly) - TechRadar
