@@ -1,0 +1,29 @@
+# Sources for 2026-04-24 News Episode 
+- [Taylor Swift is Spotify's most-streamed artist ever](https://www.rte.ie/entertainment/2026/0423/1569776-taylor-swift-is-spotifys-most-streamed-artist-ever/) - RTE
+- [Happy 20th Birthday, Spotify. Here's the Platform's Most Streamed of All Time](https://www.cnet.com/culture/entertainment/spotify-20-years-most-streamed-all-time/) - CNET
+- [Spotify is celebrating its 20th anniversary, and so are we — these are 5 of the platform’s landmark moments and yes, one of them involves Taylor Swift](https://www.techradar.com/audio/spotify/spotify-is-celebrating-its-20th-anniversary-and-so-are-we-these-are-5-of-the-platforms-landmark-moments-and-yes-one-of-them-involves-taylor-swift) - TechRadar
+- [Spotify Lists All-Time Most-Streamed: Taylor Swift,Bad Bunny,Weeknd - Variety](https://variety.com/2026/music/news/spotify-lists-all-time-most-streamed-artists-albums-songs-taylor-swift-bad-bunny-weeknd-1236728433/) - Variety
+- [Taylor Swift Is Most-Streamed Artist Of All Time, Says Spotify; Bad Bunny, Drake Also Make Grade - Deadline](https://deadline.com/2026/04/spotify-lists-taylor-swift-bad-bunny-1236869463/) - Deadline
+- [Taylor Swift on top: Spotify reveals its most-streamed artists for the first time - ynetnews](https://www.ynetnews.com/culture/article/bjhxsrpaze) - Ynetnews
+- [Duran Duran Unveil New Single ‘Free To Love’ With Nile Rodgers](http://www.rollingstone.com/music/music-news/duran-duran-nile-rogers-new-song-free-to-love-1235552522/) - Rolling Stone
+- [Duran Duran Teases New Nile Rodgers Collaboration ‘Free to Love’ - Billboard](https://www.billboard.com/music/rock/duran-duran-teases-nile-rodgers-free-to-love-1236224125/) - Billboard
+- [Bandsintown inks its latest DSP deal – with Amazon Music](http://musically.com/2026/04/23/bandsintown-inks-its-latest-dsp-deal-with-amazon-music/) - Music Ally
+- [Amazon Music partners with Bandsintowns for concert listings - TechCrunch](https://techcrunch.com/2026/04/22/amazon-music-partners-with-bandsintowns-for-concert-listings/) - Techcrunch
+- [30-Year Copyright Case In EU Finally Settles](https://www.nme.com/news/music/kraftwerk-lose-one-of-musics-longest-running-copyright-cases-over-sample-on-metall-auf-metall-3941728) - NME
+- [Kraftwerk Loses Two-Decade-Long Copyright Dispute After Court Rules Unauthorized Sample Was a ‘Pastiche’ - Variety](https://variety.com/2026/music/news/kraftwerk-loses-two-decade-copyright-dispute-1236728133/) - Variety
+- [Tickets for Punjabi pop concerts are selling fast — especially in Canada](https://www.cbc.ca/news/canada/calgary/sidhu-dosanjh-aujila-punjabi-concert-9.7173592) - CBC News
+- [Naïka’s Eclesia And A Global Soul-Stitched Debut Of Becoming](https://www.forbes.com/sites/desjahaltvater/2026/04/23/nakas-eclesia-and-a-global-soul-stitched-debut-of-becoming/) - Forbes
+- [EXO’s ‘EXhOrizon In Seoul’ Is A Love Letter To Their Perseverance](https://www.forbes.com/sites/laurasirikul/2026/04/23/exos-exhorizon-in-seoul-is-a-love-letter-to-their-perseverance/) - Forbes
+- [The Rolling Stones Return To One Chart With Multiple Singles](https://www.forbes.com/sites/hughmcintyre/2026/04/23/the-rolling-stones-return-to-one-chart-with-multiple-singles/) - Forbes
+- [Live Nation Launches $30 Ticket Deal for 4,000+ Summer 2026 Concerts](https://consequence.net/2026/04/live-nation-launches-30-ticket-deal-for-4000-summer-2026-concerts/) - Consequence.net
+- [Live Nation Rolls Out $30 'All-In' Tickets For 4,000 Summer Shows: List - Billboard](https://www.billboard.com/music/concerts/live-nation-30-all-in-tickets-4000-summer-shows-list-1236229927/) - Billboard
+- [Live Nation offering $30 concert tickets – here’s the list - FOX 8 News](https://fox8.com/news/live-nation-offering-30-concert-tickets-heres-the-list/) - Fox8
+- [I've been a Spotify subscriber for 17 years — here are the top 5 plug-ins I recommend for the music streamer](https://www.techradar.com/audio/spotify/ive-been-a-spotify-subscriber-for-17-years-here-are-the-top-5-plug-ins-i-recommend-for-the-music-streamer) - TechRadar
+- [Vevo Refines Upfront 2026 Strategy](https://www.exchangewire.com/blog/2026/04/23/vevo-refines-upfront-2026-strategy/) - ExchangeWire
+- [Geese Set 2026 North American Tour Dates](https://pitchfork.com/news/geese-set-2026-north-american-tour-dates/) - Pitchfork
+- [Geese Fall Tour Includes Band’s Largest NYC Show](https://www.spinmagazine.com/2026/04/geese-fall-tour/) - Spinmagazine.com
+- [Geese Announce 2026 North American Fall Tour](https://consequence.net/2026/04/geese-2026-north-american-fall-tour/) - Consequence.net
+- [Why was Geese’s Getting Killed a hit? #entertainment](https://alltoc.com/entertainment/why-was-geeses-getting-killed-a-hit) - Alltoc.com
+- [Geese Announce Dates For 2026 Getting Killed Again North American Tour - billboard.com](https://www.billboard.com/music/rock/geese-dates-2026-getting-killed-again-north-american-tour-1236228856/) - Billboard
+- [Texas Attorney General launches ‘bribery’ probe of big music-streaming services](http://musically.com/2026/04/23/texas-attorney-general-launches-bribery-probe-of-big-music-streaming-services/) - Music Ally
+- [Wednesday’s Karly Hartzman on Writing Through Pain: “If You Can Describe The Feeling, Then You’re Seeing It From A Distance”](https://www.spinmagazine.com/2026/04/wednesdays-karly-hartzman-on-writing-through-pain-if-you-can-describe-the-feeling-then-youre-seeing-it-from-a-distance/) - Spinmagazine.com
