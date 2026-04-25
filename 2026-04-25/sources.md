@@ -1,0 +1,24 @@
+# Sources for 2026-04-25 News Episode 
+- [Beyoncé’s Lemonade At 10: Pain, Power, And A Cultural Legacy](https://www.forbes.com/sites/desjahaltvater/2026/04/23/beyoncs-lemonade-at-10-pain-power-and-a--cultural-legacy/) - Forbes
+- [Justin Bieber’s Smash Misses Hitting No. 1 Again — Even With A Coachella Bump](https://www.forbes.com/sites/hughmcintyre/2026/04/24/justin-biebers-smash-misses-hitting-no-1-again---even-with-a-coachella-bump/) - Forbes
+- [King Gizzard & The Lizard Wizard Wraps Synth LP](https://www.spinmagazine.com/2026/04/king-gizzard-synth-album/) - Spinmagazine.com
+- [Olivia Rodrigo wants fans to “drop dead”](http://musically.com/2026/04/24/olivia-rodrigo-wants-fans-to-drop-dead/) - Music Ally
+- [Openstage launches ‘Fanbase API’ with Gorillaz and Yungblud](http://musically.com/2026/04/24/openstage-launches-fanbase-api-with-gorillaz-and-yungblud/) - Music Ally
+- [Evanescence Finally Scores Its First No. 1 On One Billboard Chart](https://www.forbes.com/sites/hughmcintyre/2026/04/24/evanescence-finally-scores-its-first-no-1-on-one-billboard-chart/) - Forbes
+- [Evanescence Earns 1st Hot Hard Rock Songs No. 1 With ‘Who Will You Follow’ - Billboard](https://www.billboard.com/music/chart-beat/evanescence-who-will-you-follow-hot-hard-rock-songs-no-1-1236227843/) - Billboard
+- [Neil Young and the Chrome Hearts Announce New Live Album](https://consequence.net/2026/04/neil-young-and-the-chrome-hearts-live-album-as-time-explodes/) - Consequence.net
+- [Record Store Day 2026's Musts, From Taylor Swift to Pink Floyd - Variety](https://variety.com/lists/record-store-day-2026-musts-vinyl-exclusives-rsd/) - Variety
+- [New book reveals that Bob Dylan was nearly the fifth member of the Beatles...](https://www.dailymail.com/home/books/article-15759789/New-book-reveals-Bob-Dylan-nearly-fifth-member-Beatles.html) - Dailymail.com
+- [Book Review: ‘Where the Music Had to Go,’ by Jim Windolf - The New York Times](https://www.nytimes.com/2026/04/14/books/review/where-the-music-had-to-go-jim-windolf.html) - Nytimes
+- [Yung Lean is pure chaos in “STORM” by GENER8ION](https://www.thefader.com/2026/04/24/yung-lean-gener8ion-storm-music-video) - The FADER
+- [Thin Lizzy Were the Boys All Along](http://www.vulture.com/article/thin-lizzy-boys-back-in-town-interview.html) - Vulture
+- [Funding roundup: Tamber, Futures Music Group, Inversa…](http://musically.com/2026/04/24/funding-roundup-tamber-futures-music-group-inversa/) - Music Ally
+- [The Deals: Supertramp Bassist Dougie Thomson Sells Rights to MusicBird; Futures Raises $6M - Billboard](https://www.billboard.com/lists/supertramp-bassist-sells-royalty-income-musicbird-deals/) - Billboard
+- [Latin Electronic Music Label INVERSA Launched by Milk & Honey, M3 Music and ONErpm - billboard.com](https://www.billboard.com/pro/latin-electronic-music-label-launched-milk-honey-m3-onerpm/) - Billboard
+- [Sharon Osbourne + Ex-Black Sabbath Manager Settle Public Dispute](https://loudwire.com/sharon-osbourne-jim-simpson-settlement-black-sabbath/) - Loudwire
+- [Michael Stipe Previews ‘First-Ever Solo’ Album With ‘The Rest of Ever’ on ‘Colbert’](http://www.rollingstone.com/music/music-news/michael-stipe-new-song-the-rest-of-ever-colbert-solo-album-1235553255/) - Rolling Stone
+- [Michael Stipe Reveals the Surprising Musician He Thinks Should Play His Younger Self in an R.E.M. Biopic - People.com](https://people.com/michael-stipe-reveals-musician-should-play-younger-self-rem-biopic-11958400) - People
+- [Stagecoach Livestream: How To Watch Ella Langley, Post Malone And More](https://www.forbes.com/sites/matthewleimkuehler/2026/04/24/stagecoach-livestream-how-to-watch-ella-langley-post-malone-and-more/) - Forbes
+- [Stagecoach 2026: How to watch Saturday's livestream with Lainey Wilson, Bush, Teddy Swims, Pitbull and more - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-04-25/how-to-watch-stagecoach-2026-saturday-livestream-amazon) - Latimes
+- [Stagecoach 2026: How to watch Friday's livestream with Cody Johnson, Ella Langley, Bailey Zimmerman - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-24/how-to-watch-stagecoach-2026-friday-livestream-amazon) - Latimes
+- [Stagecoach Livestream Schedule: Where and When to Catch Country Sets - Variety](https://variety.com/2026/music/news/stagecoach-livestream-schedule-lainey-wilson-ella-langley-1236729722/) - Variety
