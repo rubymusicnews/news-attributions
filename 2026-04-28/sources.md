@@ -1,0 +1,43 @@
+# Sources for 2026-04-28 News Episode 
+- [Lady Gaga and Doechii Turn the Dancefloor Into a ‘Runway’ in New Music Video](http://www.rollingstone.com/music/music-news/lady-gaga-and-doechii-runway-in-new-music-video-1235554128/) - Rolling Stone
+- [‘Runway’ Music Video & Lyrics: Lady Gaga & Doechii Release ‘The Devil Wears Prada 2′ Song Visual](https://www.justjared.com/2026/04/27/runway-music-video-lady-gaga-doechii-lyrics-devil-wears-prada-2-movie-soundtrack/) - Just Jared
+- [Lady Gaga and Doechii Deliver Fashion Camp in the “Runway” Video - Vogue](https://www.vogue.com/article/lady-gaga-doechii-runway-music-video-fashion) - Vogue
+- [Lady Gaga & Doechii Are ‘Born for the Runway’ in Avant-Garde Video for ‘Devil Wears Prada 2’ Collab - Billboard](https://www.billboard.com/music/music-news/lady-gaga-doechii-runway-music-video-1236232841/) - Billboard
+- [Lady Gaga and Doechii Serve Sass and High Fashion in ‘Runway’ Music Video - Variety](https://variety.com/2026/music/news/lady-gaga-doechii-runway-music-video-sass-high-fashion-1236726548/) - Variety
+- [Taylor Swift Trademarks Her Voice and Image to Counter AI](https://www.cnet.com/news/taylor-swift-trademarks-her-voice-and-image-to-counter-ai/) - CNET
+- [Taylor Swift Files Trademark to Protect Her Voice and Likeness Against AI Misuse](https://www.thewrap.com/industry-news/business/taylor-swift-trademark-applications/) - TheWrap
+- [Taylor Swift files to trademark her voice, likeness to ward off AI deepfakes - New York Post](https://nypost.com/2026/04/27/business/taylor-swift-files-to-trademark-her-voice-likeness-to-ward-off-ai-deepfakes/?utm_campaign=nypost&utm_medium=referral) - Nypost
+- [Taylor Swift files to trademark her voice, likeness to ward off AI deepfakes - Reuters](https://www.reuters.com/legal/litigation/taylor-swift-files-trademark-her-voice-likeness-ward-off-ai-deepfakes-2026-04-27/) - Reuters
+- [Taylor Swift files to trademark voice and image amid AI concerns - BBC](https://www.bbc.com/news/articles/crm1mygrmv2o) - Bbc
+- [Taylor Swift seeks further protections for her voice and likeness with new trademark filings - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-04-28/taylor-swift-protects-voice-image-new-trademark-filings) - Latimes
+- [Taylor Swift files trademarks for voice and image amid concern over AI misuse - The Guardian](https://www.theguardian.com/music/2026/apr/27/taylor-swift-trademarks-voice-image-ai) - Theguardian
+- [Taylor Swift wants to trademark her voice and image to fight AI fakes - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/taylor-swift-trademark-voice-22228378.php) - Sfchronicle
+- [Lizzo’s Next Album is Called Bitch](https://pitchfork.com/news/lizzos-next-album-is-called-bitch/) - Pitchfork
+- [Lizzo Pivots For First LP In Four Years](https://www.spinmagazine.com/2026/04/lizzo-new-album/) - Spinmagazine.com
+- [Lizzo Pivots For First LP In Four Years - Yahoo](https://www.yahoo.com/entertainment/music/articles/lizzo-pivots-first-lp-four-161800091.html) - Yahoo
+- [Lizzo Announces New Album ‘Bitch’ About ‘Reclaiming’ the Derogatory Term: ‘It Was Only Fitting’ - Billboard](https://www.billboard.com/music/music-news/lizzo-new-album-bitch-release-date-1236232559/) - Billboard
+- [Rihanna’s Last Album Celebrates A Historic Milestone](https://www.forbes.com/sites/hughmcintyre/2026/04/27/rihannas-last-album-celebrates-a-historic-milestone/) - Forbes
+- [Rolling Stones legend Mick Jagger 'almost died of an overdose after buying heroin from a buddhist drug dealer' in the 1970s](https://www.dailymail.com/tvshowbiz/article-15768225/Rolling-Stones-legend-Mick-Jagger-died-overdose-buying-heroin-buddhist-drug-dealer-1970s.html) - Dailymail.com
+- [Shakira crew member dies during stage assembly for her concert in Brazil](https://www.dailymail.com/tvshowbiz/article-15767959/Shakira-crew-member-dies-stage-assembly-concert-Brazil.html) - Dailymail.com
+- [Shakira crew member dies after suffering ‘crushing injuries’ while building stage for Rio concert - The Independent](https://www.independent.co.uk/arts-entertainment/music/news/shakira-crew-member-death-rio-concert-b2965626.html) - Independent
+- [Crew Member Killed While Assembling Stage for Shakira’s Brazil Concert - Billboard](https://www.billboard.com/music/latin/shakira-crew-member-killed-brazil-concert-1236232402/) - Billboard
+- [Shakira crew member crushed to death in horrific accident days before Brazil show - Page Six](https://pagesix.com/2026/04/27/entertainment/shakira-crew-member-crushed-to-death-in-horrific-accident-days-before-brazil-show/) - Pagesix
+- [Olivia Rodrigo Performs ‘Drop Dead’ at NYC Open Mic Night](https://www.justjared.com/2026/04/27/olivia-rodrigo-drop-dead-open-mic-nyc-surprise-performance/) - Just Jared
+- [Olivia Rodrigo Surprises Fans With ‘Drop Dead’ Performance at NYC Open Mic - Billboard](https://www.billboard.com/music/pop/olivia-rodrigo-drop-dead-nyc-open-mic-1236232284/) - Billboard
+- [You are the mass shooter in Vince Staples's “Black Marmalade” music video](https://www.thefader.com/2026/04/27/vince-staples-black-marmalade-mass-shooter-independent-single) - The FADER
+- [Korn Drops Original New Song For Diablo 4: Lord of Hatred In Must-See Video](https://screenrant.com/korn-diablo-4-lord-of-hatred-music-video/) - Screen Rant
+- [An iconic nu metal band makes its comeback in Diablo 4 with first new song in years - Polygon.com](https://www.polygon.com/diablo-4-lord-of-hatred-korn-song-video/) - Polygon
+- [The Streams Are Up, But The Fans Aren’t There. What Music Marketing Is Getting Wrong Right Now](https://www.forbes.com/sites/oliviashalhoup/2026/04/27/the-streams-are-up-but-the-fans-arent-there-what-music-marketing-is-getting-wrong-right-now/) - Forbes
+- [Music, Sports, and the Fans Who Got There First](http://musically.com/2026/04/27/music-sports-and-the-fans-who-got-there-first/) - Music Ally
+- [This Is What a Music Industry ‘Plant’ Looks Like in 2026 - Gizmodo](https://gizmodo.com/this-is-what-a-music-industry-plant-looks-like-in-2026-2000746265) - Gizmodo
+- ['Clipping' is taking over social feeds — and that's changing our perception of what's actually popular - Business Insider](https://www.businessinsider.com/clipping-social-media-tiktok-viral-band-geese-advertising-authentic-fake-2026-4) - Businessinsider
+- [How Coachella Became A Testing Ground For Cultural Brand Relevance - Yahoo News Malaysia](https://malaysia.news.yahoo.com/coachella-became-testing-ground-cultural-151352876.html) - Yahoo
+- [Coachella’s Big Brand Renaissance - Vogue](https://www.vogue.com/article/coachellas-big-brand-renaissance) - Vogue
+- [Hootie and the Blowfish Make Their Stagecoach Debut With Deep-Fried Jams and Public Enemy](http://www.rollingstone.com/music/music-country/hootie-and-the-blowfish-stagecoach-public-enemy-performance-1235553200/) - Rolling Stone
+- [The best, worst and Hootiest moments of Stagecoach Day 3 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-27/stagecoach-day-3-recap-post-malone-brooks-dunn-hootie-blowfish) - Latimes
+- [Hootie and the Blowfish bring out Public Enemy at Stagecoach - Los Angeles Times](https://www.latimes.com/0000019d-cd3f-deae-a3bd-ed7f48eb0000-123) - Latimes
+- [10 minutes backstage with Darius Rucker at Stagecoach - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-04-27/stagecoach-2026-darius-rucker-hootie-and-the-blowfish-public-enemy) - Latimes
+- [Stagecoach 2026: 10 Best Performances - Billboard](https://www.billboard.com/lists/stagecoach-2026-best-moments-review/) - Billboard
+- [Dave Grohl Names Huge '90s Grunge Band as His 'Favorite Band Now'](https://loudwire.com/dave-grohl-90s-grunge-band-favorite-band-now/) - Loudwire
+- [Loathe Announce First New Album in Five Years, Unleash “Revenant”: Stream](https://consequence.net/2026/04/loathe-new-album-single-revenant/) - Consequence.net
+- [Love Supreme jazz festival reveals full 2026 line-up led by Ezra Collective, Loyle Carner, and De La Soul](https://www.thelineofbestfit.com/news/love-supreme-jazz-festival-reveals-full-2026-line-up-led-by-ezra-collective-loyle-carner-and-de-la-soul) - Thelineofbestfit.com
