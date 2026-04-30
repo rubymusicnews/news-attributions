@@ -1,0 +1,33 @@
+# Sources for 2026-04-30 News Episode 
+- [The K-pop mega agency behind BTS just had its best quarter ever](https://www.businessinsider.com/bts-hybe-q1-record-revenue-album-sales-world-tour-2026-4) - Business Insider
+- [Inside Iron Maiden’s Honest, Emotional New Documentary](http://www.rollingstone.com/music/music-features/iron-maiden-bruce-dickinson-50-years-burning-ambition-1235553980/) - Rolling Stone
+- [Review - 'Iron Maiden: Burning Ambition' Documentary](https://loudwire.com/iron-maiden-burning-ambition-documentary-review/) - Loudwire
+- [Rosalia to be named international songwriter of the year at Ivor Novello Awards](https://www.the-independent.com/arts-entertainment/music/news/rosalia-ivor-novello-awards-international-songwriter-b2967310.html) - The-independent.com
+- [ROSALÍA to receive acclaimed International Songwriter of the Year Award at The Ivors 2026 with Amazon Music](https://ivorsacademy.com/news/rosalia-to-receive-acclaimed-international-songwriter-of-the-year-award-at-the-ivors-2026-with-amazon-music/) - Ivorsacademy
+- [Rosalía to receive International Songwriter of the Year Award at Ivor Novellos](https://www.yahoo.com/entertainment/music/articles/rosal-receive-international-songwriter-award-100622881.html) - Yahoo
+- [Rosalía to Collect Prestigious Songwriting Award at The Ivors 2026 - Billboard](https://www.billboard.com/music/awards/rosalia-songwriting-award-the-ivors-2026-1236234367/) - Billboard
+- [Billie Eilish Gives Update on Status of Her 4th Album](https://www.justjared.com/2026/04/29/billie-eilish-gives-update-on-status-of-her-4th-album/) - Just Jared
+- [Billie Eilish Denies Falling Out With Finneas and Defends Speaking Out Against Billionaires and ICE: ‘Why Is it Controversial to Step in When Someone’s Getting Bullied?’ - Yahoo News Canada](https://ca.news.yahoo.com/billie-eilish-denies-falling-finneas-142257955.html) - Yahoo
+- [Billie Eilish Defends Speaking Out Against Billionaires and ICE - Variety Australia](https://au.variety.com/2026/music/news/billie-eilish-finneas-falling-out-slamming-ice-billionaires-36029/) - Variety
+- [Taylor Swift Finally Explained A Lyric Choice That Has Been Bothering Swifties For 20 Years: 'Literally My Life Question Answered'](https://www.cinemablend.com/streaming-news/taylor-swift-finally-explained-lyric-choice-our-song-bothering-swifties-20-years) - CinemaBlend
+- [Takeaways From The Times’s Taylor Swift Interview on ‘Our Song,’ ‘All Too Well’ and More - The New York Times](https://www.nytimes.com/2026/04/28/arts/music/taylor-swift-interview-takeaways.html) - Nytimes
+- [The Taylor Swift Interview - The New York Times](https://www.nytimes.com/2026/04/28/magazine/taylor-swift-songwriting-process-interview.html) - Nytimes
+- [&TEAM Earn Best Sales Week As ‘We On Fire’ Moves 1.2 Million Copies](https://www.forbes.com/sites/jeffbenjamin/2026/04/29/team-earn-best-sales-week-as-we-on-fire-moves-12-million-copies/) - Forbes
+- [&TEAM Earn Best Sales Week As ‘We On Fire’ Moves 1.2 Million Copies - Yahoo News Canada](https://ca.news.yahoo.com/team-earn-best-sales-week-111554238.html) - Yahoo
+- [Fleetwood Mac Charts A New Hit Album With The Band’s Original Lineup](https://www.forbes.com/sites/hughmcintyre/2026/04/29/fleetwood-mac-charts-a-new-hit-album-with-the-bands-original-lineup/) - Forbes
+- [Fleetwood Mac Charts A New Hit Album With The Band’s Original Lineup - Yahoo](https://www.yahoo.com/entertainment/music/articles/fleetwood-mac-charts-hit-album-144322802.html) - Yahoo
+- [Ashley Roberts, 44, digs her Pussycat Dolls costumes out of storage to try on corsets and skimpy mini skirts ahead of reunion tour](https://www.dailymail.com/tvshowbiz/article-15777539/Ashley-Roberts-44-digs-Pussycat-Dolls-costumes-storage-try-corsets-skimpy-mini-skirts-ahead-reunion-tour.html) - Dailymail.com
+- [Inside The Pussycat Dolls Comeback: ‘It Felt Like Unfinished Business’ - Billboard](https://www.billboard.com/music/pop/pussycat-dolls-reunion-tour-interview-1236223861/) - Billboard
+- [Lizzo flaunts cleavage in her tiny 'birthday' suit as she turns 38 after dramatic weight loss](https://www.dailymail.com/tvshowbiz/article-15774597/Lizzo-cleavage-tiny-birthday-suit-weight-loss.html) - Dailymail.com
+- [Lizzo Announces New Album ‘Bitch’ About ‘Reclaiming’ the Derogatory Term: ‘It Was Only Fitting’ - Billboard](https://www.billboard.com/music/music-news/lizzo-new-album-bitch-release-date-1236232559/) - Billboard
+- [Lizzo New Album Announcement: The June 5th Release Details - Hype Hair](https://hypehair.com/19286/lizzo-new-album/) - Hypehair
+- [Lizzo Pivots For First LP In Four Years - Yahoo](https://www.yahoo.com/entertainment/music/articles/lizzo-pivots-first-lp-four-161800091.html) - Yahoo
+- [ZHU Joins Pacha New York’s Increasingly Global 2026 Lineup](https://www.forbes.com/sites/jeffbenjamin/2026/04/28/zhu-joins-pacha-new-yorks-increasingly-global-2026-lineup/) - Forbes
+- [ZHU Joins Pacha New York’s Increasingly Global 2026 Lineup - Yahoo News Malaysia](https://malaysia.news.yahoo.com/zhu-joins-pacha-york-increasingly-003056275.html) - Yahoo
+- [Black Sabbath Charts A New Top 10 Album Nearly A Year After Ozzy Osbourne’s Death](https://www.forbes.com/sites/hughmcintyre/2026/04/29/black-sabbath-charts-a-new-top-10-album-nearly-a-year-after-ozzy-osbournes-death/) - Forbes
+- [Zara Larsson Unveils 'Midnight Sun: Girls Trip' Tracklist With Help From Paris Hilton](https://www.justjared.com/2026/04/28/zara-larsson-unveils-midnight-sun-girls-trip-tracklist-with-help-from-paris-hilton/) - Just Jared
+- [Everybody Wants to Go on Zara Larsson’s Girls Trip - Vulture](https://www.vulture.com/article/zara-larsson-midnight-sun-girls-trip-remix-album.html) - Vulture
+- [Zara Larsson Taps Shakira, PinkPantheress & More for ‘Midnight Sun’ Deluxe: ‘Summer Is Gonna Be Madness’ - billboard.com](https://www.billboard.com/music/music-news/zara-larsson-midnight-sun-girls-trip-guest-list-1236229261/) - Billboard
+- [PinkPantheress, Robyn, More to Guest on Zara Larsson’s Midnight Sun: Girls Trip - Pitchfork](https://pitchfork.com/news/pinkpantheress-robyn-more-to-guest-on-zara-larssons-midnight-sun-girls-trip/) - Pitchfork
+- [Barry Keoghan reveals he has lost a stone in weight because of intense year-long filming schedule for Beatles movies and his ADHD medication](https://www.dailymail.com/tvshowbiz/article-15777125/Barry-Keoghan-reveals-lost-stone-weight-intense-year-long-filming-schedule-Beatles-movies-ADHD-medication.html) - Dailymail.com
+- [Why Sam Mendes’ Beatles Movies Face A Major “Get Back” Problem](https://screenrant.com/sam-mendes-beatles-movies-get-back-problem/) - Screen Rant
