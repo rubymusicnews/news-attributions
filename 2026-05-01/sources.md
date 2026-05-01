@@ -1,0 +1,39 @@
+# Sources for 2026-05-01 News Episode 
+- [Spotify rolls out badge to distinguish human artists from AI](https://www.vanguardngr.com/2026/04/spotify-rolls-out-badge-to-distinguish-human-artists-from-ai/) - Vanguard
+- [Spotify's new badge identifies human artists as AI music floods include](https://www.cbsnews.com/news/spotify-verified-badge-ai-music/) - CBS News
+- [Spotify Launches New Verified Badge for “Real” Artists](https://www.thurrott.com/music-videos/335543/spotify-launches-new-verified-badge-for-real-artists) - Thurrott.com
+- [Spotify Launches “Verified by Spotify” Badge](https://www.iphoneincanada.ca/2026/04/30/spotify-launches-verified-by-spotify-badge/) - iPhone in Canada
+- [Verified by Spotify badge lets you know this artist isn’t AI](https://www.theverge.com/tech/921048/verified-by-spotify-badge) - The Verge
+- [Spotify adding verified artist badges to help identify real artists](https://mobilesyrup.com/2026/04/30/spotify-verified-artist-badges-real-artists/) - MobileSyrup
+- [「MUSIC AWARDS JAPAN」ノミネート作品を発表！最終投票がスタートし、6月13日の授賞式へ](https://prtimes.jp/main/html/rd/p/000000043.000151661.html) - Prtimes.jp
+- [Tori Amos Shares a Mystical Tale of Escape and Dragons](http://www.rollingstone.com/music/music-album-reviews/tori-amos-in-times-of-dragons-review-1235525926/) - Rolling Stone
+- [Interpol Plot 2026 North American Tour](https://pitchfork.com/news/interpol-plot-2026-north-american-tour/) - Pitchfork
+- [Interpol Announce 2026 North American Tour](https://consequence.net/2026/04/interpol-2026-north-american-tour/) - Consequence.net
+- [Interpol Plots Tour, New Music For Partisan](https://www.spinmagazine.com/2026/04/interpol-tour-new-music/) - Spinmagazine.com
+- [Bruce Springsteen and The E Street Band Bring a Message of Hope and Resistance to Chicago: Review + Photos](https://consequence.net/2026/04/bruce-springsteen-chicago-concert-review-photos/) - Consequence.net
+- [Review: Bruce Springsteen’s ‘Hope and Dreams’ tour comes to Chicago with a message - Chicago Tribune](https://www.chicagotribune.com/2026/04/30/review-bruce-springsteen-chicago/) - Chicagotribune
+- [ElevenLabs launches ElevenMusic as ‘not just a listening app’](http://musically.com/2026/04/30/elevenlabs-launches-elevenmusic-as-not-just-a-listening-app/) - Music Ally
+- [ElevenLabs Revamps ElevenMusic as an AI Music Creation, Remixing and Streaming Service for Fans - Billboard](https://www.billboard.com/pro/elevenlabs-revamps-ai-music-platform-fan-focused-service/) - Billboard
+- [David Allan Coe, Singer of the ‘Perfect Country and Western Song,’ Dead at 86](http://www.rollingstone.com/music/music-country/david-allan-coe-dead-obituary-1218831/) - Rolling Stone
+- [David Allan Coe Dies: “Outlaw” Country Singer Who Wrote Defiant ‘Take This Job And Shove It’ Was 86](http://deadline.com/2026/04/david-allan-coe-dead-1236876857/) - Deadline
+- [David Allan Coe, who wrote 'Take This Job and Shove It' dies at 86](https://abcnews.com/Entertainment/wireStory/david-allan-coe-wrote-job-shove-country-hits-132524045) - Abcnews.com
+- [David Allan Coe, singer who wrote "Take This Job and Shove It," dies at 86](https://www.cbsnews.com/news/david-allan-coe-dies-age-86-country-singer/) - CBS News
+- [Outlaw Country Legend David Allan Coe Dies At 86](https://www.huffpost.com/entry/outlaw-country-legend-david-allan-coe-dies-at-86_n_69f3adcce4b0db8899bbe061) - HuffPost
+- [Polarizing Outlaw Country Icon David Allan Coe Dead At 86](https://dailycaller.com/2026/04/30/country-music-icon-davidi-allan-coe-dead-86-obituary/) - The Daily Caller
+- [David Allan Coe Net Worth: How Much Money the Country Music Singer Had](https://hollywoodlife.com/feature/david-allan-coe-net-worth-5535647/) - Hollywood Life
+- [David Allan Coe’s Children: Meet His Kids, Including Tyler Mahan Coe](https://hollywoodlife.com/feature/david-allan-coe-children-5535680/) - Hollywood Life
+- [Duran Duran and Nile Rodgers Perform “Free to Love” on Kimmel: Watch](https://consequence.net/2026/04/duran-duran-nile-rodgers-free-to-love-kimmel-watch/) - Consequence.net
+- [Watch Duran Duran, Nile Rodgers Showcase ‘Free To Love’ on ‘Kimmel’](http://www.rollingstone.com/music/music-news/duran-duran-nile-rodgers-free-to-love-performance-kimmel-1235556067/) - Rolling Stone
+- [Duran Duran And Nile Rodgers Perform Night Version of ‘Free to Love’: Watch - Billboard](https://www.billboard.com/culture/tv-film/duran-duran-nile-rodgers-free-to-love-kimmel-1236235465/) - Billboard
+- [Olivia Rodrigo Round Up Post](https://ohnotheydidnt.livejournal.com/132278794.html) - Livejournal.com
+- [Olivia Rodrigo on Her New Album, Heartbreak, and What It Takes to Date Her - Cosmopolitan](https://www.cosmopolitan.com/entertainment/celebs/a71014948/olivia-rodrigo-interview-2026/) - Cosmopolitan
+- [Olivia Rodrigo Quotes ‘Camp Rock’ Hit to Explain Why She’s Prepared If Her New Album ‘Flops’ - Billboard](https://www.billboard.com/music/music-news/olivia-rodrigo-quotes-camp-rock-song-if-new-album-flops-1236234175/) - Billboard
+- [Olivia Rodrigo’s New Album Has ‘Multiple Songs’ Inspired by Miranda and Steve from ‘Sex And The City - Billboard](https://www.billboard.com/music/pop/olivia-rodrigo-new-album-sex-and-the-city-inspiration-1236236738/) - Billboard
+- [The Black Keys – Peaches! (2026)](https://exystence.net/blog/2026/04/30/the-black-keys-peaches-2026/) - Exystence.net
+- ["A welcome return to the cranked-up amps, distortion and rawness that first fuelled them." The Black Keys go back to basics on the revitalised, urgent and gloriously unrefined Peaches!](https://www.loudersound.com/music/the-black-keys-peaches) - Louder
+- [Taj Mahal & Phantom Blues Band – Time (2026)](https://exystence.net/blog/2026/05/01/taj-mahal-phantom-blues-band-time-2026/) - Exystence.net
+- [10 Times Rock Bands Made the Best Covers of Disney Songs](https://loudwire.com/best-rock-disney-cover-songs/) - Loudwire
+- [Tony Wilson, Hot Chocolate Bassist and Songwriter, Dead at 89](http://www.rollingstone.com/music/music-news/hot-chocolate-tony-wilson-you-sexy-thing-dead-obituary-1235556226/) - Rolling Stone
+- [Hot Chocolate founder Tony Wilson, who co-wrote You Sexy Thing, dies aged 89 - BBC](https://www.bbc.com/news/articles/czx26yvgw64o) - Bbc
+- [JPEGMAFIA Announces New Album EXPERIMENTAL RAP, 2026 Tour](https://consequence.net/2026/04/jpegmafia-new-album-experimental-rap-2026-tour/) - Consequence.net
+- [JPEGMAFIA to Take New Album 'EXPERIMENTAL RAP' on North American Tour](https://exclaim.ca/music/article/jpegmafia-to-take-new-album-experimental-rap-on-north-american-tour) - Exclaim!
