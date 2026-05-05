@@ -1,0 +1,29 @@
+# Sources for 2026-05-05 News Episode 
+- [Bring Me the Horizon’s Rise to Arena Headliner on Full Display at Madison Square Garden Show: Review, Photos + Video](https://consequence.net/2026/05/bring-me-the-horizon-msg-review/) - Consequence.net
+- [The Spice Girls 'are in talks for an Abba-style hologram show to mark their 30th anniversary' - after their reunion tour was axed](https://www.dailymail.com/tvshowbiz/article-15789651/The-Spice-Girls-talks-Abba-style-hologram-mark-30th-anniversary-reunion-tour-axed.html) - Dailymail.com
+- [Charli xcx Shares Studio Clip, Says She's Not Working on a Rock Album](https://exclaim.ca/music/article/charli-xcx-shares-studio-clip-says-she-s-not-working-on-a-rock-album) - Exclaim!
+- [Charli xcx Shares ‘Rock Music’ Song Teaser, Says She’s Not Making a Rock Album - billboard.com](https://www.billboard.com/music/music-news/charli-xcx-rock-music-song-not-album-1236237667/) - Billboard
+- [Lizzo opens up about new music amid yearslong legal battle](https://www.cbsnews.com/news/lizzo-new-music-legal-battle/) - CBS News
+- [Lizzo Explains Why She Refuses to Settle Sexual Harassment Lawsuit: ‘The Truth Will Come Out’ - Yahoo](https://www.yahoo.com/entertainment/music/articles/lizzo-explains-why-she-refuses-181612479.html) - Yahoo
+- [Lizzo Explains Why She Refuses to Settle Sexual Harassment Lawsuit: ‘The Truth Will Come Out’ - Billboard](https://www.billboard.com/music/music-news/lizzo-sexual-harassment-lawsuit-why-refuse-to-settle-1236238290/) - Billboard
+- [Lizzo Pivots For First LP In Four Years - Yahoo](https://www.yahoo.com/entertainment/music/articles/lizzo-pivots-first-lp-four-161800091.html) - Yahoo
+- [‘Thriller’ Video Vixen Spills the Tea on Her On-Set Romance with Michael Jackson](https://www.theroot.com/thriller-video-vixen-spills-the-tea-on-her-on-set-roman-2000103253) - The Root
+- [Rapper Kanye West to perform in Albania in July](https://thechronicle.com.gh/rapper-kanye-west-to-perform-in-albania-in-july/) - Thechronicle.com.gh
+- [Kanye West and Bianca Censori Make Surprise Appearance at North West Pop-Up in L.A. - TMZ](https://www.tmz.com/2026/05/02/kanye-west-bianca-censori-at-north-west-store/) - Tmz
+- [Super Furry Animals Return With Exhaustive and Perplexing Collection of Old Rarities](https://www.spinmagazine.com/2026/05/super-furry-animals-return-with-exhaustive-and-perplexing-collection-of-old-rarities/) - Spinmagazine.com
+- [Umbria Jazz, Sting apre a Perugia la 53esima edizione](https://www.ansa.it/umbria/notizie/2026/05/04/umbria-jazz-sting-apre-a-perugia-la-53esima-edizione_ced5869b-9277-4eb0-8486-a5ab806aa58a.html) - ANSA.it
+- [Umbria Jazz, Sting apre a Perugia la 53esima edizione](https://www.ansa.it/sito/notizie/cultura/musica/2026/05/04/umbria-jazz-sting-apre-a-perugia-la-53esima-edizione_381e5a25-06e8-4732-a0ba-f9d766f16525.html) - ANSA.it
+- [Shakira’s Backup Dancer Reportedly Causing Tension Behind The Scenes With Her “Exceptional Beauty”](https://www.boredpanda.com/shakira-backup-dancer-natalia-palomares-causing-tension-after-beauty-steals-spotlight/) - Boredpanda.com
+- [EXCLUSIVE: Showtime For Usher… And Diddy! Jailed Rapper 'Cooking Up Comeback With Old Pal From Behind Bars'](https://radaronline.com/p/usher-diddy-comeback-plot-jail-sparks-buzz/) - Radaronline.com
+- [Kid Cudi expulsa M.I.A de digressão após tiradas polémicas](https://observador.pt/2026/05/05/kid-cudi-expulsa-m-i-a-da-sua-digressao-norte-americana-depois-de-tiradas-polemicas-cantora-britanica-atua-em-portugal-no-verao/) - Observador.pt
+- [Paper Planes hitmaker M.I.A. fired from Kid Cudi tour after 'offensive' pro-Republican rant](https://www.dailymail.com/tvshowbiz/article-15789353/mia-kid-cudi-tour-fired-republican.html) - Dailymail.com
+- [Pro-MAGA Rapper Fired From Tour After 'Offensive Remarks' Onstage](https://www.huffpost.com/entry/mia-fired-kid-cudi-tour-offensive-remarks_n_69f8dc0ee4b06e9242f579ef) - HuffPost
+- [M.I.A. Claims She Was Fired For Being ‘Brown Republican’ After Calling Kid Cudi’s Fans ‘Illegals’](https://dailycaller.com/2026/05/04/kid-cudi-fires-mia-tour-political-rant-brown-republican-canceled/) - The Daily Caller
+- [Kid Cudi says he removed M.I.A. from his tour over offensive 'rants' at show - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/kid-cudi-says-removed-m-tour-offensive-rants-show-rcna343542) - Nbcnews
+- [Rapper Kid Cudi fires MIA from tour after ‘offensive’ Republican rant - The Guardian](https://www.theguardian.com/music/2026/may/04/kid-cudi-fires-mia-tour-republican-rant) - Theguardian
+- [Kid Cudi cuts M.I.A. from tour after she says she ‘can’t do illegal’ in political rant on stage - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-05-04/kid-cudi-cuts-m-i-a-from-tour-after-she-says-i-cant-do-illegal-in-political-rant-on-stage) - Latimes
+- [Kid Cudi Boots M.I.A. From North American Tour - Pitchfork](https://pitchfork.com/news/kid-cudi-boots-mia-from-north-american-tour/) - Pitchfork
+- [Kid Cudi Fires M.I.A. From His Tour After Her Political Rants - Billboard](https://www.billboard.com/music/rb-hip-hop/kid-cudi-fires-mia-tour-political-rants-1236238262/) - Billboard
+- [Greta Van Fleet Share Cryptic Video + Fans Think They Broke Up](https://loudwire.com/greta-van-fleet-cryptic-video-fans-think-broke-up/) - Loudwire
+- [Mysterious noise-rock supergroup Vorhex Angel share "Okie’s Song I" from forthcoming album DRAIN](https://www.thelineofbestfit.com/news/mysterious-noise-rock-supergroup-vorhex-angel-share-okies-song-i-from-forthcoming-album-drain) - Thelineofbestfit.com
+- [Usted Señalemelo Is Hitting the Road and Going Back to Basics](http://www.rollingstone.com/music/music-latin/usted-senalemelo-terminos-y-condiciones-tour-interview-1235557139/) - Rolling Stone
