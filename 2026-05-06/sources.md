@@ -1,0 +1,28 @@
+# Sources for 2026-05-06 News Episode 
+- [Paul McCartney, Ringo Starr Duet On ‘Home To Us’](https://www.spinmagazine.com/2026/05/paul-mccartney-ringo-starr-duet/) - Spinmagazine.com
+- [‘It’s a bit emotional’: Paul McCartney plays new songs to fans at Abbey Road - The Guardian](https://www.theguardian.com/music/2026/may/05/paul-mccartney-the-boys-of-dungeon-lane-playback-preview-fans-abbey-road) - Theguardian
+- [Kanye West ‘Hurricane’ Copyright Infringement Trial: ‘Snubbed’ Musicians Ask for Half a Million Dollars](http://www.rollingstone.com/music/music-news/kanye-west-hurricane-copyright-infringement-trial-begins-1235557458/) - Rolling Stone
+- [Ye Faces His First Trial Over an Uncleared Sample: What to Know About the Case - Billboard](https://www.billboard.com/pro/kanye-west-trial-lawsuit-sample-donda-demos/) - Billboard
+- [Ye Denied Four-Month Delay of Next Week’s Copyright Trial - Bloomberg Law News](https://news.bloomberglaw.com/ip-law/ye-denied-four-month-delay-of-next-weeks-copyright-trial) - Bloomberglaw
+- [Ye Loses Bid To Delay May 4 'Donda' Copyright Trial - Law360](https://www.law360.com/media/articles/2471136/ye-loses-bid-to-delay-may-4-donda-copyright-trial) - Law360
+- [CORTIS are bringing punk to K-Pop: ‘We don’t give a damn’](https://www.dazeddigital.com/music/article/70200/1/cortis-k-pop-interview-greengreen-2026-we-don-t-give-a-damn?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=cortis-are-bringing-punk-to-k-pop-we-don-t-give-a-damn) - Dazed
+- [CORTIS’ ‘GREENGREEN’: All 6 Tracks Ranked - Billboard](https://www.billboard.com/lists/cortis-greengreen-songs-ranked/) - Billboard
+- [Kelela Announces Third Album, New Avatar, Drops Video for “Linknb”](https://pitchfork.com/news/watch-kelelas-video-for-new-linknb-song/) - Pitchfork
+- [Here’s Where You Can Find Tickets to Karol G’s Upcoming Tour](http://www.rollingstone.com/product-recommendations/tickets/where-to-buy-karol-g-tickets-tropicoqueta-tour-2026-1235558180/) - Rolling Stone
+- [Karol G Adds More Dates in Mexico to Her Viajando por el Mundo Tropitour - Billboard](https://www.billboard.com/music/latin/karol-g-more-mexico-tour-dates-viajando-por-el-mundo-tropitour-1236235660/) - Billboard
+- [THE LONG GOODBYE](https://www.spinmagazine.com/2026/05/the-long-goodbye/) - Spinmagazine.com
+- [Cover story: skaiwater is post everything](https://www.thefader.com/2026/05/05/skaiwater-fader-cover-story-may-2026) - The FADER
+- [Seu Jorge teams up with Beck, Marisa Monte and Maria Rita for new record The Other Side](https://www.thelineofbestfit.com/news/seu-jorge-teams-up-with-beck-marisa-monte-and-maria-rita-for-new-record-the-other-side) - Thelineofbestfit.com
+- [Eagles add more dates to Las Vegas Sphere residency — as band teases final ever shows](https://nypost.com/2026/05/05/entertainment/eagles-add-new-las-vegas-sphere-residency-concert-dates/) - New York Post
+- [Eagles Extend Las Vegas Sphere Residency With Six Shows in Fall 2026 - Variety](https://variety.com/2026/music/news/eagles-las-vegas-sphere-residency-fall-2026-1236736752/) - Variety
+- [Dua Saleh is Searching for Home](http://www.rollingstone.com/music/music-features/dua-saleh-new-music-interview-1235557245/) - Rolling Stone
+- [Bebe Rexha Celebrates Topping Two Dance Charts After Going Independent](http://www.rollingstone.com/music/music-news/bebe-rexha-new-religion-success-going-independent-1235557982/) - Rolling Stone
+- [Olivia Rodrigo’s 4th No. 1 Hit, Ella Langley’s Chart Dominance & Bebe Rexha’s “New Religion” \| Hot 100 Show - Billboard](https://www.billboard.com/video/olivia-rodrigos-4th-no-1-hit-ella-langleys-chart-dominance/) - Billboard
+- [Squeeze Announce 2026 North American Tour](https://consequence.net/2026/05/squeeze-announce-2026-north-american-tour/) - Consequence.net
+- [Squeeze Schedule 2026 North American Tour](https://exclaim.ca/music/article/squeeze-schedule-2026-north-american-tour) - Exclaim!
+- [Lewis Capaldi issues an expletive-laden rebuttal as a troll criticises his 'depressing' and 'repetitive' music](https://www.dailymail.com/tvshowbiz/article-15791347/Lewis-Capaldi-issues-expletive-laden-rebuttal-troll-criticises-depressing-repetitive-music.html) - Dailymail.com
+- [Meet the Man Turning Your Favorite Musicians Old](https://pitchfork.com/news/the-weeknd-bad-bunny-met-gala-mike-marino/) - Pitchfork
+- [Bad Bunny Serves Grandpa Realness At the 2026 Met Gala](https://www.vanityfair.com/style/story/bad-bunny-serves-grandpa-realness-at-the-2026-met-gala) - Vanity Fair
+- [Who Is That Silver Fox? Superstar Ages Up For Jaw-Dropping Met Gala Look. - HuffPost](https://www.huffpost.com/entry/bad-bunny-met-gala-old-man-look_n_69f93648e4b0115dd7bfb406?origin=article-bottom2-nonlife) - Huffpost
+- [We Love Bad Bunny's Old-Age Makeup, But Real Signs of Aging? Yuck. - Allure](https://www.allure.com/story/bad-bunny-met-gala-old-age-makeup) - Allure
+- [Here’s How Bad Bunny’s 2026 Met Gala Look Came to Life: Photos - Billboard](https://www.billboard.com/photos/bad-bunny-met-gala-2026-look-process-photos-1236239254/) - Billboard
