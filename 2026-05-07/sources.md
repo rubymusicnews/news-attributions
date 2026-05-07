@@ -1,0 +1,28 @@
+# Sources for 2026-05-07 News Episode 
+- [Official Trailer for Music Biopic 'Kylie' Doc Series About Kylie Minogue](https://www.firstshowing.net/2026/official-trailer-for-music-biopic-kylie-doc-series-about-kylie-minogue/) - First Showing
+- [Kylie Minogue’s Netflix Doc Now Has a Trailer: Stream It Now - billboard.com](https://www.billboard.com/music/pop/kylie-minogue-netflix-doc-trailer-stream-it-now-1236240216/) - Billboard
+- [Harry Styles sends fans wild with teaser for his new Dance No More music video as he licks microphone and wears tiny shorts](https://www.dailymail.com/tvshowbiz/article-15795919/Harry-Styles-Dance-No-music-video-licks-microphone.html) - Dailymail.com
+- [AI Roundup: Udio used YouTube music; Meta/Zuckerberg sued for infringement; ElevenLabs raises $500m](http://musically.com/2026/05/06/ai-roundup-udio-used-youtube-music-meta-zuckerberg-sued-for-infringement-elevenlabs-raises-500m/) - Music Ally
+- [DragonForce Announce Alissa White-Gluz as New Singer](https://consequence.net/2026/05/dragonforce-alissa-white-gluz-new-singer/) - Consequence.net
+- [Dragonforce Recruits Former Arch Enemy And The Agonist Vocalist Alissa White-Gluz](http://www.metalunderground.com/news/details.cfm?newsid=161345) - Metalunderground.com
+- [Alissa White-Gluz Joins DragonForce](https://exclaim.ca/music/article/alissa-white-gluz-joins-dragon-force) - Exclaim!
+- [Deep Purple Announce New Album SPLAT!, “Heaviest” Release in Many Years](https://consequence.net/2026/05/deep-purple-new-album-splat/) - Consequence.net
+- [Deep Purple Announces New Album "Splat!" And World Tour Dates](http://www.metalunderground.com/news/details.cfm?newsid=161344) - Metalunderground.com
+- [Songwriting legend Linda Perry to be honoured with special Ivor Novello award](https://www.the-independent.com/arts-entertainment/music/news/linda-perry-ivor-novello-award-b2971409.html) - The-independent.com
+- [Linda Perry to Receive Ivor Novello Awards’ Prestigious Songwriting Prize - billboard.com](https://www.billboard.com/music/awards/linda-perry-songwriting-prize-ivor-novello-awards-2026-1236239365/) - Billboard
+- [Power of ‘Dounana’, a song confronting power, is sparking conversations worldwide](https://indianexpress.com/article/news-today/power-of-dounana-a-song-confronting-power-is-sparking-conversations-worldwide-10676368/) - The Indian Express
+- [Manipulation im Musikbusiness: Ist ein Hit wirklich ein Hit?](https://www.dw.com/de/manipulation-im-musikbusiness-ist-ein-hit-wirklich-ein-hit/a-77033576) - DW (English)
+- [Indie music has been invaded by fake fans and cynical viral campaigns​. Here’s how deep it all goes - The Guardian](https://www.theguardian.com/music/2026/apr/29/geese-outcry-phoney-virality-music-fans-hype) - Theguardian
+- [Ace Frehley’s ‘Budokan’ Guitar, Kirk Hammett’s ‘Black Album’ Ouija Guitar Go to Action](http://www.rollingstone.com/music/music-news/johnny-cash-ace-frehley-kirk-hammett-guitar-auction-1235558448/) - Rolling Stone
+- [MUSIC ICONS: Julien's Presents a Landmark Rock and Roll Memorabilia Auction](https://www.prnewswire.com/news-releases/music-icons-juliens-presents-a-landmark-rock-and-roll-memorabilia-auction-302763723.html) - PRNewswire
+- [MUSIC ICONS: Julien's Presents a Landmark Rock and Roll Memorabilia Auction](https://www.prnewswire.com/news-releases/music-icons-juliens-presents-a-landmark-rock-and-roll-memorabilia-auction-302763745.html) - PRNewswire
+- [Jason Newsted Unboxes Metallica's New 'Reload' Box Set](https://loudwire.com/jason-newsted-unboxes-metallica-reload-box-set/) - Loudwire
+- [Metallica Releasing 15-CD 'Reload (Remastered)' Limited Edition Box Set - Billboard](https://www.billboard.com/music/rock/metallica-15-cd-reload-remastered-limited-edition-deluxe-box-1236234125/) - Billboard
+- [Mexican BTS fans go wild as concerts grow near](https://www.digitaljournal.com/world/mexican-bts-fans-go-wild-as-concerts-grow-near/article) - Digital Journal
+- [Mexican BTS fans go wild as concerts grow near](https://www.digitaljournal.com/entertainment/mexican-bts-fans-go-wild-as-concerts-grow-near/article) - Digital Journal
+- [BTS to Visit Mexico’s National Palace Ahead of Mexico City Concerts: ‘This Is for the Youth’ - billboard.com](https://www.billboard.com/music/latin/bts-visit-mexico-national-palace-before-shows-president-1236240615/) - Billboard
+- [BTS in Mexico: How the K-Pop Superstars’ Tour Became a State Affair - billboard.com](https://www.billboard.com/music/latin/bts-mexico-how-the-k-pop-giants-tour-became-a-state-affair-1236240489/) - Billboard
+- [K-pop stars BTS draw 50,000-strong crowd in Mexico - Yahoo](https://www.yahoo.com/entertainment/music/articles/k-pop-stars-bts-draw-015213254.html) - Yahoo
+- [Rosalía's LUX show is a transcendental celebration of the arts](https://www.thelineofbestfit.com/features/live/rosalia-lux-show-is-a-transcendental-celebration-of-the-arts) - Thelineofbestfit.com
+- [Yungblud Launches 2026 North American Tour with Explosive Performances: Photos, Video + Setlist](https://consequence.net/2026/05/yungblud-launches-north-american-tour-photos-video-setlist/) - Consequence.net
+- [This album unites the ‘Jackson Pollock and Agnes Martin’ of Chinese rap](https://www.dazeddigital.com/music/article/70213/1/bloodzebra-unites-jackson-pollock-and-agnes-martin-chinese-rap?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=this-album-unites-the-jackson-pollock-and-agnes-martin-of-chinese-rap) - Dazed
