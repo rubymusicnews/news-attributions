@@ -1,0 +1,42 @@
+# Sources for 2026-05-08 News Episode 
+- [‘Billie Eilish – Hit Me Hard and Soft: The Tour’ Review: James Cameron Captures the Singer in 3D, and in All Her Doomy Grandeur](https://www.indiewire.com/criticism/movies/billie-eilish-hit-me-hard-and-soft-the-tour-movie-review-1235192691/) - IndieWire
+- [‘Billie Eilish – Hit Me Hard and Soft: The Tour (Live in 3D)’ Review: James Cameron Helps Make Concert Experience Personal](https://www.thewrap.com/creative-content/reviews/billie-eilish-hit-me-hard-and-soft-the-tour-live-in-3d-review-james-cameron/) - TheWrap
+- [Billie Eilish Drops New ‘Hit Me Hard and Soft: The Tour’ Film Trailer - Billboard](https://www.billboard.com/music/music-news/billie-eilish-new-hit-me-hard-and-soft-the-tour-film-trailer-1236221727/) - Billboard
+- [Movie Review: Billie Eilish and James Cameron make concert movie magic with 'Hit Me Hard and Soft' - Greenwich Time](https://www.greenwichtime.com/entertainment/article/movie-review-billie-eilish-and-james-cameron-22247000.php) - Greenwichtime
+- [Billie Eilish – Hit Me Hard and Soft: The Tour review – style trumps substance in James Cameron’s 3D oddity - The Guardian](https://www.theguardian.com/music/2026/may/07/billie-eilish-james-cameron-concert-film-review) - Theguardian
+- [Billie Eilish puts Manchester at centre of new 3D concert film - BBC](https://www.bbc.com/news/articles/c794wv4rd50o) - Bbc
+- [The Radical Life and Surprising Reinvention of Steve Albini](http://www.rollingstone.com/music/music-features/steve-albini-life-legacy-1235556700/) - Rolling Stone
+- [The Radical Life and Surprising Reinvention of Steve Albini - Rolling Stone](https://www.rollingstone.com/music/music-features/steve-albini-life-legacy-1235556700/) - Rollingstone
+- [This Reggae Band Is in a Nightmare Battle Against AI Slop Remixes](https://www.wired.com/story/this-reggae-band-is-in-a-nightmare-battle-against-ai-slop-remixes/) - Wired
+- [Billie Eilish and Nat Wolff make red carpet debut at her ‘Hit Me Hard and Soft: The Tour’ concert movie premiere](https://pagesix.com/2026/05/07/entertainment/billie-eilish-and-nat-wolff-make-red-carpet-debut-at-her-hit-me-hard-and-soft-the-tour-concert-movie-premiere/) - Page Six
+- [Surprise! Billie Eilish & Nat Wolff Just Hard Launched Their Relationship on the Red Carpet](https://www.brit.co/nat-wolff-billie-eilish-movie-premiere/) - Brit + Co
+- [Inside Nat Wolff and Billie Eilish's Low-Key Relationship](https://www.usmagazine.com/celebrity-news/news/are-nat-wolff-billie-eilish-dating-relationship-explained/) - Us Weekly
+- [Billie Eilish & Boyfriend Nat Wolff Make Red Carpet Debut at Her Concert Movie Premiere in L.A. - Just Jared](https://www.justjared.com/2026/05/06/billie-eilish-boyfriend-nat-wolff-make-red-carpet-debut-at-her-concert-movie-premiere-in-l-a/) - Justjared
+- [Billie Eilish and Nat Wolff make red carpet debut at ‘Hit Me Hard and Soft: The Tour’ premiere - Entertainment Weekly](https://ew.com/billie-eilish-and-nat-wolff-debut-romance-at-hit-me-hard-and-soft-premiere-11969791) - Ew
+- [Billie Eilish and Nat Wolff Made Their Red-carpet Debut - The Cut](https://www.thecut.com/article/billie-eilish-nat-wolff-made-red-carpet-debut.html) - Thecut
+- [Billie Eilish and Nat Wolff Hit Hard Launch With Their Red Carpet Debut - Vogue](https://www.vogue.com/article/billie-eilish-nat-wolff-relationship-timeline) - Vogue
+- [Big Freedia Reveals Collaborative EP With SOPHIE](https://www.spinmagazine.com/2026/05/big-freedia-sophie-ep/) - Spinmagazine.com
+- [SOPHIE and Big Freedia are dropping a joint EP this summer](https://www.thefader.com/2026/05/07/sophie-big-freedia-joint-summer-2026) - The FADER
+- [Paramount Pictures & Warner Music Group Ink Multi-Year First-Look Deal For Theatrical Pics Based On Performing Artists](http://deadline.com/2026/05/paramount-warner-music-group-movies-deal-1236886107/) - Deadline
+- [Paramount Signs Film Deal for Potential Biopics With Warner Music Group](https://www.thewrap.com/creative-content/movies/paramount-warner-music-group-production-deal/) - TheWrap
+- [Paramount and Warner Music Team Up for Movies About Artists and Songwriters - Variety](https://variety.com/2026/film/news/paramount-warner-music-music-biopics-1236740663/) - Variety
+- [Paramount and Warner Music team up to make more music-focused movies - Los Angeles Times](https://www.latimes.com/entertainment-arts/business/story/2026-05-08/paramount-warner-music-partner-to-make-more-music-movies) - Latimes
+- [Paramount, Warner Music Ink Deal For Movies Based On Performing Artists - Deadline](https://deadline.com/2026/05/paramount-warner-music-group-movies-deal-1236886107/) - Deadline
+- [Paramount Signs First-Look Deal With Warner Music For Film Content - The Hollywood Reporter](https://www.hollywoodreporter.com/music/film-tv-music-news/paramount-announces-first-look-deal-with-warner-music-group-1236589190/) - Hollywoodreporter
+- [Hayley Williams Goes Global With Latest Solo Tour](https://www.spinmagazine.com/2026/05/hayley-williams-solo-tour-expanded/) - Spinmagazine.com
+- [Hayley Williams Launches Second Tour of 2026](https://pitchfork.com/news/hayley-williams-announces-fall-tour-2026/) - Pitchfork
+- [Hayley Williams Announces “The Hayley Williams Show” Tour](https://consequence.net/2026/05/hayley-williams-new-2026-tour-dates/) - Consequence.net
+- [2000s rock star adds extra Bay Area show ahead of sold-out Oakland run - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/hayley-williams-concert-22247515.php) - Sfchronicle
+- [Morgan Wallen Charts A Milestone No. 1 Hit Alongside Another Superstar](https://www.forbes.com/sites/hughmcintyre/2026/05/07/morgan-wallen-charts-a-milestone-no-1-hit-alongside-another-superstar/) - Forbes
+- [Ella Langley Charts The Second-Biggest Hit Of Her Career — With Some Help](https://www.forbes.com/sites/hughmcintyre/2026/05/07/ella-langley-charts-the-second-biggest-hit-of-her-career---with-some-help/) - Forbes
+- [Ella Langley, Morgan Wallen 'I Can’t Love You Anymore' Hot 100 Top 10 - Billboard](https://www.billboard.com/music/chart-beat/ella-langley-morgan-wallen-i-cant-love-you-anymore-hot-100-1236238371/) - Billboard
+- [Listen to TYGAPAW’s ‘groove-oriented techno’ Dazed mix](https://www.dazeddigital.com/music/article/70216/1/dazed-mix-tygapaw-new-york-dj-techno-groove-queer-trans-liberation?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=listen-to-tygapaw-s-groove-oriented-techno-dazed-mix) - Dazed
+- [Gene Simmons Reveals KISS Just Recorded a New Song](https://consequence.net/2026/05/gene-simmons-kiss-new-song/) - Consequence.net
+- [Meet The Beatles! Cast Unveiled For BBC/ZDF Series ‘Hamburg Days,’ Depicting Band’s Early Years](http://deadline.com/2026/05/meet-the-beatles-cast-bbc-zdf-hamburg-days-1236886520/) - Deadline
+- [The Beatles Drama Series ‘Hamburg Days’ Reveals Key Cast and First Look Images as Shooting Starts - Variety](https://variety.com/2026/music/global/the-beatles-hamburg-days-key-cast-1236740945/) - Variety
+- [BBC Beatles Series ‘Hamburg Days’ Finds Its Fab Four - The Hollywood Reporter](https://www.hollywoodreporter.com/tv/tv-news/bbc-beatles-series-hamburg-days-1236589480/) - Hollywoodreporter
+- [18 rappers we can’t wait to see at Rolling Loud](https://www.thefader.com/2026/05/07/18-rappers-we-cant-wait-to-see-at-rolling-loud) - The FADER
+- ['I want to see us on stage together': Mel C says she hasn't given up on hopes for a Spice Girls reunion tour and vows to headline Glastonbury](https://www.dailymail.com/tvshowbiz/article-15798087/mel-c-spice-girls-reunion-morning-itv.html) - Dailymail.com
+- [20 Questions With Melanie C: ‘I Feel Like Raving Really Shaped Myself & The Other Spice Girls’ - Billboard](https://www.billboard.com/music/pop/melanie-c-interview-new-dance-album-sweat-spice-girls-1236236747/) - Billboard
+- [Father John Misty Releases Psychedelic New Song “The Payoff”: Stream](https://consequence.net/2026/05/father-john-misty-new-song-the-payoff/) - Consequence.net
+- [Father John Misty To Play One Night Only London Show In June, Shares New Song The Payoff](https://www.stereoboard.com/content/view/251463/9) - Stereoboard
