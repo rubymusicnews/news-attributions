@@ -1,0 +1,41 @@
+# Sources for 2026-05-09 News Episode 
+- [Shakira teases official Fifa World Cup anthem ‘Dai Dai’ with minute-long clip filmed at Rio stadium](https://www.the-independent.com/arts-entertainment/music/news/shakira-dai-dai-fifa-world-cup-b2973059.html) - The-independent.com
+- [Report: Katy Perry, Future, J Balvin To Rock FIFA](https://www.spinmagazine.com/2026/05/fifa-world-cup-performers/) - Spinmagazine.com
+- [Shakira teases new song for the FIFA World Cup 2026 with Afrobeats star Burna Boy called 'Dai Dai' - Greenwich Time](https://www.greenwichtime.com/sports/article/shakira-teases-new-song-for-the-fifa-world-cup-22247414.php) - Greenwichtime
+- [Shakira teases new song for the FIFA World Cup 2026 with Afrobeats star Burna Boy called 'Dai Dai' - AP News](https://apnews.com/article/shakira-burna-boy-2026-world-cup-anthem-ae2d0a9575495042f2676cea1f299d8b) - Apnews
+- [Shakira Unveils Official 2026 World Cup Song 'Dai Dai' With Burna Boy - HuffPost](https://www.huffpost.com/entry/shakira-world-cup-song-2026_n_69fd7db0e4b0cb033e510466) - Huffpost
+- [Watch Shakira Tease ‘Dai Dai,’ the Official 2026 FIFA World Cup Song With Burna Boy - Billboard Canada](https://ca.billboard.com/music/latin/shakira-dai-dai-2026-fifa-world-cup-song-burna-boy-teaser-1236241647/) - Billboard
+- [13 New Albums You Should Listen to Now: Aldous Harding, Broken Social Scene, and More](https://pitchfork.com/news/13-new-albums-you-should-listen-to-now-aldous-harding-broken-social-scene/) - Pitchfork
+- [Staff Picks: Best Songs of the Week May 2nd – May 8th](https://consequence.net/2026/05/best-songs-of-the-week-may-2nd-may-8th/) - Consequence.net
+- [Billie Eilish hits Roblox’s ‘The Block’](http://musically.com/2026/05/08/billie-eilish-hits-robloxs-the-block/) - Music Ally
+- [Beastie Boys’ Mike D Debuts New Material in Rare Intimate Solo Show](http://www.rollingstone.com/music/music-live-reviews/beastie-boys-mike-d-new-songs-rare-solo-show-los-angeles-1235559585/) - Rolling Stone
+- [Mike D’s home studio experiment becomes first new music from a Beastie Boy since 2011](https://www.thelineofbestfit.com/news/mike-ds-home-studio-experiment-becomes-first-new-music-from-a-beastie-boy-since-2011) - Thelineofbestfit.com
+- [Beastie Boys’ Mike D Reveals Debut Solo Single](https://pitchfork.com/news/beastie-boys-mike-d-reveals-debut-solo-single/) - Pitchfork
+- [Mike D Releases Debut Solo Single “Switch Up”: Stream](https://consequence.net/2026/05/mike-d-debut-single-switch-up/) - Consequence.net
+- [Mike D Makes The ‘Switch’ With First Solo Track](https://www.spinmagazine.com/2026/05/mike-d-first-solo-music/) - Spinmagazine.com
+- [Michael Jackson Owns 60% Of The Top 10 On One Chart This Week](https://www.forbes.com/sites/hughmcintyre/2026/05/08/michael-jackson-owns-60-of-the-top-10-on-one-chart-this-week/) - Forbes
+- [Linda Perry: ‘I can’t believe I’ve allowed this film about me to come out’](https://www.the-independent.com/arts-entertainment/music/features/linda-perry-interview-let-it-die-here-4-non-blondes-b2971700.html) - The-independent.com
+- [Linda Perry to LGBTQ+ people: Keep 'fighting' against 'moron' Donald Trump](https://www.out.com/gay-music/linda-perry-let-it-die-here) - Out.com
+- [‘Linda Perry: Let It Die Here’ Timed To New Album, Tony Leung In ‘Silent Friend’, ‘Blue Film’ & ‘Influenced’ – Specialty Preview](http://deadline.com/2026/05/indie-films-opening-linda-perry-let-it-die-here-blue-film-1236888638/) - Deadline
+- [She’s written hits for everyone else. Now, at 62, Linda Perry is ready for herself - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-05-07/linda-perry-let-it-die-here-new-album-4-non-blondes) - Latimes
+- [Linda Perry: ‘I can’t believe I’ve allowed this film about me to come out’ - The Independent](https://www.independent.co.uk/arts-entertainment/music/features/linda-perry-interview-let-it-die-here-4-non-blondes-b2971700.html) - Independent
+- [Live Nation, Ticketmaster vow to fight breakup after monopoly verdict](https://www.cbc.ca/news/investigates/live-nation-executive-exclusive-9.7191295) - CBC News
+- [Does the Live Nation Verdict Mean That I Can Expect Lower Ticket Prices? - FindLaw](https://www.findlaw.com/legalblogs/law-and-life/does-the-live-nation-verdict-mean-that-i-can-expect-lower-ticket-prices/) - Findlaw
+- [Pink Floyd’s Latest Release Surges Into The Top 10 On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/05/08/pink-floyds-latest-release-surges-into-the-top-10-on-multiple-charts/) - Forbes
+- [Linkin Park’s Earl-Career Smash Reaches A Decade As A Bestseller](https://www.forbes.com/sites/hughmcintyre/2026/05/08/linkin-parks-earl-career-smash-reaches-a-decade-as-a-bestseller/) - Forbes
+- [First joint Gallagher interviews in 25 years to feature in Oasis doc from Peaky Blinders writer Steven Knight](https://www.thelineofbestfit.com/news/first-joint-gallagher-interviews-in-25-years-to-feature-in-oasis-doc-from-peaky-blinders-writer-steven-knight) - Thelineofbestfit.com
+- [Oasis Tour Documentary Coming to Disney+ Features Liam and Noel Gallagher’s First Joint Interview in Decades](https://www.indiewire.com/news/breaking-news/oasis-tour-documentary-liam-noel-gallagher-joint-interview-1235192857/) - IndieWire
+- [Oasis Reunion Tour Documentary Headed to Theaters This September](https://consequence.net/2026/05/oasis-reunion-tour-documentary-theaters-september-disney/) - Consequence.net
+- [The Oasis Reunion Tour Doc Is Coming to Theaters But No Longer Has a Title](https://pitchfork.com/news/oasis-reunion-concert-documentary-theaters-disney-plus-hulu/) - Pitchfork
+- [Oasis Tour Documentary to Release in Imax and Movie Theaters Before Disney+ Launch - Variety](https://variety.com/2026/film/global/oasis-tour-doc-release-imax-and-movie-theaters-disney-1236741639/) - Variety
+- [Oasis Tour Documentary to Release in Imax and Movie Theatres Before Disney+ Launch - Variety Australia](https://au.variety.com/2026/film/news/oasis-tour-doc-release-imax-and-movie-theaters-disney-36376/) - Variety
+- [Oasis documentary to show first Gallagher brothers interview in 25 years - BBC](https://www.bbc.com/news/articles/c0q2n5e20xjo) - Bbc
+- [Disney Confirms Oasis Documentary & September 11 Premiere Date - Deadline](https://deadline.com/2026/05/disney-confirms-steven-knight-oasis-doc-premiere-date-1236887945/) - Deadline
+- [Live Nation pushes back on ‘blue dot fever’: ‘It’s a normal touring year’](http://musically.com/2026/05/08/live-nation-pushes-back-on-blue-dot-fever-its-a-normal-touring-year/) - Music Ally
+- [‘Blue dot fever’ spreads as major concert tours get canceled. What does it mean? - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/blue-dot-fever-concert-tour-cancellations-22248165.php) - Sfchronicle
+- [Live Nation posts upbeat quarterly revenue on steady demand for concerts - Reuters](https://www.reuters.com/business/media-telecom/live-nation-posts-upbeat-quarterly-revenue-steady-demand-concerts-2026-05-05/) - Reuters
+- [Live Nation Has Strong Q1 Despite $450 Million Hit From DOJ Settlement - Variety](https://variety.com/2026/music/news/live-nation-first-quarter-earnings-450-million-hit-doj-suit-1236738569/) - Variety
+- [Music Industry Moves: Angine de Poitrine Signs With Third Side Music Publishing; the War and Treaty Pact With Atlantic Outpost](https://variety.com/2026/music/news/angine-de-poitrine-signs-with-third-side-publishing-1236742012/) - Variety
+- [Mick Jagger Reveals Which Zara Larsson Song Got Him Hooked on Her Music](http://www.rollingstone.com/music/music-news/mick-jagger-zara-larsson-fan-1235560103/) - Rolling Stone
+- [Kesha Releases New Single “ORIGAMI!” Ahead of Summer Tour](https://consequence.net/2026/05/kesha-releases-origami-before-summer-tour/) - Consequence.net
+- [Kesha declares she’s moving to S.F. during secret DJ set - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/kesha-san-francisco-22236666.php) - Sfchronicle
