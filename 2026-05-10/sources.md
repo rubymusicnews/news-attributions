@@ -1,0 +1,29 @@
+# Sources for 2026-05-10 News Episode 
+- [Janet Jackson Calls for Peace, George Clinton Performs With Erykah Badu at Grammy Hall of Fame Gala](https://variety.com/2026/music/news/janet-jackson-george-clinton-grammy-hall-of-fame-gala-1236742358/) - Variety
+- [Janet Jackson Calls for Peace, George Clinton Performs With Erykah Badu at Grammy Hall of Fame Gala - Variety Australia](https://au.variety.com/2026/music/news/janet-jackson-george-clinton-grammy-hall-of-fame-gala-36385/) - Variety
+- [Janet Jackson to appear at Grammy Hall of Fame Gala for induction of 'Rhythm Nation 1814' - AOL.com](https://www.aol.com/news/janet-jackson-appear-grammy-hall-143430545.html) - Aol
+- [WHERE THE STREETS HAVE NO NOMBRE: U2 invite people in Mexico City to an as-yet undisclosed location - and the reason why is bound to get fans of the legendary Dublin band VERY excited...](https://www.dailymail.com/tvshowbiz/article-15804717/WHERE-STREETS-NO-NOMBRE-U2-invite-people-Mexico-City-undisclosed-location-reason-bound-fans-legendary-Dublin-band-excited.html) - Dailymail.com
+- [Don Toliver Rolling Loud Orlando Performance Recap](http://www.billboard.com/music/rb-hip-hop/don-toliver-rolling-loud-orlando-night-one-recap-1236243411/) - Billboard
+- [Phoebe Bridgers Debuts New Music at First Show in Three Years](https://consequence.net/2026/05/phoebe-bridgers-new-mexico-comeback-concert/) - Consequence.net
+- [Noah Kahan on Phoebe Bridgers’ Return: ‘I Can’t Wait for Whatever She Does Next’](http://www.rollingstone.com/music/music-news/noah-kahan-response-phoebe-bridgers-return-1235560247/) - Rolling Stone
+- [What new music did Phoebe Bridgers debut? #entertainment](https://alltoc.com/entertainment/what-new-music-did-phoebe-bridgers-debut) - Alltoc.com
+- [World Cup to hold trio of star-studded opening ceremonies](https://japantoday.com/category/2026-fifa-world-cup/world-cup-to-hold-trio-of-star-studded-opening-ceremonies) - Japan Today
+- [Maná, Alejandro Fernández, J Balvin & More to Open the FIFA World Cup 2026 in Mexico - Billboard](https://www.billboard.com/music/latin/mana-j-balvin-and-more-to-open-fifa-world-cup-2026-mexico-1236243397/) - Billboard
+- [Katy Perry, Future & LISA to Perform at World Cup Opening Ceremonies - Billboard](https://www.billboard.com/music/music-news/world-cup-2026-opening-ceremonies-1236243169/) - Billboard
+- [World Cup 2026: Katy Perry & Michael Buble among performers at three opening ceremonies - BBC](https://www.bbc.com/sport/football/articles/cpvpr90vn01o) - Bbc
+- [FIFA to hold three World Cup opening ceremonies and two marking America 250, artists revealed - The New York Times](https://www.nytimes.com/athletic/7262593/2026/05/08/fifa-opening-ceremonies-perry-buble-america-250/) - Nytimes
+- [Latto Announces Retirement Album: Thank You for Everything!](https://mediatakeout.com/latto-announces-retirement-after-album-release/) - Mediatakeout.com
+- [Latto Says ‘Big Mama’ Album Will Be Her Last: ‘My Retirement Album’ - Billboard](https://www.billboard.com/music/rb-hip-hop/latto-big-mama-album-retirement-1236243080/) - Billboard
+- [Left Brain and LDog Blur reality and emotion on the new single “dream” featuring Ajoshd](https://earmilk.com/2026/05/09/left-brain-and-ldog-blur-reality-and-emotion-on-the-new-single-dream-featuring-ajoshd/) - Earmilk.com
+- [Neurolapse refuses the formula with electrifying new EDM release “Drop Me”](https://earmilk.com/2026/05/09/neurolapse-refuses-the-formula-with-electrifying-new-edm-release-drop-me/) - Earmilk.com
+- [The Fabulous Thunderbirds – The Jimmie Vaughan Years: Complete Studio Recordings 1978-1989 (2025)](https://exystence.net/blog/2026/05/09/the-fabulous-thunderbirds-the-jimmie-vaughan-years-complete-studio-recordings-1978-1989-2025/) - Exystence.net
+- [(PHOTO) Olivia Rodrigo Stuns in FC Barcelona Kit as Spotify Collaboration Sparks Viral Frenzy](https://www.ibtimes.com.au/photo-olivia-rodrigo-stuns-fc-barcelona-kit-spotify-collaboration-sparks-viral-frenzy-1868479) - Ibtimes.com.au
+- ['Brutal' For Barcelona! Olivia Rodrigo Inspires El Clásico Kit vs. Real Madrid - FOX Sports](https://amp.foxsports.com/stories/soccer/olivia-rodrigo-gets-the-clasico-treatment-barcelona-reveal-latest-kit-collaboration-as-brutal-pop-star-follows-in-the-footsteps-of-ed-sheeran-travis-scott-drake) - Foxsports
+- [Olivia Rodrigo Drops FC Barcelona Jersey, Announces Intimate Concert - billboard.com](https://www.billboard.com/music/music-news/olivia-rodrigo-fc-barcelona-el-clasico-jersey-concert-1236237169/) - Billboard
+- [🚨 Official: Barça unveil special shirt for El Clasico! - Yahoo Sports](https://sports.yahoo.com/articles/official-bar-unveil-special-shirt-075000405.html) - Yahoo
+- [Barcelona to feature Olivia Rodrigo as shirt sponsor vs. Real Madrid - ESPN](https://www.espn.com/football/story/_/id/48637344/barcelona-feature-olivia-rodrigo-shirt-sponsor-vs-real-madrid) - Espn
+- [Rising Pop Star Eli Comes for Taylor Swift, Calls Her "The Jeff Bezos of the Music Industry"](https://ohnotheydidnt.livejournal.com/132318976.html) - Livejournal.com
+- [Adekunle Gold releases deluxe album ‘Fuji Xtra’, features Olamide](https://www.premiumtimesng.com/entertainment/music/878079-adekunle-gold-releases-deluxe-album-fuji-xtra-features-olamide.html) - Premium Times
+- [Denise Marsa discusses "HOLE," creative independence, and the themes behind upcoming album 'RISK + HEAL' [Interview]](https://earmilk.com/2026/05/09/denise-marsa-discusses-hole-creative-independence-and-the-themes-behind-upcoming-album-risk-heal-interview/) - Earmilk.com
+- [Billboard - May 9, 2026](https://post.rlsbb.to/billboard-may-9-2026/) - Rlsbb.to
+- [Steel Panther Unveils "The Mother's Day Song" Music Video](http://www.metalunderground.com/news/details.cfm?newsid=161365) - Metalunderground.com
