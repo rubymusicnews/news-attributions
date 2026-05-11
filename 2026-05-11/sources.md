@@ -1,0 +1,32 @@
+# Sources for 2026-05-11 News Episode 
+- [Everything We Know About Ariana Grande’s New Album ‘Petal’](http://www.rollingstone.com/music/music-features/ariana-grande-petal-everything-we-know-1235559416/) - Rolling Stone
+- [Ariana Grande Announces New Album ‘Petal’ About ‘Growing’ Through a ‘Challenging’ Experience - Billboard](https://www.billboard.com/music/music-news/ariana-grande-new-album-petal-release-date-1236233381/) - Billboard
+- [Ariana Grande announces highly anticipated new album, ‘Petal’ - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-04-28/ariana-grande-new-album-petal) - Latimes
+- [Ariana Grande Announces New Album ‘Petal’ and Sets Summer Release Date - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/ariana-grande-announces-new-album-petal-release-date-1236579071/) - Hollywoodreporter
+- [Ariana Grande's 'Hate That I Made You Love' Song Drops in May - Variety](https://variety.com/2026/music/news/ariana-grande-hate-that-i-made-you-love-me-song-may-release-1236741601/) - Variety
+- [Ariana Grande announces 1st single, ‘Hate That I Made You Love Me,’ off new album ‘Petal’ - Yahoo](https://www.yahoo.com/entertainment/music/article/ariana-grande-announces-1st-single-hate-that-i-made-you-love-me-off-new-album-petal-163500978.html) - Yahoo
+- [Ariana Grande Announces New Album ‘Petal’ and Sets July Release Date - Variety](https://variety.com/2026/music/news/ariana-grande-new-album-petal-july-1236732211/) - Variety
+- [BTS’s “ARIRANG” Spends Record-Breaking 7th Week In Top 10 Of Billboard 200](http://www.soompi.com/article/1839892wpp/btss-arirang-spends-record-breaking-7th-week-in-top-10-of-billboard-200) - soompi
+- [Bruno Mars’s Latest No. 1 Is Almost His Longest-Running Champion](https://www.forbes.com/sites/hughmcintyre/2026/05/10/bruno-marss-latest-no-1-is-almost-his-longest-running-champion/) - Forbes
+- [Bruno Mars Ties One Of His Own Longest Runs At No. 1 With His Latest Smash - Yahoo](https://www.yahoo.com/entertainment/music/articles/bruno-mars-ties-one-own-154430588.html) - Yahoo
+- [Bruno Mars Ties One Of His Own Longest Runs At No. 1 With His Latest Smash - Yahoo News Malaysia](https://malaysia.news.yahoo.com/bruno-mars-ties-one-own-154430588.html) - Yahoo
+- [‘SNL’: Watch Noah Kahan Perform ‘The Great Divide,’ ‘Doors’](http://www.rollingstone.com/music/music-news/snl-watch-noah-kahan-perform-great-divide-doors-1235560165/) - Rolling Stone
+- [Para Las Mamás: Latin Artists on Their Favorite Mother’s Day Songs](http://www.rollingstone.com/music/music-latin/mothers-day-songs-latin-artists-1235560331/) - Rolling Stone
+- [Metallica and 80,000 fans caused an “earthquake” at OAKA – Everything that happened at the biggest concert of the year in Athens (videos-photos)](https://en.protothema.gr/2026/05/10/metallica-and-80000-fans-caused-an-earthquake-at-oaka-everything-that-happened-at-the-biggest-concert-of-the-year-in-athens-videos-photos/) - Protothema.gr
+- [Beyonce Prepares To RELEASE New Rock Album … EXCLUSIVE Details!](https://www.cheatsheet.com/news/beyonce-set-release-something-big-following-met-gala-return.html/#article) - Showbiz Cheat Sheet
+- [Beyoncé says Met Gala return with daughter Blue Ivy feels 'surreal' - USA Today](https://www.usatoday.com/story/entertainment/celebrities/2026/05/04/beyonce-met-gala-with-daughter-blue-ivy-interview/89875946007/) - Usatoday
+- [Beyoncé Set to Release ‘Something Big’ Following Her Met Gala Return - Showbiz Cheat Sheet](https://www.cheatsheet.com/news/beyonce-set-release-something-big-following-met-gala-return.html/) - Cheatsheet
+- [How Close Are We Really to Beyoncé’s Act III? - AOL.com](https://www.aol.com/articles/close-really-beyonc-act-iii-183512811.html) - Aol
+- [K-pop group Fifty Fifty gave global preview of new song at first performance in Singapore](https://www.straitstimes.com/life/entertainment/k-pop-group-fifty-fifty-gave-global-preview-of-new-song-at-first-performance-in-singapore) - The Straits Times
+- [Dua Lipa sues Samsung for £11million after they used her face on their TV packaging 'without permission'](https://www.dailymail.com/news/article-15806287/Dua-Lipa-sues-Samsung-used-face-without-permission.html) - Dailymail.com
+- [Dua Lipa Sues Samsung for $15 Million for Using Her Face to Sell TVs](http://www.hollywoodreporter.com/music/music-news/dua-lipa-sues-samsung-15-million-using-face-sell-tvs-1236591518/) - Hollywood Reporter
+- [Dua Lipa sues Samsung for $15 million for allegedly using her image to sell TVs - Reuters](https://www.reuters.com/legal/litigation/dua-lipa-sues-samsung-15-million-allegedly-using-her-image-sell-tvs-2026-05-11/) - Reuters
+- [Dua Lipa Sues Samsung for $15 Million Over TV Packaging - Pitchfork](https://pitchfork.com/news/dua-lipa-sues-samsung-for-15-million-over-tv-packaging/) - Pitchfork
+- [Dua Lipa Sues Samsung For $15 Million For Allegedly Using Her Face To Sell TVs - HuffPost](https://www.huffpost.com/entry/dua-lipa-sues-samsung-electronics_n_6a015f97e4b0cb033e526511/amp) - Huffpost
+- [Dua Lipa sues Samsung for $15m over use of her image on TV boxes - BBC](https://www.bbc.com/news/articles/ce9pvp210zdo) - Bbc
+- [Westlife perform live on Britain's Got Talent as they celebrate the band's 25th anniversary during semi-final](https://www.dailymail.com/tvshowbiz/article-15804893/Westlife-Britains-Got-Talent-25th-anniversary-semi-final.html) - Dailymail.com
+- [Zara Larsson suffers major wardrobe malfunction during live TV performance... but powers through and keeps dancing](https://www.dailymail.com/tvshowbiz/article-15804753/zara-larsson-wardrobe-malfunction-today-summer-show.html) - Dailymail.com
+- [Rita Wilson on Her ‘Sound of a Woman’ Album, Growing Up a Music Lover in L.A. and the Advice From Nora Ephron and Bruce Springsteen That Kickstarted Her Second Act](https://variety.com/2026/music/news/rita-wilson-music-sound-woman-album-interview-1236741922/) - Variety
+- [Sarah Jane Nicholson reflects on 6 years of Africa Rising Music Conference](https://gq.co.za/culture/entertainment/2026-05-10-sarah-jane-nicholson-reflects-on-6-years-of-africa-rising-music-conference/) - Gq.co.za
+- [Don’t Forget About Us! Mariah Carey & Anderson .Paak Spark Rekindle Romance Rumors After Movie Date](https://bossip.com/4563664/mariah-carey-anderson-paak-spark-rekindle-romance-rumors/) - Bossip
+- [Mariah Carey, 57, and Anderson .Paak, 40, reignite dating rumors](https://www.nydailynews.com/2026/05/08/mariah-carey-anderson-paak-reignite-dating-rumors/) - Nydailynews
