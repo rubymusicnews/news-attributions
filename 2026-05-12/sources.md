@@ -1,0 +1,43 @@
+# Sources for 2026-05-12 News Episode 
+- [Warner Music Earnings Surged To $1.7B In First Quarter](https://www.musicbusinessworldwide.com/warner-music-group-generated-1-73bn-in-calendar-q1-2026-subscription-streaming-revenues-rose-12-7-yoy/) - Music Business Worldwide
+- [Warner Music Posts $1.7B in Revenue for Q2 in 2026 - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/warner-music-revenue-increase-q2-2026-1236589492/) - Hollywoodreporter
+- [Eurovision 2026: How Israel Became Eurovision’s Biggest Controversy](https://www.forbes.com/sites/hannahabraham/2026/05/11/eurovision-2026-how-israel-became-eurovisions-biggest-controversy/) - Forbes
+- [Which countries have dropped out of Eurovision 2026 and why?](https://www.the-independent.com/arts-entertainment/eurovision/eurovision-2026-israel-boycott-spain-ireland-b2974125.html) - The-independent.com
+- [Eurovisie Songfestival begint in Wenen onder hoogspanning aan jubileumeditie](https://www.nrc.nl/nieuws/2026/05/11/eurovisie-songfestival-begint-in-wenen-onder-hoogspanning-aan-jubileumeditie-a4927434) - Www.nrc.nl
+- [Delta 'proud' to be at Eurovision as five nations boycott competition](https://www.abc.net.au/news/2026-05-12/eurovision-begins-amid-boycotts-over-israel-participation/106668056) - ABC News (AU)
+- [Eurovision 2026 is here - but will the Israel boycott spoil the show? - BBC](https://www.bbc.com/news/articles/cqxp4959nwro) - Bbc
+- [Inside Israel’s Eurovision 2026 mission: boos, boycotts, security and hopes of victory - ynetnews](https://www.ynetnews.com/magazine/article/rk2ui00fcbl) - Ynetnews
+- [Europe: Failure to suspend Israel from Eurovision betrays humanity and exposes blatant double standards - Amnesty International](https://www.amnesty.org/en/latest/news/2026/05/europe-failure-to-suspend-israel-from-eurovision-betrays-humanity-and-exposes-blatant-double-standards/) - Amnesty
+- [Eurovision 2026: How Israel Became Eurovision’s Biggest Controversy](https://uk.news.yahoo.com/eurovision-2026-israel-became-eurovision-162611911.html) - Yahoo
+- [Eurovision Issues Formal Warning After Israel’s ‘Vote 10 Times’ Campaign Video](https://www.huffingtonpost.co.uk/entry/eurovision-2026-israel-formal-warning_uk_6a01a1f3e4b06e786e3f41d3) - Huffingtonpost
+- [Red Hot Chili Peppers verkaufen Musikkatalog für 300 Millionen Dollar an Warner](https://www.visions.de/news/red-hot-chili-peppers-verkaufen-musikkatalog-fuer-300-millionen-dollar/) - Visions.de
+- [Red Hot Chili Peppers Ink $300 Million-Plus Deal With Warner Music to Sell Catalog (Exclusive) - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/wmg-acquired-red-hot-chili-peppers-catalog-for-350-million-1236589567/) - Hollywoodreporter
+- [Red Hot Chili Peppers Sells Recorded Music Catalog to WMG for Over $300 Million - Billboard](https://www.billboard.com/pro/red-hot-chili-peppers-sells-recorded-catalog-warner-music/) - Billboard
+- [Rihanna’s Nearly 20-Year-Old Single Dances To A New Chart Peak](https://www.forbes.com/sites/hughmcintyre/2026/05/11/rihannas-nearly-20-year-old-single-dances-to-a-new-chart-peak/) - Forbes
+- [Drake Rumored To Have Filmed At CN Tower As ‘ICEMAN’ Rollout Continues](https://hiphopwired.com/3053784/drake-cn-tower/) - Hip-Hop Wired
+- [Drake's Iceman Rollout: Why the Toronto Ice Stunt Is a Landmark Moment in Music Marketing - ProCapitas](https://www.procapitas.com/news/entertainment/drakes-iceman-album-rollout-toronto-ice-stunt-music-marketing-may-2026) - Procapitas
+- [Drake Announces ‘Iceman’ Episode 4 Livestream Date - billboard.com](https://www.billboard.com/music/rb-hip-hop/drake-iceman-episode-4-date-livestream-1236241082/) - Billboard
+- [Drake’s Toronto Mansion Gets Virtually Iced Out in Pics Ahead of ‘Iceman’ Album Release - billboard.com](https://www.billboard.com/music/rb-hip-hop/drake-toronto-mansion-virtually-iced-out-pics-iceman-album-1236240231/) - Billboard
+- [Drake Announces ‘Iceman’ Episode 4 Livestream Date - Billboard Canada](https://ca.billboard.com/music/rb-hip-hop/drake-iceman-episode-4-date-livestream-1236241082/) - Billboard
+- [Charli XCX revient avec un l’hypermorceau “Rock Music” et un inédit sorti en secret](https://www.lesinrocks.com/musique/charli-xcx-revient-avec-un-lhypermorceau-rock-music-et-un-inedit-sorti-en-secret-695291-11-05-2026/) - Les Inrocks
+- [Charli xcx Shares ‘Rock Music’ Song Teaser, Says She’s Not Making a Rock Album - billboard.com](https://www.billboard.com/music/music-news/charli-xcx-rock-music-song-not-album-1236237667/) - Billboard
+- [Charli XCX Returns With New Single ‘Rock Music,’ and Yup, It Rocks - Rolling Stone](https://www.rollingstone.com/music/music-news/charli-xcx-rock-music-single-1235556390/) - Rollingstone
+- [Charli xcx Unleashes a Moshpit For ‘Rock Music’: Watch - Billboard](https://www.billboard.com/music/pop/charli-xcx-rock-music-video-watch-1236242489/) - Billboard
+- [Niall Horan to Host an Arena-Sized ‘Dinner Party’ on North American Tour](http://www.rollingstone.com/music/music-news/niall-horan-2027-tour-dates-dinner-party-1235560439/) - Rolling Stone
+- [Did Michael Jackson buy Eminem's catalog after being mocked in 'Just Lose It'? Here's the real story](https://www.snopes.com//fact-check/michael-jackson-eminem-catalog-just-lose-it/) - Snopes.com
+- [Caroline Are Hitting the Road This Fall](https://pitchfork.com/news/caroline-reveal-fall-tour-dates-2026/) - Pitchfork
+- [Tricky Announces North American Tour](https://pitchfork.com/news/tricky-announces-north-american-dates/) - Pitchfork
+- [Tricky Announces 2026 North American Tour](https://consequence.net/2026/05/tricky-2026-north-american-tour/) - Consequence.net
+- [Tricky Is Coming to North America on Fall Tour](https://exclaim.ca/music/article/tricky-is-coming-to-north-america-on-fall-tour) - Exclaim!
+- [caroline Detail North American Fall Tour](https://exclaim.ca/music/article/caroline-detail-north-american-fall-tour) - Exclaim!
+- [Gracie Abrams Details New Album ‘Daughter From Hell’](http://www.rollingstone.com/music/music-news/gracie-abrams-new-album-daughter-from-hell-1235560558/) - Rolling Stone
+- [Gracie Abrams Details New Album ‘Daughter From Hell’ - Rolling Stone](https://www.rollingstone.com/music/music-news/gracie-abrams-new-album-daughter-from-hell-1235560558/) - Rollingstone
+- [Gracie Abrams Confirms Third Album ‘Daughter From Hell’ for July - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/gracie-abrams-third-album-daughter-from-hell-release-date-1236592354/) - Hollywoodreporter
+- [Gracie Abrams Announces New Album ‘Daughter From Hell,’ Releasing This Summer - Variety](https://variety.com/2026/music/news/gracie-abrams-new-album-daughter-from-hell-summer-release-1236744826/) - Variety
+- [Gracie Abrams’ Third Album ‘Daughter From Hell’ Is on the Way: ‘So Ready for It to Be Yours’ - Billboard](https://www.billboard.com/music/music-news/gracie-abrams-new-album-daughter-from-hell-release-date-1236244300/) - Billboard
+- [Santana Announces 2026 Fall Las Vegas Residency Dates](https://consequence.net/2026/05/santana-fall-2026-las-vegas-residency-dates/) - Consequence.net
+- [Santana announces new fall Las Vegas residency dates](https://www.aol.com/news/santana-announces-fall-las-vegas-163000877.html) - Aol
+- [Santana announces new fall Las Vegas residency dates](https://www.aol.com/articles/santana-announces-fall-las-vegas-163000000.html) - Aol
+- [Dave Matthews Band Open 2026 Tour by Digging Deep into Their Catalog](https://consequence.net/2026/05/dave-matthews-band-start-2026-tour/) - Consequence.net
+- [Hunter Hayes Is 34, Fully Independent, And Done Taking Orders On New Album ‘Evergreen’](https://brobible.com/culture/article/hunter-hayes-is-34-fully-independent-and-done-taking-orders-on-new-album-evergreen/) - BroBible
+- [Kevin Lyman Still Has Plenty of Warped Ideas](https://www.spinmagazine.com/2026/05/kevin-lyman-still-has-plenty-of-warped-ideas/) - Spinmagazine.com
