@@ -1,0 +1,40 @@
+# Sources for 2026-05-13 News Episode 
+- [Madonna Unveiling ‘Confessions II’ At Tribeca Festival](https://www.spinmagazine.com/2026/05/madonna-tribeca-festival/) - Spinmagazine.com
+- [Madonna to Premiere ‘Confessions II’ Visual Film at Tribeca Festival - Variety](https://variety.com/2026/music/news/madonna-confessions-ii-visual-film-tribeca-festival-1236745891/) - Variety
+- [Madonna to World Premiere ‘Confessions II’ Visual Work at the 2026 Tribeca Festival - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/madonna-confessions-ii-visual-work-2026-tribeca-festival-1236593444/) - Hollywoodreporter
+- [Madonna to Premiere ‘Confessions II’ 10-Minute Visual at Tribeca Festival - Billboard](https://www.billboard.com/music/music-news/madonna-confessions-ii-tribeca-festival-1236245579/) - Billboard
+- [New Lady Gaga concert film streaming this Thursday exclusively on Apple Music](https://9to5mac.com/2026/05/12/new-lady-gaga-concert-film-streaming-this-thursday-exclusively-on-apple-music/) - 9to5Mac
+- ['Lady Gaga Mayhem Requiem': How to stream and watch in theaters](https://www.out.com/gay-music/lady-gaga-mayhem-requiem-explainer) - Out.com
+- [Lady Gaga Concert Film ‘Mayhem Requiem’ to Premiere on Apple Music and Show for One Night Only in AMC Theaters - Variety](https://variety.com/2026/music/news/lady-gaga-mayhem-requiem-film-apple-music-amc-theaters-1236745440/) - Variety
+- [Lady Gaga’s ‘MAYHEM Requiem’ Concert Film Is Coming: Here’s How to See It - Billboard](https://www.billboard.com/culture/tv-film/lady-gaga-mayhem-concert-film-release-date-how-to-watch-1236245498/) - Billboard
+- [Spotify Rolls Out a ‘Wrapped’ for Users’ Entire Streaming History](https://gizmodo.com/spotify-rolls-out-a-wrapped-for-users-entire-streaming-history-2000757664) - Gizmodo.com
+- [Spotify Launches ‘Party of the Year’ Campaign for Users to Revisit Listening Habits - Variety](https://variety.com/2026/music/news/spotify-party-of-the-year-campaign-listening-habits-1236744982/) - Variety
+- [Spotify ўзининг 20 йиллиги муносабати билан фойдаланувчилар учун махсус ҳисоботни тақдим этди - Zamin.uz](https://zamin.uz/en/technology/200538-spotify-presents-a-special-report-for-users-on-its-20th-anniversary.html) - Zamin
+- [Here’s How to See Your Spotify Stats Dating Back to the Day You Joined With ‘Your Party of the Year(s)’ - Billboard](https://www.billboard.com/music/music-news/spotify-party-of-the-years-how-to-find-yours-1236244616/) - Billboard
+- [Spotify’s launches a Wrapped-style recap of your entire listening history - TechCrunch](https://techcrunch.com/2026/05/12/spotifys-launches-a-wrapped-style-recap-of-your-entire-listening-history/) - Techcrunch
+- [It’s Your Party of the Year(s): A Look Back at Your Entire Music History on Spotify - Spotify](https://newsroom.spotify.com/2026-05-12/spotify-20-personal-music-retrospective/) - Spotify
+- [Grammys 2027 Date Set As Music’s Biggest Night Moves To ABC & Disney’s Streamers](http://deadline.com/2026/05/grammys-2027-date-abc-1236899618/) - Deadline
+- [When the 2027 Grammys will happen and what to know about awards season - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-05-12/grammys-2027-key-dates-nominations) - Latimes
+- [Grammys 2027 Date Set As Music’s Biggest Night Moves To ABC & Disney’s Streamers - Deadline](https://deadline.com/2026/05/grammys-2027-date-abc-1236899618/) - Deadline
+- [The 2027 Grammy Awards announce key dates: What to know - Greenwich Time](https://www.greenwichtime.com/entertainment/article/the-2027-grammy-awards-announce-key-dates-what-22255764.php) - Greenwichtime
+- [Grammy Awards Set Nominations and Telecast Date for 2027 Move to ABC and Hulu - Variety](https://variety.com/2026/music/news/grammy-awards-calendar-ceremony-nominations-date-abc-hulu-1236746339/) - Variety
+- [Here’s the Date of the 2027 Grammy Awards & All Key Dates - Billboard](https://www.billboard.com/music/awards/2027-grammy-awards-airdate-all-key-dates-1236246012/) - Billboard
+- [EXCLUSIVE: Radar Reveals How Rihanna and Beyoncé Have Finally Ended Their 'Two-Decade Feud'](https://radaronline.com/p/rihanna-beyonce-end-two-decade-feud-jay-z-affair-rumor/) - Radaronline.com
+- [Zara Larsson Is Making Sure ‘Midnight Sun’ Is More Than Just a Moment](http://www.rollingstone.com/music/music-features/zara-larsson-midnight-sun-pop-stardom-1235556649/) - Rolling Stone
+- [Zara Larsson Previews ‘Midnight Sun’ Remix Album ‘Girls Trip’ at Intimate Listening Party - Billboard](https://www.billboard.com/music/pop/zara-larsson-previews-midnight-sun-girls-trip-1236236633/) - Billboard
+- [HUNTR/X Are Billboard Women of the Year, Zara Larsson Lights Up Stage - billboard.com](https://www.billboard.com/video/ejae-audrey-nuna-rei-ami-billboards-women-of-the-year/) - Billboard
+- [From the catwalk to the charts: Supermodel Cara Delevingne launches a music career as she announces her debut single and tour](https://www.dailymail.com/tvshowbiz/article-15810463/Cara-Delevingne-launches-music-career-debut-single-tour.html) - Dailymail.com
+- [Journey Add 40 Additional 2026 Dates to Final Frontier Farewell Tour](http://www.rollingstone.com/music/music-news/journey-add-40-dates-farewell-tour-1235561117/) - Rolling Stone
+- [Journey Announce 40-Date Fall 2026 North American Leg of Farewell Tour](https://consequence.net/2026/05/journey-fall-2026-north-american-leg-farewell-tour/) - Consequence.net
+- [Journey Adds New 'Final Frontier' Tour Dates](https://ultimateclassicrock.com/journey-new-farewell-tour-dates-2026/) - Ultimate Classic Rock
+- [Kanye West Loses at Trial Over Uncleared Sample on ‘Hurricane’](http://www.rollingstone.com/music/music-news/kanye-found-liable-hurricane-copyright-infringement-trial-1235561041/) - Rolling Stone
+- [Ye Loses Copyright Trial Over Uncleared ‘Donda’ Demo Sample - Billboard](https://www.billboard.com/pro/kanye-west-loses-trial-sample-donda-song-hurricane/) - Billboard
+- [Kanye West Loses at Trial Over Uncleared Sample on ‘Hurricane’ - Rolling Stone](https://www.rollingstone.com/music/music-news/kanye-found-liable-hurricane-copyright-infringement-trial-1235561041/) - Rollingstone
+- [Ye Testifies at ‘Donda’ Copyright Trial: ‘A Lot of People Try to Take Advantage of Me’ - billboard.com](https://www.billboard.com/pro/kanye-west-testifies-donda-music-copyright-trial/) - Billboard
+- [CD Baby debuts ‘Stages Selects’ program with 10 indie artists](http://musically.com/2026/05/12/cd-baby-debuts-stages-selects-program-with-10-indie-artists/) - Music Ally
+- [How John Coltrane Introduced the World to His Radical Sound with His Recording of “My Favorite Things” (1961)](https://www.openculture.com/2026/05/how-john-coltrane-introduced-the-world-to-my-favorite-things-1961.html) - Openculture.com
+- [Bloc Party Ready New Album Anatomy of a Brief Romance](https://pitchfork.com/news/bloc-party-ready-new-album-anatomy-of-a-brief-romance/) - Pitchfork
+- [Aerosmith and John Lennon Producer Jack Douglas Dead at 80](https://ultimateclassicrock.com/jack-douglas-music-producer-dead/) - Ultimate Classic Rock
+- [Jack Douglas, Producer for John Lennon, Aerosmith, Cheap Trick and More, Dies at 80 - Variety](https://variety.com/2026/music/news/jack-douglas-dead-producer-john-lennon-aerosmith-1236746555/) - Variety
+- [Visa amps up the music as Official Payment Partner for the Asia leg of The Weeknd’s ‘After Hours Til Dawn’ Stadium Tour](https://www.thehindubusinessline.com/brandhub/pr-release/visa-amps-up-the-music-as-official-payment-partner-for-the-asia-leg-of-the-weeknds-after-hours-til-dawn-stadium-tour/article70969023.ece) - BusinessLine
+- [The Weeknd Announces 2026 Asian Dates For After Hours Til Dawn Stadium Tour - Billboard](https://www.billboard.com/music/rb-hip-hop/the-weeknd-2026-asian-dates-after-hours-til-dawn-tour-1236244092/) - Billboard
