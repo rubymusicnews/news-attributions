@@ -1,0 +1,28 @@
+# Sources for 2026-05-14 News Episode 
+- [EX.797 Ed O'Brien](https://soundcloud.com/resident-advisor/ex-797-ed-obrien) - Soundcloud.com
+- [The 10 Top Beatles Songs, Ranked By Streaming Numbers](https://www.mentalfloss.com/entertainment/music/most-streamed-beatles-songs) - Mental Floss
+- [Deep Purple Unveil “Arrogant Boy” as First Single from Upcoming Album: Stream](https://consequence.net/2026/05/deep-purple-arrogant-boy-new-song/) - Consequence.net
+- [Five Ideas To Fix Spotify](https://joelgouveia.substack.com/p/if-i-ran-spotify) - Substack.com
+- [As AI Music Grows, Spotify Launches Verification Badges — But Only for Human Artists - Billboard](https://www.billboard.com/pro/spotify-launches-verification-badges-only-for-human-artists/) - Billboard
+- [Fake TikTok fans and the history of 'unethical' music marketing](https://www.dw.com/en/fake-tiktok-fans-and-the-history-of-unethical-music-marketing/a-77091563) - DW (English)
+- [Fake TikTok fans and pop music's 'unethical' marketing](https://www.dw.com/en/tiktok-spotify-social-media-indie-music-unethical-marketing-pop-charts/a-77091563) - DW (English)
+- [Songs in the Key of Lie - The Atlantic](https://www.theatlantic.com/culture/2026/05/music-authenticity-chaotic-good-geese/687081/) - Theatlantic
+- [Karol G to Receive the International Artist Award of Excellence and Perform at "The 52nd American Music Awards," Live, Monday, May 25 at 8:00 PM, ET, 5:00 PM, PT on CBS](http://www.thefutoncritic.com/news/2026/05/13/karol-g-to-receive-the-international-artist-award-of-excellence-and-perform-at-the-52nd-american-music-awards-live-monday-may-25-at-800-pm-et-500-pm-pt-on-cbs-736414/20260513cbs01/) - Thefutoncritic.com
+- [Karol G to Receive the International Artist Award of Excellence, Perform at 2026 American Music Awards - Billboard](https://www.billboard.com/music/awards/karol-g-amas-international-artist-award-of-excellence-2026-1236246832/) - Billboard
+- [Billboard has excluded human performers from its music charts before. Why should AI tracks feature?](https://www.livemint.com/opinion/online-views/billboard-charts-hot-100-human-performers-music-ranking-ai-artists-artificial-intelligence-11778619006371.html) - Livemint
+- [A KPop Demon Hunters Global Concert Tour Is Officially Happening](https://bleedingcool.com/movies/a-kpop-demon-hunters-global-concert-tour-is-officially-happening/) - Bleeding Cool News
+- [‘KPop Demon Hunters’ Is Going on a World Concert Tour - Billboard](https://www.billboard.com/music/music-news/kpop-demon-hunters-concert-tour-netflix-1236247605/) - Billboard
+- [‘KPop Demon Hunters’ World Tour Set By Netflix - Deadline](https://deadline.com/2026/05/kpop-demon-hunters-world-tour-netflix-1236900466/) - Deadline
+- [6人組ボーイグループ BOYNEXTDOOR初ワールドツアー『BOYNEXTDOOR TOUR 'KNOCK ON Vol.2'』開催決定！](https://prtimes.jp/main/html/rd/p/000000697.000045862.html) - Prtimes.jp
+- [International Songwriting Competition (ISC) Announces 2025 Winners Ghanaian/American Sam Opoku Takes Home the Overall Grand Prize](https://www.prnewswire.com/news-releases/international-songwriting-competition-isc-announces-2025-winners-ghanaianamerican-sam-opoku-takes-home-the-overall-grand-prize-302770352.html) - PRNewswire
+- [International Songwriting Competition (ISC) Announces 2025 Winners Ghanaian/American Sam Opoku Takes Home the Overall Grand Prize](https://finance.yahoo.com/news/international-songwriting-competition-isc-announces-123400659.html) - Yahoo
+- [30 Fascinating Photos of The Beach Boys in the 1960s](https://www.vintag.es/2026/05/beach-boys-1960s.html) - Vintag.es
+- [Beach Boys celebrate 60th anniversary of "Pet Sounds" at Capitol Records - Los Angeles Times](https://www.latimes.com/0000019e-19bf-d678-a7be-d9ff1ea80000-123) - Latimes
+- [LE SSERAFIM VR concert tour](https://www.newsshooter.com/2026/05/12/le-sserafim-vr-concert-tour/) - Newsshooter
+- [London Building Where The Beatles Had Their Final Rooftop Show Is Being Turned Into a Museum](https://mymodernmet.com/the-beatles-3-savile-row/) - My Modern Met
+- [The Beatles Get Back to Savile Row! - TheBeatles.com](https://www.thebeatles.com/beatles-get-back-savile-row) - Thebeatles
+- [The Site Where the Beatles Played Their Final Gig Is Becoming a Museum - Artnet News](https://news.artnet.com/art-world/beatles-savile-row-museum-2772088) - Artnet
+- [First Official Beatles Museum to Open in London - Pitchfork](https://pitchfork.com/news/first-official-beatles-museum-to-open-in-london/) - Pitchfork
+- [London Rooftop Where Beatles Played Last Gig to Become Museum - The New York Times](https://www.nytimes.com/2026/05/11/arts/music/beatles-museum-london.html) - Nytimes
+- [The Beatles Get Back: Fab Four’s First Official Museum to Open in London at Rooftop Gig Site - Billboard](https://www.billboard.com/music/music-news/beatles-fan-experience-london-savile-row-final-concert-1236244078/) - Billboard
+- [DIE ROYAL MINT WÜRDIGT PINK FLOYD MIT DER ERSTEN GEDENKMÜNZE IN GROSSBRITANNIEN](https://www.prnewswire.com/news-releases/die-royal-mint-wurdigt-pink-floyd-mit-der-ersten-gedenkmunze-in-grossbritannien-302768748.html) - PRNewswire
