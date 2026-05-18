@@ -1,0 +1,31 @@
+# Sources for 2026-05-18 News Episode 
+- [BTS Continues Record-Breaking Run In Top 10 Of Billboard 200](http://www.soompi.com/article/1841836wpp/bts-continues-record-breaking-run-in-top-10-of-billboard-200) - soompi
+- [‘John Lennon, The Last Interview’ Review: Steven Soderbergh’s Immersive Documentary Finds A Lost Future In Lennon’s Final Hours](https://theplaylist.net/john-lennon-the-last-interview-review-steven-soderbergh-cannes-20260517/) - Theplaylist.net
+- ['John Lennon: The Last Interview' Review: Steven Soderbergh Cannes Doc - IndieWire](https://www.indiewire.com/criticism/movies/john-lennon-the-last-interview-review-1235194194/) - Indiewire
+- [Steven Soderbergh used AI in a documentary about John Lennon. And he wants to talk about it - AP News](https://apnews.com/article/john-lennon-steven-soderbergh-ai-cannes-documentary-7794a4344ed455cae4c5780fa6610860) - Apnews
+- [Steven Soderbergh used AI in a documentary about John Lennon. And he wants to talk about it - Yahoo](https://www.yahoo.com/entertainment/movies/articles/steven-soderbergh-used-ai-documentary-023928048.html) - Yahoo
+- [Steven Soderbergh used AI in a documentary about John Lennon. And he wants to talk about it - The Washington Post](https://www.washingtonpost.com/business/2026/05/16/john-lennon-steven-soderbergh-ai-cannes-documentary/35479e1a-519a-11f1-97e7-22c6c29ff0d8_story.html) - Washingtonpost
+- [John Lennon: The Last Interview review – Soderbergh imagines there’s no people with bland AI clipshow - The Guardian](https://www.theguardian.com/film/2026/may/16/john-lennon-last-interview-review-steven-soderbergh) - Theguardian
+- [The Rolling Stones Return To The Top 10 In America With A New Smash](https://www.forbes.com/sites/hughmcintyre/2026/05/17/the-rolling-stones-return-to-the-top-10-in-america-with-a-new-smash/) - Forbes
+- [The Rolling Stones Unveil New Album Foreign Tongues - Pitchfork](https://pitchfork.com/news/the-rolling-stones-unveil-new-album-foreign-tongues/) - Pitchfork
+- [Rolling Stones New Album, 'Foreign Tongues,' Features Paul McCartney - Variety](https://variety.com/2026/music/news/rolling-stones-new-album-foreign-tongues-paul-mccartney-1236738299/) - Variety
+- [Det här är Dara som tog hem Bulgariens första Eurovisionsvinst](https://yle.fi/a/7-10098730) - YLE News
+- [‘A quiet belief everything’s going to be all right’: Bulgarians celebrate Dara’s Eurovision win with Bangaranga - The Guardian](https://www.theguardian.com/tv-and-radio/2026/may/17/bulgarians-celebrate-dara-eurovision-win-with-bangaranga) - Theguardian
+- [Bulgarians cheer "Bangaranga" and the country's first Eurovision win - Reuters](https://www.reuters.com/business/media-telecom/bulgarians-cheer-bangaranga-countrys-first-eurovision-win-2026-05-17/) - Reuters
+- [Bulgaria Triumphs At Eurovision Song Contest 2026 - Deadline](https://deadline.com/2026/05/bulgaria-wins-eurovision-song-contest-2026-1236907425/) - Deadline
+- [Dara’s ‘Bangaranga’ Wins Eurovision 2026 for Bulgaria - Yahoo](https://www.yahoo.com/entertainment/music/articles/dara-bangaranga-wins-eurovision-2026-054325172.html) - Yahoo
+- [Bangaranga! Bulgaria wins Eurovision - but UK comes last - BBC](https://www.bbc.com/news/articles/c8d87v9v660o) - Bbc
+- [Bulgaria wins the 70th Eurovision Song Contest with 'Bangaranga' - PBS](https://www.pbs.org/newshour/arts/bulgaria-wins-the-70th-eurovision-song-contest-with-bangaranga) - Pbs
+- [Maggie Kang On Why Paying Homage To Her Roots Was Important In Making ‘KPop Demon Hunters’: “I Wanted Every Part Of This Movie To Be Korean”](http://deadline.com/2026/05/maggie-kang-interview-kpop-demon-hunters-1236882980/) - Deadline
+- [The hilarious reaction of Kabin Crew rapper when his excited mammy WOKE him in the middle of the night to show him TikTok of Billie Eilish and Amy Poehler dancing to their mega-viral hit The Spark will make you laugh out loud...](https://www.dailymail.com/news/article-15824281/The-hilarious-reaction-Kabin-Crew-rapper-excited-mammy-WOKE-middle-night-TikTok-Billie-Eilish-Amy-Poehler-dancing-mega-viral-hit-Spark-make-you-laugh-loud.html) - Dailymail.com
+- [Westlife on Simon Cowell, boyband mania, and the golden era of music](https://www.the-independent.com/tv/culture/westlife-interview-boyband-music-b2978299.html) - The-independent.com
+- [Thom Yorke Live At Sydney Opera House 2026 1080p WEB-DL H264-PiG30N](https://post.rlsbb.to/thom-yorke-live-at-sydney-opera-house-2026-1080p-web-dl-h264-pig30n/) - Rlsbb.to
+- [Meet Chuyin, The Mystery Artist Taking Over Música Mexicana In a Crocheted Baby Mask](http://www.rollingstone.com/music/music-latin/who-is-chuyin-los-locos-nunca-mueren-interview-1235564215/) - Rolling Stone
+- [Dennis Locorriere, Dr. Hook Lead Singer, Dies At 76](https://www.forbes.com/sites/timlammers/2026/05/17/dennis-locorriere-dr-hook-lead-singer-dies-at-76/) - Forbes
+- [Dr. Hook Legend Dennis Locorriere Dead at 76 After Kidney Disease Battle - TMZ](https://www.tmz.com/2026/05/17/dennis-locorriere-dead/) - Tmz
+- [Dennis Locorriere, Dr. Hook Lead Singer, Dies At 76 - Yahoo News Canada](https://ca.news.yahoo.com/dennis-locorriere-dr-hook-lead-191934073.html) - Yahoo
+- [Slade's Dave Hill discusses his 'deep friendships' with A-list pals Paul McCartney, Noel Gallagher and the late Ozzy Osbourne as he reflects on his 60-year career with Noddy Holder](https://www.dailymail.com/tvshowbiz/article-15810803/Slade-Dave-Hill-Paul-McCartney-Ozzy-Osbourne-Noel-Gallagher-Noddy-Holder.html) - Dailymail.com
+- [British soprano Felicity Lott dies aged 79](https://www.rte.ie/entertainment/2026/0517/1573813-british-soprano-felicity-lott-dies-aged-79/) - RTE
+- [English Soprano Dame Felicity Lott dies aged 79 - BBC](https://www.bbc.com/news/articles/cpqp1938d8do) - Bbc
+- [Official Paul Di'Anno Documentary Coming to North America in June](https://loudwire.com/paul-dianno-documentary-iron-maiden-lost-singer-north-america-june/) - Loudwire
+- [“The most fiendishly flamboyant good time since Ghost”: Green Lung’s first festival headline show cements them as the future of metal](https://www.loudersound.com/reviews/green-lung-desertfest-2026-live-review) - Louder
