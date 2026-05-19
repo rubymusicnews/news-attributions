@@ -1,0 +1,33 @@
+# Sources for 2026-05-19 News Episode 
+- [Disney+ Joins Hulu to Livestream Bonnaroo, Lollapalooza, and Austin City Limits Music Festivals Globally](http://www.thefutoncritic.com/news/2026/05/18/disneyplus-joins-hulu-to-livestream-bonnaroo-lollapalooza-and-austin-city-limits-music-festivals-globally-256212/20260518disney01/) - Thefutoncritic.com
+- [Disney+ Australia to Livestream Lollapalooza, Bonnaroo For First Time Ever - Variety Australia](https://au.variety.com/2026/more/news/disney-australia-to-livestream-lollapalooza-bonnaroo-for-first-time-ever-36753/) - Variety
+- [Charli xcx, Rüfüs Du Sol, Twenty One Pilots, Lorde & Skrillex To Headline 2026 Austin City Limits Festival - Billboard](https://www.billboard.com/music/concerts/2026-austin-city-limits-festival-lineup-charli-xcx-lorde-1236239395/) - Billboard
+- [Spotify retires Viral Charts… but ‘Viral Hits’ playlist lives on](http://musically.com/2026/05/18/spotify-retires-viral-charts-but-viral-hits-playlist-lives-on/) - Music Ally
+- [Spotify Discontinues Viral Charts - Billboard](https://www.billboard.com/pro/spotify-discontinues-its-viral-charts/) - Billboard
+- [Tiësto confirms new trance album is in the works](https://djmag.com/news/tiesto-confirms-new-trance-album-works) - DJ Mag
+- [ATEEZ, ENHYPEN Lead 2026 Asia Star Entertainer Awards: Winners List](https://www.forbes.com/sites/jeffbenjamin/2026/05/18/ateez-enhypen-lead-2026-asia-star-entertainer-awards-winners-list/) - Forbes
+- [ATEEZ, TVXQ! Claim Triple Crowns at ASEA 2026 Awards](https://www.chosun.com/english/kpop-culture-en/2026/05/19/HNKMCCYHH5DLDFEK4KLVKS73KU/) - Chosun
+- [Shakira Acquitted in 2011 Spanish Tax Fraud Case, Awarded $70 Million](https://consequence.net/2026/05/shakira-acquitted-tax-fraud-spain/) - Consequence.net
+- [Never really knew they could tax like this: Shakira wins €60m in Spanish case](https://www.thejournal.ie/shakira-wins-e60m-in-spanish-case-tax-7043395-May2026/) - TheJournal.ie
+- [Pop star Shakira is acquitted in a Spanish tax fraud case - NPR](https://www.npr.org/2026/05/18/g-s1-122563/pop-star-shakira-is-acquitted-in-a-spanish-tax-fraud-case) - Npr
+- [Pop star Shakira is acquitted in a Spanish tax fraud case - Greenwich Time](https://www.greenwichtime.com/entertainment/article/pop-star-shakira-is-acquitted-in-a-spanish-tax-22264124.php) - Greenwichtime
+- [Pop star Shakira is acquitted in a Spanish tax fraud case - ABC News - Breaking News, Latest News and Videos](https://abcnews.com/International/wireStory/pop-star-shakira-acquitted-spanish-tax-fraud-case-133062289) - Abcnews
+- [Shakira in line for €55m payout as Spanish court rules tax fines were wrong - The Guardian](https://www.theguardian.com/music/2026/may/18/spain-tax-agency-shakira-55m-payout-wrongful-fines) - Theguardian
+- [Drake Used Millions of Dollars’ Worth of Equipment to “Ice Out” CN Tower for New Albums](https://consequence.net/2026/05/drake-cn-tower-iceman-album/) - Consequence.net
+- ["We’re losing Megadeth sooner than we’d have hoped but it’s great to have them so triumphant again." Dave Mustaine's exiting thrashers roll back the years at Sonic Temple](https://www.loudersound.com/bands-artists/music-festivals/were-losing-megadeth-sooner-than-wed-have-hoped-but-its-great-to-have-them-so-triumphant-again-dave-mustaines-exiting-thrashers-roll-back-the-years-at-sonic-temple) - Louder
+- [Smashing Pumpkins Announce Rats in a Cage Tour to Celebrate ‘Mellon Collie and the Infinite Sadness’](http://www.rollingstone.com/music/music-news/smashing-pumpkins-tour-rats-in-a-cage-1235564532/) - Rolling Stone
+- [The Smashing Pumpkins Announce ‘The Rats In A Cage Tour’](https://dailycaller.com/2026/05/18/smashing-pumpkins-billy-corgan-rats-in-a-cage-tour-alternative-rock/) - The Daily Caller
+- [The Smashing Pumpkins announce 'Mellon Collie and the Infinite Sadness' 30th anniversary tour - BrooklynVegan](https://www.brooklynvegan.com/the-smashing-pumpkins-announce-mellon-collie-and-the-infinite-sadness-30th-anniversary-tour/) - Brooklynvegan
+- [Smashing Pumpkins Announce Mellon Collie And The Infinite Sadness 30th Anniversary Tour - Stereogum](https://stereogum.com/2499244/smashing-pumpkins-announce-mellon-collie-and-the-infinite-sadness-30th-anniversary-tour/news) - Stereogum
+- [The Smashing Pumpkins Announce the Rats in a Cage Tour - Pitchfork](https://pitchfork.com/news/the-smashing-pumpkins-announce-the-rats-in-a-cage-tour/) - Pitchfork
+- [Smashing Pumpkins announce ‘Rats in a Cage Tour’ with a stop at the United Center - Chicago Tribune](https://www.chicagotribune.com/2026/05/18/smashing-pumpkins-announce-rats-in-a-cage-tour-with-a-stop-at-the-united-center/) - Chicagotribune
+- [wave to earth’s new album is “comfort, purity, and lazy”](https://www.thefader.com/2026/05/18/wave-to-earth-heaven-and-hell-new-album-interview) - The FADER
+- [Musicians Are Sleeping On These 5 Underrated Marketing Moves](https://www.forbes.com/sites/oliviashalhoup/2026/05/18/musicians-are-sleeping-on-these-5-underrated-marketing-moves/) - Forbes
+- [Indie Power Players on How Industry Changes Are Affecting the Indie Space, From AI to Consolidation - Billboard](https://www.billboard.com/lists/indie-music-execs-ai-consolidation-changes-affect/) - Billboard
+- [130 Indie Power Players Share What Excites Them Most About the Indie World - Billboard](https://www.billboard.com/lists/what-excites-music-execs-most-about-the-indie-world/) - Billboard
+- [Drain Gang’s Bladee details Sulfur Surfer album and summer dates with Yung Lean](https://www.thelineofbestfit.com/news/drain-gangs-bladee-details-sulfur-surfer-album-and-summer-dates-with-yung-lean) - Thelineofbestfit.com
+- [Lauren Alaina Tears Up While Addressing Mental Health at ACMs: ‘There Is Always Someone to Listen’](http://www.rollingstone.com/music/music-country/lauren-alaina-advocates-mental-health-acm-awards-2026-1235564437/) - Rolling Stone
+- [Dan + Shay Remember Ben Vaughn at 2026 ACM Awards With ‘Say So’ - Billboard](https://www.billboard.com/music/awards/lauren-alaina-dan-shay-say-so-acm-awards-acm-lifting-lives-1236250373/) - Billboard
+- [Riley Green Leads a Night Honoring the ACM’s Lifting Lives With Lauren Alaina, Randy Houser & More: 5 Highlights - Billboard](https://www.billboard.com/lists/riley-green-acm-lifting-lives-lauren-alaina-randy-houser/) - Billboard
+- [Aqua breaks up nearly 30 years after ‘Barbie Girl’ owned the charts](https://pagesix.com/2026/05/18/entertainment/aqua-breaks-up-nearly-30-years-after-barbie-girl-owned-the-charts/) - Page Six
+- [Blondshell teases new album with single “Heart Has To Work So Hard”, announces huge tour](https://www.thelineofbestfit.com/news/blondshell-teases-new-album-with-single-heart-has-to-work-so-hard-announces-huge-tour) - Thelineofbestfit.com
