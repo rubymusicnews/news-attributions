@@ -1,0 +1,26 @@
+# Sources for 2026-05-20 News Episode 
+- [Fleetwood Mac’s ‘Everywhere’ Becomes A Rare Longstanding Smash For The Band](https://www.forbes.com/sites/hughmcintyre/2026/05/19/fleetwood-macs-everywhere-becomes-a-rare-longstanding-smash-for-the-band/) - Forbes
+- [Harry Styles Scores A New Hit As His First Solo Song Returns To The Top 40](https://www.forbes.com/sites/hughmcintyre/2026/05/19/harry-styles-scores-a-new-hit-as-his-first-solo-song-returns-to-the-top-40/) - Forbes
+- [Music lyric of the day by Paul McCartney: 'Yesterday, all my troubles seemed so far away. Now it looks as though they're here to stay. Oh, I believe in yesterday...'](https://economictimes.indiatimes.com/magazines/panache/music-lyric-of-the-day-by-paul-mccartney-yesterday-all-my-troubles-seemed-so-far-away-now-it-looks-as-though-theyre-here-to-stay-oh-i-believe-in-yesterday-/articleshow/131203783.cms) - The Times of India
+- [FULL LIST: Wizkid, Tems, Burna Boy, Asake nominated for 2026 BET Awards](https://punchng.com/full-list-wizkid-tems-burna-boy-asake-nominated-for-2026-bet-awards/) - The Punch
+- ["BET Awards" 2026 Nominations Are In!](http://www.thefutoncritic.com/news/2026/05/19/bet-awards-2026-nominations-are-in-718010/20260519bet01/) - Thefutoncritic.com
+- [Katy Perry Charts A New Top 10 Album](https://www.forbes.com/sites/hughmcintyre/2026/05/19/katy-perry-charts-a-new-top-10-album/) - Forbes
+- [ATEEZ To Headline BST Hyde Park In London](http://www.soompi.com/article/1842418wpp/ateez-to-headline-bst-hyde-park-in-london) - soompi
+- [ATEEZ Announced as BST Hyde Park Headliners for U.K. Exclusive Show](https://www.yahoo.com/entertainment/music/articles/ateez-announced-bst-hyde-park-041143367.html) - Yahoo
+- [K-pop sensations ATEEZ announced as latest headliners for American Express presents BST Hyde Park 2026](https://www.officialcharts.com/chart-news/ateez-bst-hyde-park-2026-tickets-lineup-date/) - Officialcharts
+- [K-pop stars Ateez join Pitbull and Lewis Capaldi as BST Hyde Park headliners](https://www.aol.com/lifestyle/k-pop-stars-ateez-join-113156761.html) - Aol
+- [ATEEZ Announced as BST Hyde Park Headliners for U.K. Exclusive Show](https://www.billboard.com/music/music-news/ateez-bst-hyde-park-2026-1236251473/) - Billboard
+- [Boy band Ateez to headline BST Hyde Park music event](https://koreajoongangdaily.joins.com/news/2026-05-19/entertainment/kpop/Boy-band-Ateez-to-headline-BST-Hyde-Park-music-event/2595963) - Joins
+- [ATEEZ to headline London’s BST Hyde Park 2026 as UK exclusive](https://www.nme.com/news/music/ateez-to-headline-londons-bst-hyde-park-2026-as-uk-exclusive-3945920) - Nme
+- [Neil Diamond Blocked From No. 1 On A Chart He’s Never Reached Before](https://www.forbes.com/sites/hughmcintyre/2026/05/19/neil-diamond-blocked-from-no-1-on-a-chart-hes-never-reached-before/) - Forbes
+- [Wizkid becomes first African artiste to hit 11 billion Spotify streams](https://punchng.com/wizkid-becomes-first-african-artist-to-hit-11-billion-spotify-streams/) - The Punch
+- [Forever Young: A Grammy Salute to Rod Stewart Live Viewing Guide](https://bleedingcool.com/tv/forever-young-a-grammy-salute-to-rod-stewart-live-viewing-guide/) - Bleeding Cool News
+- [‘Forever Young: A GRAMMY Salute to Rod Stewart Live’ on CBS: How to Watch for Free - Just Jared](https://www.justjared.com/2026/05/19/forever-young-a-grammy-salute-to-rod-stewart-live-on-cbs-how-to-watch-for-free/) - Justjared
+- [5 Facts About Altamont, the Disastrous Concert That Ended '60s Idealism](https://www.mentalfloss.com/entertainment/music/facts-about-altamont) - Mental Floss
+- [Song lyric of the day by Taylor Swift: 'They told me all of my cages were mental, so I got wasted like all my potential. And my words shoot to kill when I am mad. I have a lot of regrets about that.'](https://economictimes.indiatimes.com/magazines/panache/song-lyric-of-the-day-by-taylor-swift-they-told-me-all-of-my-cages-were-mental-so-i-got-wasted-like-all-my-potential-and-my-words-shoot-to-kill-when-i-am-mad-i-have-a-lot-of-regrets-about-that-/articleshow/131205591.cms) - The Times of India
+- [No value should be assigned to purely AI generated content: Saregama to streaming platforms](https://www.medianama.com/?p=328203) - MediaNama.com
+- [Ike Willis, Frank Zappa’s Loyal Vocalist and Guitarist, Dead at 70](http://www.rollingstone.com/music/music-news/ike-willis-frank-zappa-dead-obituary-1235565078/) - Rolling Stone
+- [Arch Enemy and The Black Dahlia Murder Announce Co-Headlining Fall 2026 North American Tour](https://consequence.net/2026/05/arch-enemy-black-dahlia-murder-tour-2026/) - Consequence.net
+- [Beartooth Announce Fall 2026 US Tour and New Album Pure Ecstasy](https://consequence.net/2026/05/beartooth-fall-2026-us-tour-new-album-pure-ecstasy/) - Consequence.net
+- [Arch Enemy and Black Dahlia Murder Announce Fall 2026 Joint Tour](https://loudwire.com/arch-enemy-black-dahlia-murder-2026-tour/) - Loudwire
+- [ARCH ENEMY And BLACK DAHLIA MURDER To Tour North America In October](https://metalinjection.net/tour-dates/arch-enemy-and-black-dahlia-murder-to-tour-north-america-in-october) - Metalinjection
