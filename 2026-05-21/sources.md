@@ -1,0 +1,31 @@
+# Sources for 2026-05-21 News Episode 
+- [Michael Jackson’s Decades-Old Single Finally Reaches The Top 10](https://www.forbes.com/sites/hughmcintyre/2026/05/20/michael-jacksons-decades-old-single-finally-reaches-the-top-10/) - Forbes
+- [BTS to Make First Awards Show Appearance in Four Years at "The 52nd American Music Awards," Monday, May 25 at 8:00 PM, ET, 5:00 PM, PT on CBS](http://www.thefutoncritic.com/news/2026/05/20/bts-to-make-first-awards-show-appearance-in-four-years-at-the-52nd-american-music-awards-monday-may-25-at-800-pm-et-500-pm-pt-on-cbs-915514/20260520cbs01/) - Thefutoncritic.com
+- [BTS Set For American Music Awards 2026 Appearance](http://deadline.com/2026/05/bts-american-music-awards-2026-1236916485/) - Deadline
+- [BTS: Sie performen bei den American Music Awards](https://www.stern.de/kultur/bts--sie-performen-bei-den-american-music-awards-37421238.html) - STERN.de
+- [Intro for May 20, 2026](https://www.laineygossip.com/what-will-bts-special-appearance-on-american-music-awards-in-vegas-look-like/) - LaineyGossip
+- [BTS To Make Special Live Appearance At 2026 American Music Awards - Soompi](https://www.soompi.com/article/1842652wpp/bts-to-make-special-live-appearance-at-2026-american-music-awards) - Soompi
+- [RaiNao: Tiny Desk Concert](https://www.npr.org/2026/05/20/g-s1-116802/rainao-tiny-desk-concert) - NPR
+- [RaiNao: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-05-20/rainao-tiny-desk-concert) - Wrvo
+- [Britney Spears Reaches A Chart Milestone That Took Years To Hit](https://www.forbes.com/sites/hughmcintyre/2026/05/20/britney-spears-reaches-a-chart-milestone-that-took-years-to-hit/) - Forbes
+- [Geddy Lee Says RUSH Will Pull Reunion Tour Setlists from 38 Songs](https://consequence.net/2026/05/geddy-lee-rush-38-songs-reunion-tour/) - Consequence.net
+- [Was There a Real ‘Billie Jean’? Here’s What We Actually Know 40 Years Later](https://www.theroot.com/was-there-a-real-billie-jean-here-s-what-we-actually-2000106246) - The Root
+- [40 Years After Its Release, Fans Still Want to Know If There Was a Real ‘Billie Jean’](https://www.theroot.com/40-years-after-its-release-fans-still-want-to-know-if-2000106246) - The Root
+- [Ariana Grande Drops Dangerous Woman Outtake “Knew Better Part Two”](https://pitchfork.com/news/ariana-grande-releases-fan-favorite-single-knew-better-part-two/) - Pitchfork
+- [Cher Through the Years: From Sonny's Sidekick to Goddess of Pop](https://www.usmagazine.com/celebrity-news/pictures/cher-through-the-years-from-sonny-bonos-sidekick-to-pop-icon/) - Us Weekly
+- [35 Fascinating Photos of a Young Cheryl Sarkisian aka Cher in the 1960s](https://www.vintag.es/2026/05/cher-1960s.html) - Vintag.es
+- [Happy 80th Birthday, Cher! See the Icon's Incredible Life and Career in Photos - People.com](https://people.com/cher-career-life-in-photos-11978588) - People
+- [Taylor Swift to be inducted into Songwriters Hall of Fame weeks before her wedding to NFL star Travis Kelce — details on the exclusive invite](https://pagesix.com/2026/05/20/hollywood/taylor-swift-to-be-inducted-into-songwriters-hall-of-fame-weeks-before-her-wedding-to-nfl-star-travis-kelce-details-on-the-exclusive-invite/) - Page Six
+- [Hal David Starlight Award Winners in Songwriters Hall of Fame: Poll - Billboard](https://www.billboard.com/music/awards/songwriters-hall-of-fame-hal-david-starlight-award-winner-1236244579/) - Billboard
+- [Davido, Alkaline & Wizkid to Headline Afro Plus Fest 2026](https://www.prnewswire.com/news-releases/davido-alkaline--wizkid-to-headline-afro-plus-fest-2026-302777946.html) - PRNewswire
+- [Kylie Minogue Reveals She Was Diagnosed With Cancer for a 2nd Time in 2021](https://www.usmagazine.com/celebrity-news/news/kylie-minogue-was-diagnosed-with-cancer-for-a-2nd-time/) - Us Weekly
+- [Kylie Minogue Reveals She Privately Beat Cancer a Second: ‘All Is Well’](http://www.rollingstone.com/music/music-news/kylie-minogue-beat-second-cancer-diagnosis-1235566276/) - Rolling Stone
+- [Kylie Minogue reveals she had second cancer diagnosis in 2021 - BBC](https://www.bbc.com/news/articles/ckgpydgklneo) - Bbc
+- [Kylie Minogue announces she had second cancer diagnosis in 2021 - The Guardian](https://www.theguardian.com/music/2026/may/20/kylie-minogue-announces-she-had-second-cancer-diagnosis-in-2021-netflix-documentary) - Theguardian
+- [Pop Star Reveals Secret Second Cancer Diagnosis - The Daily Beast](https://www.thedailybeast.com/kylie-minogue-reveals-secret-second-cancer-diagnosis/) - Thedailybeast
+- [Kylie Minogue Was Diagnosed With Cancer a Second Time - The Cut](https://www.thecut.com/article/kylie-minogue-was-diagnosed-with-cancer-a-second-time.html) - Thecut
+- [Car Seat Headrest Rerecord Teens of Denial for Its 10th Anniversary](https://pitchfork.com/news/car-seat-headrest-rerecord-teens-of-denial-for-its-10th-anniversary/) - Pitchfork
+- [Car Seat Headrest release Teen of Denial: Joe’s Story](https://www.thelineofbestfit.com/news/car-seat-headrest-release-teen-of-denial-joes-story) - Thelineofbestfit.com
+- [Tangerine Dream – Place des Arts, Montreal – April 9th, 1977 (2025)](https://exystence.net/blog/2026/05/20/tangerine-dream-place-des-arts-montreal-april-9th-1977-2025/) - Exystence.net
+- [John Summit Announces “CTRL ESCAPE” Arena Tour](https://consequence.net/2026/05/john-summit-ctrl-escape-2026-north-american-arena-tour/) - Consequence.net
+- [John Summit Announces ‘CTRL ESCAPE’ North American Tour: How to Buy Tickets](https://www.justjared.com/2026/05/20/john-summit-announces-ctrl-escape-north-american-tour-how-to-buy-tickets/) - Just Jared
