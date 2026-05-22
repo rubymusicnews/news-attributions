@@ -1,0 +1,36 @@
+# Sources for 2026-05-22 News Episode 
+- [Universal Music Makes AI Deal With Spotify On New Tool](https://www.musicbusinessworldwide.com/spotify-and-universal-music-group-strike-landmark-deal-to-let-fans-create-ai-covers-and-remixes-as-a-paid-premium-add-on/) - Music Business Worldwide
+- [Spotify building AI-powered tool that will let subscribers make music covers and remixes](https://9to5mac.com/2026/05/21/spotify-building-ai-powered-tool-that-will-let-subscribers-make-music-covers-and-remixes/) - 9to5Mac
+- [Spotify is launching AI-generated remixes - theverge.com](https://www.theverge.com/ai-artificial-intelligence/935379/spotify-umg-ai-covers-remix) - Theverge
+- [Spotify and Universal Music Announce Licensing Agreements for 'Responsible' AI-Generated Covers and Remixes - Variety Australia](https://au.variety.com/2026/digital/news/spotify-universal-music-licensing-agreements-fan-made-covers-36857/) - Variety
+- [Spotify and Universal Music strike deal allowing fan-made AI covers and remixes - TechCrunch](https://techcrunch.com/2026/05/21/spotify-and-universal-music-strike-deal-allowing-fan-made-ai-covers-and-remixes/) - Techcrunch
+- [Shawn Mendes Charts A Surprising New Hit With One Of His Classics](https://www.forbes.com/sites/hughmcintyre/2026/05/21/shawn-mendes-charts-a-surprising-new-hit-with-one-of-his-classics/) - Forbes
+- [Shawn Mendes Charts A Surprising New Hit With One Of His Classics - Yahoo](https://www.yahoo.com/entertainment/music/articles/shawn-mendes-charts-surprising-hit-133039420.html) - Yahoo
+- [Spotify will now reserve concert tickets for subscribers who are ‘superfans’ of artists](http://musically.com/2026/05/21/spotify-will-now-reserve-concert-tickets-for-subscribers-who-are-superfans-of-artists/) - Music Ally
+- [Spotify will now reserve concert tickets for artists' biggest fans — the service is standing against Ticketmaster battles and scalpers by launching its own ticket priority system so you can automatically benefit if you really love a musician](https://www.techradar.com/audio/spotify/spotify-will-now-reserve-concert-tickets-for-artists-biggest-fans) - TechRadar
+- [Spotify Announces “Reserved” Ticket Program for Superfans](https://consequence.net/2026/05/spotify-reserved-ticket-program-superfans/) - Consequence.net
+- [Spotify Announces New AI-Powered Features for Music, Podcasts, and Audiobooks Listeners](https://www.thurrott.com/music-videos/336389/spotify-announces-new-ai-powered-features-for-music-podcasts-and-audiobooks-listeners) - Thurrott.com
+- [Spotify Can Now Hold Concert Tickets For You](https://www.iphoneincanada.ca/2026/05/21/spotify-can-now-hold-concert-tickets-for-you/) - iPhone in Canada
+- [Jack Antonoff Just Wants to Talk](http://www.rollingstone.com/music/music-features/jack-antonoff-bleachers-new-album-tour-interview-1235566247/) - Rolling Stone
+- [Jack Antonoff says 'this version of modernity is trash' in new Bleachers album - NPR](https://www.npr.org/2026/05/22/nx-s1-5711517/jack-antonoff-bleachers-album-everyone-for-ten-minutes) - Npr
+- [Pearl Jam Preserving New Drummer Mystery](https://www.spinmagazine.com/2026/05/pearl-jam-new-drummer/) - Spinmagazine.com
+- [Pearl Jam Announce First Gig Since Drummer Departure With 2026 Ohana Festival Lineup - Billboard](https://www.billboard.com/music/concerts/pearl-jam-first-gig-drummer-departure-2026-ohana-fest-lineup-1236246708/) - Billboard
+- [Stormzy returns with new single "24 Hours" featuring ODEAL](https://www.thelineofbestfit.com/news/stormzy-returns-with-new-single-24-hours-featuring-odeal) - Thelineofbestfit.com
+- [Questlove Enlists Michelle & Barack Obama To Dissect The Genius Of Earth, Wind & Fire In First Trailer For HBO Doc](http://deadline.com/2026/05/questlove-michelle-barack-obama-earth-wind-and-fire-trailer-1236918056/) - Deadline
+- [HBO Original Documentary "Earth, Wind & Fire (To Be Celestial vs. That's the Weight of the World)" Debuts June 7](http://www.thefutoncritic.com/news/2026/05/21/hbo-original-documentary-earth-wind-and-fire-to-be-celestial-vs-thats-the-weight-of-the-world-debuts-june-7-952115/20260521hbo01/) - Thefutoncritic.com
+- [Earth, Wind & Fire documentary trailer](https://ohnotheydidnt.livejournal.com/132371296.html) - Livejournal.com
+- [“Gilboard” Dream: Inside The Lore Of Picheolin, The Alter Ego Of SEVENTEEN’s Dino](http://www.soompi.com/article/1841835wpp/gilboard-dream-inside-the-lore-of-picheolin-the-alter-ego-of-seventeens-dino) - soompi
+- [SEVENTEEN's DINO to Debut as Solo Alter Ego Picheolin With Mini Album - Billboard](https://www.billboard.com/music/music-news/seventeen-dino-debut-solo-alter-ego-picheolin-mini-album-1236244203/) - Billboard
+- [Watch: SEVENTEEN’s Dino Confirmed To Make Solo Debut As His Alter Ego Picheolin - Soompi](https://www.soompi.com/article/1839946wpp/watch-seventeens-dino-confirmed-to-make-solo-debut-as-his-alter-ego-picheolin) - Soompi
+- [How is Niall Horan honoring Liam Payne? #tabloid](https://alltoc.com/tabloid/how-is-niall-horan-honoring-liam-payne) - Alltoc.com
+- [It’s Easy To Fall For SHOWNU X HYUNGWON’s EP [LOVE ME]](https://www.forbes.com/sites/laurasirikul/2026/05/21/its-easy-to-fall-for-shownu-x-hyungwons-ep-love-me/) - Forbes
+- [NewJeans & ADOR facing plagiarism lawsuit for top line and melody in 'How Sweet' - allkpop](https://www.allkpop.com/article/2026/05/newjeans-ador-facing-plagiarism-lawsuit-for-top-line-and-melody-in-how-sweet) - Allkpop
+- [Warner Chappell Music signs publishing deal with Indian composer Anurag Saikia](http://musically.com/2026/05/21/warner-chappell-music-signs-publishing-deal-with-indian-composer-anurag-saikia/) - Music Ally
+- [All 49 Bands Who Played Linkin Park's Projekt Revolution Tour](https://loudwire.com/linkin-park-projekt-revolution-tour-lineups/) - Loudwire
+- [Projekt Revolution 2004 Tour Dates Announced](https://www.metalunderground.com/news/details.cfm?newsid=7846) - Metalunderground
+- [Presenters Announced for "The 52nd American Music Awards," Monday, May 25 on CBS](http://www.thefutoncritic.com/news/2026/05/21/presenters-announced-for-the-52nd-american-music-awards-monday-may-25-on-cbs-206214/20260521cbs01/) - Thefutoncritic.com
+- [How to Watch the 52nd American Music Awards - American Music Awards](https://www.theamas.com/2026/05/how-to-watch-the-52nd-american-music-awards/) - Theamas
+- [Karol G to Receive the International Artist Award of Excellence, Perform at 2026 American Music Awards - Billboard](https://www.billboard.com/music/awards/karol-g-amas-international-artist-award-of-excellence-2026-1236246832/) - Billboard
+- [BTS To Make Special Live Appearance At 2026 American Music Awards - Soompi](https://www.soompi.com/article/1842652wpp/bts-to-make-special-live-appearance-at-2026-american-music-awards) - Soompi
+- [Ahead of His Rock Hall Induction, Billy Idol to Receive Lifetime Achievement Award at 2026 American Music Awards - Billboard](https://www.billboard.com/music/awards/billy-idol-2026-american-music-awards-lifetime-achievement-1236247973/) - Billboard
+- [Margo Price, Brandi Carlile, Charley Crockett Nominated for 2026 Americana Honors](http://www.rollingstone.com/music/music-country/2026-americana-honors-awards-nominees-brandi-carlile-1235567124/) - Rolling Stone
