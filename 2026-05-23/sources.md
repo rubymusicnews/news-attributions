@@ -1,0 +1,39 @@
+# Sources for 2026-05-23 News Episode 
+- [Pinkfong's "Baby Shark" Swims Into Spotify's Billions Club](https://www.prnewswire.com/news-releases/pinkfongs-baby-shark-swims-into-spotifys-billions-club-302779724.html) - PRNewswire
+- [Olivia Rodrigo releases new single "the cure" from her third album, you seem pretty sad for a girl so in love](https://www.thelineofbestfit.com/news/olivia-rodrigo-releases-new-single-the-cure-from-her-third-album-you-seem-pretty-sad-for-a-girl-so-in-love) - Thelineofbestfit.com
+- [Olivia Rodrigo Is Sad Again](http://www.vulture.com/article/olivia-rodrigo-the-cure-music-video.html) - Vulture
+- [Olivia Rodrigo Finds ‘The Cure’: Stream It Now - Billboard Canada](https://ca.billboard.com/music/pop/olivia-rodrigo-releases-the-cure-stream-it-now-1236254015/) - Billboard
+- [Olivia Rodrigo Becomes Completely ‘Unraveled’ In Her New Single ‘The Cure’ - Newsweek](https://www.newsweek.com/entertainment/olivia-rodrigo-becomes-completely-unraveled-in-her-new-single-the-cure-11984617) - Newsweek
+- [Watch Dua Lipa’s Concert Film ‘Dua Lipa (Live From Mexico)’](http://www.rollingstone.com/music/music-news/dua-lipa-live-from-mexico-concert-film-1235567407/) - Rolling Stone
+- [Phil Collins Rules Out Hall of Fame Performance, But ‘Would Contemplate’ a Tour](http://www.rollingstone.com/music/music-news/phil-collins-hall-of-fame-would-contemplate-tour-1235567446/) - Rolling Stone
+- [Phil Collins says he cannot see himself performing live again](https://www.belfasttelegraph.co.uk/entertainment/news/phil-collins-says-he-cannot-see-himself-performing-live-again/a/152680415.html) - Belfasttelegraph
+- [Phil Collins gives rare update on his health struggles, reveals if he'll ever tour or release new music again - Entertainment Weekly](https://ew.com/phil-collins-health-update-tour-new-music-plans-rock-hall-performance-11982535) - Ew
+- [Take This Phil Collins Update at Face Value - Vulture](https://www.vulture.com/article/take-this-phil-collins-update-at-face-value.html) - Vulture
+- [Michael Jackson Blocks One Of R&B’s Biggest Stars From A New No. 1 Album](https://www.forbes.com/sites/hughmcintyre/2026/05/22/michael-jackson-blocks-one-of-rbs-biggest-stars-from-a-new-no-1-album/) - Forbes
+- [Michael Jackson Blocks One Of R&B’s Biggest Stars From A New No. 1 Album - Yahoo](https://www.yahoo.com/entertainment/music/articles/michael-jackson-blocks-one-r-123000333.html) - Yahoo
+- [Michael Jackson’s ‘Thriller’ Reaches A Rarely-Seen Sales Milestone - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/05/10/michael-jacksons-thriller-reaches-a-rarely-seen-sales-milestone/) - Forbes
+- [Michael Jackson, Prince And Elvis Presley Score Top 10 Albums On The Same Chart This Week - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/05/11/michael-jackson-prince-and-elvis-presley-score-top-10-albums-on-the-same-chart-this-week/) - Forbes
+- [Bruno Mars Hits No. 1 For The First Time On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/05/22/bruno-mars-hits-no-1-for-the-first-time-on-multiple-charts/) - Forbes
+- [Ella Langley Scores A Historic First For Country Music](https://www.forbes.com/sites/hughmcintyre/2026/05/22/ella-langley-scores-a-historic-first-for-country-music/) - Forbes
+- [Ella Langley Joins Ariana Grande, Mariah Carey And Justin Bieber In A Chart Feat - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/05/16/ella-langley-joins-ariana-grande-mariah-carey-and-justin-bieber-in-a-chart-feat/) - Forbes
+- [Ella Langley Scores A Historic First For Country Music - Yahoo](https://www.yahoo.com/entertainment/music/articles/ella-langley-scores-historic-first-130000574.html) - Yahoo
+- [Ella Langley Makes Country Music History On Billboard’s Biggest Chart - Yahoo](https://www.yahoo.com/entertainment/music/articles/ella-langley-makes-country-music-151744404.html) - Yahoo
+- [Ella Langley Makes Country Music History On Billboard’s Biggest Chart - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/05/15/ella-langley-makes-country-music-history-on-billboards-biggest-chart/) - Forbes
+- [Harry Styles Credits Radiohead for Inspiring His Songwriting and First Sexual Act](https://consequence.net/2026/05/harry-styles-radiohead-virginity-ivors-speech/) - Consequence.net
+- [Harry Styles reveals he lost his virginity to Radiohead's Talk Show Host while honouring Thom Yorke at the Ivor Novello Awards](https://www.dailymail.com/tvshowbiz/article-15840019/Harry-Styles-virginity-Talk-Host-honouring-Radioheads-Thom-Yorke-Ivor-Novello-Awards.html) - Dailymail.com
+- [Harry Styles makes surprising virginity loss confession in Ivor Novello Awards speech](https://pagesix.com/2026/05/22/entertainment/harry-styles-makes-surprising-virginity-loss-confession-in-ivor-novello-awards-speech/) - Page Six
+- [Sam Fender, Rosalía and Jacob Alon win Ivor Novello Awards - BBC](https://www.bbc.com/news/articles/c74rvezve80o) - Bbc
+- [Harry Styles says he lost his virginity to Radiohead's 'Talk Show Host' – check out his full speech in tribute to Thom Yorke at the Ivor Novellos 2026 - NME](https://www.nme.com/news/music/harry-styles-says-he-lost-his-virginity-to-radioheads-talk-show-host-check-out-his-full-speech-in-tribute-to-thom-yorke-at-the-ivor-novellos-2026-3946807) - Nme
+- [5 Hits You Didn't Know George Harrison Wrote for The Beatles](https://www.mentalfloss.com/entertainment/music/hits-didn-t-know-george-harrison-wrote-for-the-beatles) - Mental Floss
+- [Samsung will livestream K-Pop music concerts every month on its TVs for free](https://www.sammobile.com/news/samsung-tv-livestream-k-pop-music-concerts-every-month-free/) - SamMobile
+- [Jonases join the podcast bros](http://musically.com/2026/05/22/jonases-join-the-podcast-bros/) - Music Ally
+- [New Music Friday: The best albums out May 22](https://www.npr.org/2026/05/22/nx-s1-5830344/new-music-friday-best-albums-may-22-2026) - NPR
+- [Staff Picks: Best Songs of the Week May 16th – May 22nd](https://consequence.net/2026/05/best-songs-of-the-week-may-16th-may-22nd/) - Consequence.net
+- [How Ahn Hyo-Seop Found ‘Something Special’ With Khalid Collaboration](https://www.forbes.com/sites/laurasirikul/2026/05/22/how-ahn-hyo-seop-found-something-special-with-khalid-collaboration/) - Forbes
+- [Sold Out On You Star Ahn Hyo-Seop Makes Solo Music Debut, Releases Something Special With Khalid](https://www.timesnownews.com/entertainment-news/korean/sold-out-on-you-star-ahn-hyo-seop-makes-solo-music-debut-releases-something-special-with-khalid-article-154374925) - Timesnownews
+- [Ahn Hyo-Seop, the star of Sold Out On You, has launched his solo music career, unveiling a special collaboration with Khalid.](https://www.zoomtventertainment.com/korean/khalid-ahn-hyo-seop-something-special-release-article-154378163) - Zoomtventertainment
+- [SoundExchange’s CEO Michael Huppe Considers The Pros And Cons Of AI](https://www.forbes.com/sites/mikealleyne/2026/05/22/soundexchanges-ceo-michael-huppe-considers-the-pros-and-cons-of-ai/) - Forbes
+- [Spotify and Universal Music Group Announce Landmark Licensing Agreements for Fan-Made Covers and Remixes - Spotify — For the Record](https://newsroom.spotify.com/2026-05-21/universal-music-group-spotify-licensing-agreements-fan-made-covers-remixes/) - Spotify
+- [Spotify And Universal Just Put AI Music Behind A Paywall - Forbes](https://www.forbes.com/sites/maureenkerr/2026/05/22/spotify-and-universal-just-put-ai-music-behind-a-paywall/) - Forbes
+- [Spotify and Universal Music Announce Licensing Agreements for 'Responsible' AI-Generated Covers and Remixes - Variety Australia](https://au.variety.com/2026/digital/news/spotify-universal-music-licensing-agreements-fan-made-covers-36857/) - Variety
+- [Spotify is launching AI-generated remixes - theverge.com](https://www.theverge.com/ai-artificial-intelligence/935379/spotify-umg-ai-covers-remix) - Theverge
