@@ -1,0 +1,34 @@
+# Sources for 2026-05-24 News Episode 
+- [Shakira & Burna Boy Drop 'Dai Dai' Video for 2026 World Cup](http://www.billboard.com/music/music-news/shakira-burna-boy-dai-dai-video-2026-world-cup-1236255709/) - Billboard
+- [Shakira’s FIFA World Cup 2026 anthem gets star-studded video treatment - NBC News](https://www.nbcnews.com/pop-culture/pop-culture-news/shakira-official-video-fifa-world-cup-2026-rcna346651) - Nbcnews
+- [Shakira and Burna Boy release official 2026 FIFA World Cup Anthem, 'Dai Dai' - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/shakira-and-burna-boy-release-official-2026-fifa-22259991.php) - Sfchronicle
+- [Shakira to Perform at Her Fourth World Cup in Career - Telecom Asia Sport](https://www.telecomasia.net/news/football/shakira-to-perform-at-her-fourth-world-cup-in-career/) - Telecomasia
+- [Shakira and Burna Boy release official 2026 FIFA World Cup Anthem, ‘Dai Dai’ - AP News](https://apnews.com/article/shakira-burna-boy-fifa-world-cup-anthem-db577fc3124cffcbd2026578641ff04b) - Apnews
+- [Billie Eilish’s Latest Album Celebrates A Milestone](https://www.forbes.com/sites/hughmcintyre/2026/05/23/billie-eilishs-latest-album-celebrates-a-milestone/) - Forbes
+- [Charli XCX Drops Cheeky ‘Playboy Bunny’ B-Side to ‘SS26’](http://www.rollingstone.com/music/music-news/charli-xcx-shares-playboy-bunny-1235567645/) - Rolling Stone
+- [Charli xcx Shares 'Playboy Bunny' B-Side to 'SS26'](http://www.billboard.com/music/music-news/charli-xcx-playboy-bunny-b-side-song-ss26-1236255722/) - Billboard
+- [Charli xcx Shares Pop-Punk Track ‘Playboy Bunny’ as B-Side to ‘SS26’ - Billboard Canada](https://ca.billboard.com/music/music-news/charli-xcx-playboy-bunny-b-side-song-ss26-1236255722/) - Billboard
+- [Charli XCX Shares New Song "Playboy Bunny": Listen - Stereogum](https://stereogum.com/2499976/charli-xcx-playboy-bunny/music) - Stereogum
+- [2Pac’s Heartfelt Single Finally Cracks The Top 10](https://www.forbes.com/sites/hughmcintyre/2026/05/23/2pacs-heartfelt-single-finally-cracks-the-top-10/) - Forbes
+- [Ariana Grande – Dangerous Woman album art](https://fontsinuse.com/uses/77671/ariana-grande-dangerous-woman-album-art) - Fontsinuse.com
+- [Drake Just Proved He Has At Least 1 Thing In Common With Trump](https://www.huffpost.com/entry/drake-iceman-review-trump_n_6a0c8193e4b0d1a142e15450) - HuffPost
+- [Drake’s ‘Iceman’ is a 40-degree day - Andscape](https://andscape.com/features/drake-iceman-album-review-maid-of-honour-habibti/) - Andscape
+- [Drake’s Triple Album Drop Puts Amazon Music In The Streaming Convo - Forbes](https://www.forbes.com/sites/imeekpo/2026/05/17/drakes-triple-album-drop-puts-amazon-music-in-the-streaming-convo/) - Forbes
+- [Drake Is Spotify’s Most-Streamed Artist in a Day for 2026 Following Three-Album Release - Rolling Stone](https://www.rollingstone.com/music/music-news/drake-iceman-spotify-most-streamed-artist-day-record-2026-1235563836/) - Rollingstone
+- [Premature Evaluation: Drake 'Iceman,' 'Maid Of Honour,' & 'Habibti' - Stereogum](https://stereogum.com/2499354/premature-evaluation-drake-iceman-maid-of-honour-habibti/reviews/premature-evaluation) - Stereogum
+- [The Passion Of The Drake: A (Mostly) Objective Review Of His Three New Albums - Defector](https://defector.com/the-passion-of-the-drake-a-mostly-objective-review-of-his-three-new-albums) - Defector
+- [Iron Maiden return to Athens tonight for a massive Heavy Metal celebration (photos-video)](https://en.protothema.gr/2026/05/23/iron-maiden-return-to-athens-tonight-for-a-massive-heavy-metal-celebration-photos-video/) - Protothema.gr
+- [‘Blue dot fever’? What's really behind a tricky summer dynamic for live music](https://www.cnbc.com/2026/05/23/concert-ticket-prices-live-music-demand.html) - CNBC
+- [‘Blue Dot Fever' Is Spreading — And It May Be Behind Your Favorite Concert’s Sudden Cancellation - HuffPost](https://www.huffpost.com/entry/blue-dot-fever-concert-cancel_l_6a107f3ce4b084c012e5b7cd/amp) - Huffpost
+- [Alan Jackson’s ‘Last Call’ Concert Will Become an NBC Special](http://www.billboard.com/music/country/alan-jackson-last-call-final-concert-nbc-special-1236255603/) - Billboard
+- [Neil Young returned at Vancouver benefit show? #entertainment](https://alltoc.com/entertainment/neil-young-returned-at-vancouver-benefit-show) - Alltoc.com
+- [Natalie Maines’ anti-Trump tirade, Zach Bryan’s fence-climbing clash fuel country music’s biggest feuds](https://www.foxnews.com/entertainment/natalie-maines-anti-trump-tirade-zach-bryans-fence-climbing-clash-fuel-country-musics-biggest-feuds) - Fox News
+- [The Chicks singer Natalie Maines trades barbs with White House over Trump criticism - USA Today](https://www.usatoday.com/story/entertainment/music/2026/05/21/natalie-maines-trump-criticism-the-chicks/90192652007/) - Usatoday
+- [White House calls The Chicks’ Natalie Maines a ‘despicable nobody’ after singer’s vulgar attack on Trump - New York Post](https://nypost.com/2026/05/21/us-news/white-house-slams-the-chicks-natalie-maines-over-vulgar-trump-attack/) - Nypost
+- [White House calls The Chicks' Natalie Maines a 'despicable nobody' after singer's vulgar attack on Trump - Fox News](https://www.foxnews.com/entertainment/white-house-chicks-natalie-maines-despicable-nobody-singers-vulgar-attack-trump) - Foxnews
+- [Lizzo Addresses Viral Rumors She 'Talked S***' About Taylor Swift](https://www.usmagazine.com/celebrity-news/news/rapper-lizzo-addresses-rumors-she-dissed-taylor-swift/) - Us Weekly
+- [I wrote hit song on a bus — Ayra Starr](https://punchng.com/i-wrote-hit-song-on-a-bus-ayra-starr/) - The Punch
+- [Ashley McBryde Exposes Her Life, Grit in New Album](http://wwd.com/eye/people/ashley-mcbryde-album-wild-country-music-1238974762/) - WWD
+- [Ashley McBryde Turns Her Addiction And Broken Past Into Wild, Brutal Truth - Qoo Media](https://www.qoo10.co.id/en/international/101740/ashley-mcbryde-turns-her-addiction-and-broken-past-into-wild-brutal-truth/) - Qoo10
+- [Ashley McBryde Shares Deeply Personal Stories Of Growth Throughout Her Life After Releasing 'Wild' Project - K102](https://k102.iheart.com/content/2026-05-20-ashley-mcbryde-shares-deeply-personal-stories-of-growth-throughout-her-life/) - Iheart
+- [Ashley McBryde Shares Deeply Personal Stories Of Growth Throughout Her Life After Releasing 'Wild' Project - iHeart](https://1063thebear.iheart.com/content/2026-05-20-ashley-mcbryde-shares-deeply-personal-stories-of-growth-throughout-her-life/) - Iheart
