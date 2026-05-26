@@ -1,0 +1,29 @@
+# Sources for 2026-05-26 News Episode 
+- [Drake Sets ARIA Chart Record](http://www.billboard.com/music/chart-beat/drake-aria-albums-chart-record-1236253215/) - Billboard
+- [Drake Makes Chart History as New Album Trilogy Lands Top Three Spots](http://www.rollingstone.com/music/music-news/drake-chart-history-new-album-trilogy-top-three-spots-1235568152/) - Rolling Stone
+- [EXCLUSIVE: Drake Has #1, #2 & #3 Album … And ALL Top 5 Singles!](https://mediatakeout.com/exclusive-drake-has-1-2-3-album-and-all-top-5-singles/) - Mediatakeout.com
+- [Drake albums claim top spots on Billboard chart](https://www.cp24.com/news/entertainment/2026/05/25/drake-pulls-historic-hat-trick-claiming-top-3-spots-on-billboard-chart/) - CP24 Toronto's Breaking News
+- [Drake's Three-Album Drop Nabs Top Chart Spots](https://exclaim.ca/music/article/drake-debuts-three-albums-at-the-top-of-the-charts) - Exclaim!
+- [Paul McCartney Talks About Origins of New Album With Actor Paul Mescal in Amazon Short Film Streaming Now](https://consequence.net/2026/05/paul-mccartney-paul-mescal-amazon-short-film/) - Consequence.net
+- [What to Stream: Paul McCartney, John Travolta, Tina Fey, Latto and Nicolas Cage as Spider-Man](https://www.seattlepi.com/entertainment/article/what-to-stream-paul-mccartney-john-travolta-22272221.php) - seattlepi.com
+- [Paul McCartney’s self-reflective 'The Boys of Dungeon Lane' is one of his best albums of the 21st century - Goldmine Magazine](https://www.goldminemag.com/reviews/album-reviews/paul-mccartneys-self-reflective-the-boys-of-dungeon-lane-is-one-of-his-best-albums-of-the-21st-century/) - Goldminemag
+- [Chans till storslam för Zara Larsson på AMA i natt](https://www.aftonbladet.se/nojesbladet/a/OkE6mV/zara-larssons-stora-chanser-i-natt-pa-american-music-awards) - Aftonbladet.se
+- [American Music Awards complete winners list - USA Today](https://www.usatoday.com/story/entertainment/music/2026/05/25/american-music-awards-winners-list/90203331007/) - Usatoday
+- [Metallica urge British fans to donate blood and ‘be part of something bigger than the show’](https://www.the-independent.com/arts-entertainment/music/news/metallica-tour-blood-donation-nhs-b2983165.html) - The-independent.com
+- [5 Anti-War Anthems from the 1970s That Powered a Whole Movement](https://www.mentalfloss.com/entertainment/music/anti-war-anthems-1970s) - Mental Floss
+- [Record Label Claims That Bizarre AI-Generated “Viking Rappers” Garnering Millions of Views are Real People](http://futurism.com/artificial-intelligence/ai-generated-viking-rap) - Futurism
+- [Sueños Festival 2026: 10 Best Performances, Ranked](http://www.billboard.com/lists/suenos-festival-2026-best-performances-ranked/) - Billboard
+- [75 years of the Fender Telecaster: The guitar that changed the world](https://newatlas.com/music/75-years-fender-telecaster-tele-town/) - New Atlas
+- [Fender Celebrates The Telecaster By Turning Nashville Into ‘Tele Town’ - Forbes](https://www.forbes.com/sites/matthewleimkuehler/2026/05/13/fender-celebrates-the-telecaster-by-turning-nashville-into-tele-town/) - Forbes
+- [“This city didn't just embrace the Telecaster, it helped define it”: Fender’s Telecaster 75th anniversary show might be the greatest assemblage of Tele talent ever](https://www.guitarworld.com/artists/guitarists/fender-tele-town-nashville-concert) - Guitarworld
+- [Irish Eurovision winners star in 70th anniversary video](https://www.rte.ie/entertainment/2026/0525/1575074-irish-eurovision-winners-star-in-70th-anniversary-video/) - RTE
+- [Jethro Tull’s 1984 Album ‘Under Wraps’ Gets a Lavish Reissue](https://www.spinmagazine.com/2026/05/jethro-tulls-1984-album-under-wraps-gets-a-lavish-reissue/) - Spinmagazine.com
+- [2026 SBS Gayo Daejeon Summer Announces Date And Venue](http://www.soompi.com/article/1843506wpp/2026-sbs-gayo-daejeon-summer-announces-date-and-venue) - soompi
+- [5 Collaborations Between Nigerian And International Artists That Actually Worked  » YNaija](https://ynaija.com/5-collaborations-between-nigerian-and-international-artists-that-actually-worked/) - Ynaija.com
+- [Video: Bruce Springsteen Mocked as ‘Billionaire Hypocrite’ as His Anti-Trump Tour Drags On](https://www.breitbart.com/entertainment/2026/05/25/video-bruce-springsteen-mocked-as-billionaire-hypocrite-as-his-anti-trump-tour-drags-on/) - Breitbart News
+- [Review and setlist: Bruce Springsteen at TD Garden, Boston, 5/24/26](https://www.boston.com/culture/concert-reviews/2026/05/25/review-and-setlist-bruce-springsteen-e-street-band-td-garden-boston-may-24-2026/) - Boston.com
+- [Bruce Springsteen Shares 'Prayer of Thanks' for Trump's Safety Following White House Shooting - Ultimate Classic Rock](https://ultimateclassicrock.com/bruce-springsteen-prayer-trump-shooting/) - Ultimateclassicrock
+- [Springsteen’s N.J. concert was poisoned by hypocrisy. Anti-Trump final act is a tragic mistake. - NJ.com](https://www.nj.com/entertainment/2026/04/springsteens-nj-concert-was-poisoned-by-hypocrisy-anti-trump-final-act-is-a-tragic-mistake.html) - Nj
+- [Bruce Springsteen and band deliver politically charged, rocking concert (photos, setlist) - Cleveland.com](https://www.cleveland.com/entertainment/2026/05/bruce-springsteen-and-band-deliver-politically-charged-rocking-concert-photos-setlist.html) - Cleveland
+- [Opinion \| Bruce Springsteen’s Lecture Tour - WSJ](https://www.wsj.com/opinion/free-expression/bruce-springsteens-lecture-tour-9267289c) - Wsj
+- [Armored Saint Interview With John Bush + Joey Vera](https://loudwire.com/armored-saint-john-bush-joey-vera-new-album-emotion-factory-reset-interview/) - Loudwire
