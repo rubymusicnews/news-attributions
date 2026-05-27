@@ -1,0 +1,32 @@
+# Sources for 2026-05-27 News Episode 
+- [Kehlani Announces 2026 North American Tour](https://consequence.net/2026/05/kehlani-2026-north-american-tour-dates/) - Consequence.net
+- [ADÉLA Announces Debut North American Headlining Tour](https://consequence.net/2026/05/adela-2026-north-american-headlining-tour/) - Consequence.net
+- [Every Winner at the American Music Awards](http://www.vulture.com/article/amas-2026-winners.html) - Vulture
+- [Kendrick Lamar, Cardi B, Monaleo & Black Eyed Peas Win 2026 AMAs](https://www.xxlmag.com/kendrick-lamar-cardi-b-monaleo-black-eyed-peas-win-2026-american-music-awards/) - XXLMAG.COM
+- [Cardi B Promises to Perform at 2027 AMAs & Reacts to Knicks Advancing to NBA Finals: ‘What a Great Day’ - Billboard](https://www.billboard.com/music/rb-hip-hop/cardi-b-perform-2027-amas-celebrate-knicks-win-game-4-1236256847/) - Billboard
+- [American Music Awards complete winners list - USA Today](https://www.usatoday.com/story/entertainment/music/2026/05/25/american-music-awards-winners-list/90203331007/) - Usatoday
+- [Após cancelar turnê nos EUA, Pussycat Dolls estreiam como trio no American Music Awards 2026; assista à performance!](https://www.terra.com.br/diversao/musica/apos-cancelar-turne-nos-eua-pussycat-dolls-estreiam-como-trio-no-american-music-awards-2026-assista-a-performance,661c7d08385943b8005df22d4cec3d0ammma3j3l.html) - Terra.com.br
+- [Girl Group KATSEYE Deliver Dance-Heavy “Pinky Up” Performance at 2026 AMAs - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-news/girl-group-katseye-american-music-awards-amas-1236605567/) - Hollywoodreporter
+- [Roxette Announce 2026 Fall 40th Anniversary Tour](https://consequence.net/2026/05/roxette-2026-tour-dates-40th-anniversary/) - Consequence.net
+- [Roxette Announce 40th Anniversary Tour](https://exclaim.ca/music/article/roxette-announce-40th-anniversary-tour) - Exclaim
+- [It’s only taken a decade: YouTube Music is finally getting basic playlist sorting features](https://www.androidauthority.com/youtube-music-playlist-sorting-options-3670873/) - Android Authority
+- [YouTube Music introduce l’ordinamento delle playlist per titolo, artista e album](https://www.webnews.it/youtube-music-introduce-lordinamento-delle-playlist-per-titolo-artista-e-album/) - Webnews.it
+- [YouTube Music's newest feature should have been there a decade ago](https://www.makeuseof.com/youtube-musics-newest-feature-should-have-been-there-a-decade-ago/) - MakeUseOf
+- [Can you own a voice? Taylor Swift’s latest legal move raises big questions for AI and copyright](https://theconversation.com/can-you-own-a-voice-taylor-swifts-latest-legal-move-raises-big-questions-for-ai-and-copyright-282754) - The Conversation Africa
+- [Deepfakes are testing the limits of IP law - Politico](https://www.politico.com/newsletters/digital-future-daily/2026/05/21/deepfakes-are-testing-the-limits-of-ip-law-00932472) - Politico
+- [Rivers Cuomo Uploads Mysterious Collection of Cover Songs to YouTube](https://consequence.net/2026/05/rivers-cuomo-uploads-covers-to-youtube/) - Consequence.net
+- [Karol G’s Moment](https://www.laineygossip.com/karol-g-presented-with-international-artist-award-of-excellence-at-amas-in-midst-of-record-breaking-year/) - LaineyGossip
+- [Karol G to Receive the International Artist Award of Excellence, Perform at 2026 American Music Awards - Billboard](https://www.billboard.com/music/awards/karol-g-amas-international-artist-award-of-excellence-2026-1236246832/) - Billboard
+- [Full List of Performers and Presenters for the 2026 American Music Awards - Time Bulletin](https://www.timebulletin.com/full-list-of-performers-and-presenters-for-the-2026-american-music-awards/) - Timebulletin
+- [Behind the scenes at the AMAs: BTS brought the screams, Billy Idol brought the nostalgia and Karol G brought the heat - Yahoo](https://www.yahoo.com/entertainment/music/article/behind-the-scenes-at-the-amas-bts-brought-the-screams-billy-idol-brought-the-nostalgia-and-karol-g-brought-the-heat-182618985.html) - Yahoo
+- [Asake Announces 2026 North American Tour](https://consequence.net/2026/05/asake-2026-north-american-tour/) - Consequence.net
+- [Asake Announces ‘In God We Trust’ Tour With Uncle Waffles (EXCLUSIVE)](https://variety.com/2026/music/news/asake-in-god-we-trust-tour-dates-uncle-waffles-1236758593/) - Variety
+- [Tommy Lee: “Quantity Over Quality. Everything’s Getting Fucking Stupid.”](https://www.spinmagazine.com/2026/05/tommy-lee-quantity-over-quality-everythings-getting-fucking-stupid/) - Spinmagazine.com
+- [Dragonforce Announce First Headlining Tour With Alissa White-Gluz](https://loudwire.com/dragonforce-2026-north-american-tour-alissa-white-gluz/) - Loudwire
+- [DragonForce Announce 2026 North American Tour Celebrating Inhuman Rampage](https://consequence.net/2026/05/dragonforce-20th-anniversary-tour-inhuman-rampage/) - Consequence.net
+- [Latin Trap and Reggaetón Star Arcángel Announces 2026 Fall US Tour](https://consequence.net/2026/05/arcangel-announces-2026-fall-us-tour/) - Consequence.net
+- [Arcángel Unveils U.S. Dates for La 8va Maravilla 20 Aniversario Tour - Billboard](https://www.billboard.com/music/latin/arcangel-us-tour-dates-la-8va-maravilla-20-aniversario-tour-1236256921/) - Billboard
+- [Godsmack’s Sully Erna Talks “Live at Mohegan Sun,” New Lineup, 2026 Tour, and Future Albums](https://consequence.net/2026/05/godsmack-sully-erna-interview/) - Consequence.net
+- [‘Definitely There’s Gonna be a New Record:’ Godsmack Crushes Retirement Talk - Billboard](https://www.billboard.com/music/rock/godsmack-sully-erna-interview-1236230469/) - Billboard
+- [Bright Eyes Revisits the Past With Politically-Charged Album Anniversary Show at Los Angeles’ Hollywood Bowl: Concert Review](https://variety.com/2026/music/news/bright-eyes-im-wide-awake-los-angeles-concert-review-1236758648/) - Variety
+- [Conor Oberst doesn’t do nostalgia. Anger is his motivation - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-05-19/bright-eyes-conor-oberst-interview) - Latimes
