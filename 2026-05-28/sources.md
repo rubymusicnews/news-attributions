@@ -1,0 +1,29 @@
+# Sources for 2026-05-28 News Episode 
+- [Drake Further His Lead Over Taylor Swift With A New No. 1 Debut](https://www.forbes.com/sites/hughmcintyre/2026/05/27/drake-further-his-lead-over-taylor-swift-with-a-new-no-1-debut/) - Forbes
+- [Drake Breaks Longstanding Record Set by Michael Jackson - Men's Journal](https://www.mensjournal.com/entertainment/drake-breaks-longstanding-record-set-by-michael-jackson) - Mensjournal
+- [Ozzy to be resurrected as AI hologram](https://www.rt.com/pop-culture/640614-ozzy-osbourne-ai-hologram/) - RT
+- [Ozzy Osbourne's latest reinvention is an AI-powered interactive hologram experience - Fox News](https://www.foxnews.com/outkick-culture/ozzy-osbournes-latest-reinvention-ai-powered-interactive-hologram-experience) - Foxnews
+- [AI-powered version of Ozzy Osbourne could make its first UK appearance in Birmingham - BBC](https://www.bbc.com/news/articles/ckgppy42gqyo) - Bbc
+- [Ozzy Osbourne to Return as an AI-Powered Digital Avatar: ‘This Is a Living Performance’ - Billboard Canada](https://ca.billboard.com/music/rock/ozzy-osbourne-ai-powered-digital-avatar-announced-1236254316/) - Billboard
+- [Ozzy Osbourne AI avatar will be ‘so tasteful’, Jack Osbourne says after fan backlash - The Guardian](https://www.theguardian.com/music/2026/may/26/ozzy-osbourne-ai-avatar-backlash-jack-osbourne-response) - Theguardian
+- [Lady Gaga Blocked From A New No. 1 By Only One Space](https://www.forbes.com/sites/hughmcintyre/2026/05/27/lady-gaga-blocked-from-a-new-no-1-by-only-one-space/) - Forbes
+- [Sepultura Announce Last Show Ever, Farewell Tour Ending in 2026](https://loudwire.com/sepultura-last-show-farewell-tour-2026/) - Loudwire
+- [Taylor Swift Sends 8-Year-Old Fan the Ultimate Gift After Viral Video](https://www.eonline.com/news/1432382/taylor-swift-sends-fan-guitar-after-viral-tiktok-paper-airplane-video) - Eonline.com
+- [A Perfect Circle Unleash Surprise New Song “Starless” Ahead of 2026 Tour: Stream](https://consequence.net/2026/05/a-perfect-circle-surprise-new-song-starless/) - Consequence.net
+- [How music promo learned to blend into your feed](https://www.thefader.com/2026/05/27/stealthy-music-marketing-strategy-niche-creators) - The FADER
+- [Michael Jackson estate co-executor John McClain dead at 71 after privately battling illness… amid court war with singer's daughter Paris](https://www.dailymail.com/tvshowbiz/article-15851071/john-mcclain-michael-jackson-estate-executor-dead.html) - Dailymail.com
+- [John McClain, co-executor of Michael Jackson estate, dies at 71 - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-05-27/john-mcclain-michael-jackson-co-executor-dead) - Latimes
+- [Henry Rollins and Ian MacKaye Help Unearth Lost Album by The Cramps](https://consequence.net/2026/05/henry-rollins-ian-mackaye-lost-album-the-cramps/) - Consequence.net
+- [The Cramps’ Lost Album Gravest Gravy Set for Release](https://pitchfork.com/news/the-cramps-lost-album-gravest-gravy-set-for-release/) - Pitchfork
+- [New Company Launches to Restart the Cramps' Record Label](https://loudwire.com/henry-rollins-ian-mackaye-the-cramps-record-label-relaunch/) - Loudwire
+- [Henry Rollins, Ian MacKaye Open Vaults For Cramps Reissues](https://www.spinmagazine.com/2026/05/henry-rollins-ian-mackaye-the-cramps/) - Spinmagazine.com
+- [The Tallest Man on Earth Announces 2026 Fall Tour, Releases New Single “Color”: Stream](https://consequence.net/2026/05/the-tallest-man-on-earth-2026-tour-dates/) - Consequence.net
+- [The Durutti Column Delights With New Album](https://www.spinmagazine.com/2026/05/the-durutti-column-new-album/) - Spinmagazine.com
+- [UK’s Everywhere At Once festival swells to 400-plus venues](http://musically.com/2026/05/27/uks-everywhere-at-once-festival-swells-to-400-plus-venues/) - Music Ally
+- [Fatboy Slim, Lucy Spraggan, Gene, D Double E and Westside Cowboy lead latest huge names joining nationwide Everywhere At Once 'Glastonbury replacement' festival](https://www.nme.com/news/music/fatboy-slim-lucy-spraggan-gene-d-double-e-and-westside-cowboy-lead-latest-huge-names-joining-nationwide-everywhere-at-once-glastonbury-replacement-festival-3947425) - Nme
+- [Everywhere At Once: UK Music Venue Trust & National Lottery Launch Grassroots Festival](https://news.pollstar.com/2026/03/10/everywhere-at-once-uk-music-venue-trust-national-lottery-launch-grassroots-festival/) - Pollstar
+- [Gilla Band Reveal New Song and Tour Dates Through 2027](https://pitchfork.com/news/gilla-band-reveal-new-song-and-tour-dates-through-2027/) - Pitchfork
+- [Gilla Band return with new single, "Giraffe", their first new music in four years](https://www.thelineofbestfit.com/news/gilla-band-return-with-new-single-giraffe-their-first-new-music-in-four-years) - Thelineofbestfit.com
+- [Gilla Band Schedule North American Tour, Share First New Music in Nearly Four Years](https://exclaim.ca/music/article/gilla-band-schedule-north-american-tour-share-first-new-music-in-nearly-four-years) - Exclaim!
+- [Gilla Band battle with self-perception on “Giraffe” - beatsperminute.com](https://beatsperminute.com/gilla-band-battle-with-self-perception-on-giraffe/) - Beatsperminute
+- [Quavo Hands In Album Executive Produced By Pharrell Williams](https://hiphopwired.com/3055297/quavo-hands-in-album-executive-produced-by-pharrell-williams/) - Hip-Hop Wired
