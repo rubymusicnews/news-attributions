@@ -1,0 +1,27 @@
+# Sources for 2026-05-29 News Episode 
+- [Harry Styles Brings Almost All Of His Albums Back To The Charts](https://www.forbes.com/sites/hughmcintyre/2026/05/28/harry-styles-brings-almost-all-of-his-albums-back-to-the-charts/) - Forbes
+- [Ezra Collective Shares New Song, Details New Album and Tour](https://pitchfork.com/news/ezra-collective-share-new-song-with-pa-salieu-detail-new-album-and-tour/) - Pitchfork
+- [AlanAlanis Morissetteette, Morrissey, Tool to Headline Riot Fest 2026](https://pitchfork.com/news/news/alanis-morissette-morrissey-tool-riot-fest-2026/) - Pitchfork
+- [Riot Fest 2026 Full Lineup Revealed: Alanis Morissette, Morrisey, Nas & More to Perform](https://www.justjared.com/2026/05/28/riot-fest-2026-full-lineup-revealed-alanis-morissette-morrisey-nas-more-to-perform/) - Just Jared
+- [Riot Fest lineup for 2026: Alanis Morrisette, Morrissey, Twenty One Pilots - Chicago Tribune](https://www.chicagotribune.com/2026/05/28/riot-fest-lineup-2026/) - Chicagotribune
+- [Chicago's Riot Fest unveils 2026 lineup, but it comes with a twist - Newsweek](https://www.newsweek.com/entertainment/chicagos-riot-fest-unveils-2026-lineup-alanis-morissette-tool-morrissey-and-more-12004822) - Newsweek
+- [Riot Fest 2026 lineup announced - CBS News](https://www.cbsnews.com/chicago/video/riot-fest-2026-lineup-announced/) - Cbsnews
+- [Role Model Is Back with Third LP ‘Chuck Timely & the Hourglass’](http://www.rollingstone.com/music/music-news/role-model-chuck-timely-and-the-hourglass-album-announcement-1235569612/) - Rolling Stone
+- [Kanye West set for massive Istanbul concert at Olympic Stadium](https://www.hurriyetdailynews.com/kanye-west-set-for-massive-istanbul-concert-at-olympic-stadium-222618) - Hurriyet Daily News
+- [Cure For Paranoia: Tiny Desk Concert](https://www.npr.org/2026/05/28/g-s1-121470/cure-for-paranoia-tiny-desk-concert) - NPR
+- [Cure For Paranoia: Tiny Desk Concert - Northern Public Radio](https://www.northernpublicradio.org/2026-05-28/cure-for-paranoia-tiny-desk-concert) - Northernpublicradio
+- [Cure For Paranoia: Tiny Desk Concert - HPPR](https://www.hppr.org/npr-news/2026-05-28/cure-for-paranoia-tiny-desk-concert) - Hppr
+- [Cure For Paranoia: Tiny Desk Concert - Georgia Public Broadcasting](https://www.gpb.org/news/2026/05/28/cure-for-paranoia-tiny-desk-concert) - Gpb
+- [Doublespeak’s Vince Clarke, Neil Arthur And Benge On Their Synthpop Covers Album](https://www.forbes.com/sites/davidchiu/2026/05/28/doublespeaks-vince-clarke-neil-arthur-and-benge-on-their-synthpop-covers-album/) - Forbes
+- [Doublespeak find the joy in translation](https://www.thelineofbestfit.com/features/interviews/doublespeak-find-joy-in-translation) - Thelineofbestfit.com
+- [Doublespeak release self titled Debut Album - TotalNtertainment](https://www.totalntertainment.com/music/doublespeak-release-self-titled-debut-album/) - Totalntertainment
+- [Miles Davis Meilensteine: Wie Hip-Hop und R&B den Jazz-Giganten feiern](https://www.whudat.de/miles-davis-meilensteine-wie-hip-hop-und-rb-den-jazz-giganten-feiern/) - Whudat.de
+- [THE SOUNDS OF THE SOIL](https://www.spinmagazine.com/?p=661594) - Spinmagazine.com
+- [HONORING CHUCK BERRY'S 100TH BIRTHDAY with a Powerful, Never-Before-Heard Recording from 1986; It's Live, It's Electric, It's Louder Than Ever](https://www.prnewswire.com/news-releases/honoring-chuck-berrys-100th-birthday-with-a-powerful-never-before-heard-recording-from-1986-its-live-its-electric-its-louder-than-ever-302784147.html) - PRNewswire
+- [How Megan Perez-Carpenter Is Shaping the Future of Equitable Festival Booking](https://dancingastronaut.com/2026/05/how-megan-perez-carpenter-is-shaping-the-future-of-equitable-festival-booking/) - Dancing Astronaut
+- [Springsteen, Foos Join Tom Morello’s Activist Rock Summit](https://www.spinmagazine.com/2026/05/morello-springsteen-festival/) - Spinmagazine.com
+- [‘Power To The People’ Protest Fest Names High-Powered Lineup—As Trump’s ‘Great American State Fair’ Faces Dropouts](https://www.forbes.com/sites/antoniopequenoiv/2026/05/28/power-to-the-people-protest-fest-names-high-powered-lineup-as-trumps-great-american-state-fair-faces-dropouts/) - Forbes
+- [At Washington, D.C. show, Springsteen announces all-star Oct. 3 Power to the People Festival - NJArts.net](https://www.njarts.net/at-washington-d-c-show-springsteen-announces-all-star-oct-3-power-to-the-people-festival/) - Njarts
+- [Bruce Springsteen, Foo Fighters, Joan Baez, System of a Down’s Serj Tankian and more for Tom Morello's Power To The People festival - NME](https://www.nme.com/news/music/bruce-springsteen-foo-fighters-joan-baez-system-of-a-downs-serj-tankian-and-more-for-tom-morellos-power-to-the-people-festival-3947932) - Nme
+- [Kaitlyn Aurelia Smith With London Contemporary Orchestra, Barbican Review](https://www.attackmagazine.com/features/columns/kaitlyn-aurelia-smith-with-london-contemporary-orchestra-barbican-review/) - Attackmagazine.com
+- [The All-American Rejects’ House Party Tour Is the Future of Live Music (And Mackie Is the Reason It Sounds This Good)](https://www.spinmagazine.com/2026/05/the-all-american-rejects-house-party-tour-is-the-future-of-live-music-and-mackie-is-the-reason-it-sounds-this-good/) - Spinmagazine.com
