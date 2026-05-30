@@ -1,0 +1,33 @@
+# Sources for 2026-05-30 News Episode 
+- [Ariana Grande’s “Hate That I Made You Love Me” Rollout Of Controlled Anticipation](https://www.forbes.com/sites/oliviashalhoup/2026/05/29/ariana-grandes-hate-that-i-made-you-love-me-rollout-of-controlled-anticipation/) - Forbes
+- [Ariana Grande Announces New Album ‘Petal’ About ‘Growing’ Through a ‘Challenging’ Experience - Billboard](https://www.billboard.com/music/music-news/ariana-grande-new-album-petal-release-date-1236233381/) - Billboard
+- [Ariana Grande announces highly anticipated new album, ‘Petal’ - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-04-28/ariana-grande-new-album-petal) - Latimes
+- [Listen to Ariana Grande’s New Song “Hate That I Made You Love Me” - Pitchfork](https://pitchfork.com/news/listen-to-ariana-grandes-new-song-hate-that-i-made-you-love-me/) - Pitchfork
+- [10 New Albums You Should Listen to Now: Iceage, Kurt Vile, and More](https://pitchfork.com/news/10-new-albums-you-should-listen-to-now-iceage-boards-of-canada-and-more/) - Pitchfork
+- [Boards of Canada is eindelijk terug, Bleachers gooit alle registers open en Jan Vriend heeft een nieuwe voltreffer](https://www.nrc.nl/nieuws/2026/05/29/boards-of-canada-is-eindelijk-terug-bleachers-gooit-alle-registers-open-en-jan-vriend-heeft-een-nieuwe-voltreffer-a4928823) - Www.nrc.nl
+- [BTS, Drake & Harry Styles Fans Broke Streaming Apps In 2026](https://statusisdown.com/2026/05/29/bts-drake-harry-styles-fans-broke-streaming-apps-in-2026-while-chasing-listens/) - Statusisdown.com
+- [Drake’s Triple Album Drop Puts Amazon Music In The Streaming Convo - Forbes](https://www.forbes.com/sites/imeekpo/2026/05/17/drakes-triple-album-drop-puts-amazon-music-in-the-streaming-convo/) - Forbes
+- [EXCLUSIVE: Harry Styles Facing Being Forced Into 'Severe Stage Overhaul' After Legions of His Loyal Fans Moan About Former One Direction Singer's Live Set-Up](https://radaronline.com/p/harry-styles-tour-stage-overhaul-fan-complaints-location-prices/) - Radaronline.com
+- [Harry Styles tour to review staging after fan complaints - BBC](https://www.bbc.com/news/articles/cq8p4qjv928o) - Bbc
+- [Harry Styles’ Team Responds to Fan Complaints About Obstructed ‘Together, Together’ Tour Sightlines - Yahoo](https://www.yahoo.com/entertainment/music/articles/harry-styles-team-responds-fan-113001495.html) - Yahoo
+- [Harry Styles Team Addresses Fan Complaints About Obstructed Views - Stereogum](https://stereogum.com/2499419/harry-styles-team-addresses-fan-complaints-about-obstructed-views/news) - Stereogum
+- [Greta Van Fleet Unleash New Single “Play Your Games”: Stream](https://consequence.net/2026/05/greta-van-fleet-new-single-play-your-games/) - Consequence.net
+- [Wyclef Jean explains why he's releasing 7 albums in a year and inspiration behind his music](https://www.cbsnews.com/video/wyclef-jean-explains-why-hes-releasing-7-albums-in-a-year-and-inspiration-behind-his-music/) - CBS News
+- [8 Most Covered Beatles Songs of All Time](https://www.mentalfloss.com/entertainment/music/most-covered-beatles-songs) - Mental Floss
+- [Chief Keef and Katy Perry Work It Out On The Remix](https://pitchfork.com/news/chief-keef-and-katy-perry-work-it-out-on-the-remix/) - Pitchfork
+- [The Heartbreaking Last Words John Lennon Said to Paul McCartney](https://www.mentalfloss.com/entertainment/music/john-lennon-last-words-to-paul-mccartney) - Mental Floss
+- [Heavy Song of the Week: Tom Morello and Serj Tankian Bring Political Fire With “Adjourn It”](https://consequence.net/2026/05/heavy-song-of-the-week-tom-morello-adjourn-it/) - Consequence.net
+- [Rage Against The Machine & System Of A Down Members Unite On New Single & Music Video "ADJOURN IT"](http://www.metalunderground.com/news/details.cfm?newsid=161494) - Metalunderground.com
+- [Julia Wolf is alt-pop’s next obsession](https://www.dazeddigital.com/music/article/70280/1/julia-wolf-altpop-new-single-the-deep-end?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=julia-wolf-is-alt-pop-s-next-obsession) - Dazed
+- [Julia Wolf is alt-pop’s next obsession](https://www.dazeddigital.com/music/article/70280/1/julia-wolf-is-alt-pops-next-obsession?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=julia-wolf-is-alt-pop-s-next-obsession) - Dazed
+- ['The First Heavy Metal Band,' According to The Who's Daltrey](https://loudwire.com/roger-daltrey-the-who-first-metal-band/) - Loudwire
+- [In This Moment Premiere New Single & Music Video "Sleeping With The Enemy"](http://www.metalunderground.com/news/details.cfm?newsid=161492) - Metalunderground.com
+- [Milli Vanilli’s Fab Morvan Says He’s Performing at Trump’s Great American State Fair](https://consequence.net/2026/05/fab-morvan-milli-vanilli-great-american-state-fair/) - Consequence.net
+- [More Chaos Unfolds With Trump’s Great American State Fair As The Commodores Cancel and C+C Music Factory Member Distances Himself](https://consequence.net/2026/05/commodores-exit-freedom-250-event/) - Consequence.net
+- [Trump’s Great American State Fair Is Already Going Sideways](https://newrepublic.com/post/211098/donald-trump-great-american-state-fair-musicians-drop-out) - The New Republic
+- [Country Singer Martina McBride Drops Out Of Trump’s ‘Great American State Fair’ As Lineup Crumbles](https://www.forbes.com/sites/antoniopequenoiv/2026/05/29/country-singer-martina-mcbride-drops-out-of-trumps-great-american-state-fair-as-lineup-crumbles/) - Forbes
+- [Trump-Affiliated Freedom 250 Concert Is Having an Awfully Hard Time Convincing Musicians to Perform](https://www.vanityfair.com/culture/story/trump-affiliated-freedom-250-musicians-dropped-out) - Vanity Fair
+- [The Internet Reacts To Mass Exodus Of Bret Michaels And Others From Trump’s ‘Freedom 250’ Concert Series](https://kotaku.com/donald-trump-freedom-250-great-american-state-fair-lineup-2000700506) - Kotaku
+- [Martina McBride, Young MC & More Acts Drop Out of Freedom 250 ‘Great American State Fair’ Concert Series](https://www.justjared.com/2026/05/28/martina-mcbride-young-mc-more-acts-drop-out-of-freedom-250-great-american-state-fair-concert-series/) - Just Jared
+- [Only A Few Acts Remain In Trump’s ‘Great American State Fair’—And 1 Isn’t Talking](https://www.forbes.com/sites/antoniopequenoiv/2026/05/29/only-a-few-acts-remain-in-trumps-great-american-state-fair-and-1-isnt-talking/) - Forbes
+- [Jimmy Kimmel Mocks Trump’s Freedom 250 Festival After Multiple Headliners Back Out: ‘What a Mess’ \| Video](https://www.thewrap.com/creative-content/tv-shows/jimmy-kimmel-reacts-trump-freedom-250-festival-headliners-exit/) - TheWrap
