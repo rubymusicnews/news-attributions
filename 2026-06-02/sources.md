@@ -1,0 +1,37 @@
+# Sources for 2026-06-02 News Episode 
+- [LE SSERAFIM Earn Fifth Top 10 Album In U.S., Half Million In Global Sales](https://www.forbes.com/sites/jeffbenjamin/2026/05/31/le-sserafim-earn-fifth-top-10-album-in-us-half-million-in-global-sales/) - Forbes
+- [LE SSERAFIM Earn Fifth Top 10 Album In U.S., Half Million In Global Sales - Yahoo](https://www.yahoo.com/entertainment/music/articles/le-sserafim-earn-fifth-top-035934694.html) - Yahoo
+- [Jennie Joins Her Blackpink Bandmates Rosé And Lisa In A Chart Feat](https://www.forbes.com/sites/hughmcintyre/2026/06/01/jennie-joins-her-blackpink-bandmates-ros-and-lisa-in-a-chart-feat/) - Forbes
+- [AI is blowing up music. How should the Grammys handle it?](https://www.theverge.com/podcast/940831/ai-grammys-music-recording-harvey-mason) - The Verge
+- [Taylor Swift Unveils Original Song Written For ‘Toy Story 5’](http://deadline.com/2026/06/taylor-swift-toy-story-5-song-i-knew-it-i-knew-you-1236932132/) - Deadline
+- [Taylor Swift Made a Song for Toy Story 5](http://www.thecut.com/article/taylor-swift-made-a-song-toy-story-5.html) - The Cut
+- [Taylor Swift Reveals Original Song for 'Toy Story 5': 'I Knew It, I Knew You' -- a 'Return to Country' - Variety Australia](https://au.variety.com/2026/music/news/taylor-swift-toy-story-5-announces-37179/) - Variety
+- [Taylor Swift Announces New Song ‘I Knew It, I Knew You’ for Disney and Pixar’s ‘Toy Story 5’ - The Walt Disney Company](https://thewaltdisneycompany.com/news/taylor-swift-toy-story-5/) - Thewaltdisneycompany
+- [Taylor Swift announces new single for Toy Story 5 soundtrack - The Guardian](https://www.theguardian.com/music/2026/jun/01/taylor-swift-toy-story-5-song-soundtrack) - Theguardian
+- [Charli xcx announces new album Music, Fashion, Film, shares best album cover art of the year so far](https://www.thelineofbestfit.com/news/charli-xcx-announces-new-album-music-fashion-film-shares-best-album-cover-art-of-the-year-so-far) - Thelineofbestfit.com
+- [Charli xcx Puts John Cale, Marc Jacobs, and Martin Scorsese on Her New Album Cover](https://fuckingyoung.es/charli-xcx-puts-john-cale-marc-jacobs-and-martin-scorsese-on-her-new-album-cover/) - Fuckingyoung.es
+- [Charli XCX Announces New Album Music, Fashion, Film - Pitchfork](https://pitchfork.com/news/charli-xcx-announces-new-album-music-fashion-film/) - Pitchfork
+- [Brat summer 2.0? Charli XCX announces new album with help from Martin Scorsese - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-06-01/charli-xcx-new-album-music-fashion-film-martin-scorsese) - Latimes
+- [Charli xcx Reveals New Album ‘Music, Fashion, Film’ Will Release in July — and Martin Scorsese Is on the Cover - Variety Australia](https://au.variety.com/2026/music/news/charli-xcx-new-album-title-release-date-scorsese-cover-37176/) - Variety
+- [Brenda Lee’s full catalogue is finally coming to streaming services](http://musically.com/2026/06/01/brenda-lees-full-catalogue-is-finally-coming-to-streaming-services/) - Music Ally
+- [Duran Duran announce major UK and Europe arena tour dates](https://www.the-independent.com/arts-entertainment/music/news/duran-duran-uk-tour-dates-b2986922.html) - The-independent.com
+- [Julia Jacklin Signs to 4AD, Lines Up 2026 and 2027 Tour Dates](https://pitchfork.com/news/julia-jacklin-signs-to-4ad-lines-up-2026-and-2027-tour-dates/) - Pitchfork
+- [Julia Jacklin announces major world tour as she signs to 4AD](https://www.thelineofbestfit.com/news/julia-jacklin-announces-major-world-tour-as-she-signs-to-4ad) - Thelineofbestfit.com
+- [Julia Jacklin Announces Signing to 4AD, 2026 Fall North American Tour](https://consequence.net/2026/06/julia-jacklin-2026-north-american-tour-dates/) - Consequence.net
+- [Julia Jacklin Signs to 4AD and Announces 2026 and 2027 Tour Dates](https://www.undertheradarmag.com/news/julia_jacklin_signs_to_4ad_and_announces_2026_and_2027_tour_dates) - Undertheradarmag
+- [Julia Jacklin Signs to 4AD, Announces Global Tour Dates](https://au.rollingstone.com/music/music-news/julia-jacklin-signs-to-4ad-announces-global-tour-dates-96098/) - Rollingstone
+- [MANSA, the EDM force behind more than 10 million global streams, unleashes new dance anthem “Way Back”](https://earmilk.com/2026/06/01/mansa-the-edm-force-behind-more-than-10-million-global-streams-unleashes-new-dance-anthem-way-back/) - Earmilk.com
+- [4 Takeaways From Yungblud's Idols World Tour - Review and Photos](https://loudwire.com/yungblud-idols-world-tour-review-photos/) - Loudwire
+- [Watch Justin Long Dig His Own Grave in Ariana Grande’s New Video](https://pitchfork.com/news/hate-that-i-made-you-love-me-justin-long-ariana-grande-music-video/) - Pitchfork
+- [Ariana Grande Seems Unhappy in Her New Single - Vulture](https://www.vulture.com/article/ariana-grande-hate-that-i-made-you-love-me-fans.html) - Vulture
+- [Listen to Ariana Grande’s New Song “Hate That I Made You Love Me” - Pitchfork](https://pitchfork.com/news/listen-to-ariana-grandes-new-song-hate-that-i-made-you-love-me/) - Pitchfork
+- [Ariana Grande Drops “Hate That I Made You Love Me” Days Before Tour Launch - AOL.com](https://www.aol.com/entertainment/ariana-grande-drops-hate-made-180210671.html) - Aol
+- [WATCH: Justin Long stars in Ariana Grande's super creepy new music video - Newsweek](https://www.newsweek.com/entertainment/ariana-grande-recruits-justin-long-for-her-creepy-new-music-video-12019074) - Newsweek
+- [Music notes: Ariana Grande, Ed Sheeran and more - AOL.com](https://www.aol.com/news/music-notes-ariana-grande-ed-212728930.html) - Aol
+- [Sơn Tùng M-TP And Tyga Celebrate Vietnamese Heritage With ‘Come My Way’](https://www.forbes.com/sites/laurasirikul/2026/06/01/sn-tng-m-tp-and-tyga-celebrate-vietnamese-heritage-with-come-my-way/) - Forbes
+- [Sơn Tùng M-TP And Tyga Celebrate Vietnamese Heritage With ‘Come My Way’ - Yahoo News Canada](https://ca.news.yahoo.com/n-t-ng-m-tp-075022394.html) - Yahoo
+- [Boards of Canada hit out at White House over use of their music](http://musically.com/2026/06/01/boards-of-canada-hit-out-at-white-house-over-use-of-their-music/) - Music Ally
+- [Boards of Canada say White House used music without permission - BBC](https://www.bbc.com/news/articles/c202dvdj73lo) - Bbc
+- [The White House uses new Boards of Canada track for promo video · News ⟋ RA - Resident Advisor](https://ra.co/news/85287) - Ra
+- [Unsurprisingly, Boards Of Canada Aren’t Happy About Their Music’s Use In A Trump Video - Stereogum](https://stereogum.com/2500454/unsurprisingly-boards-of-canada-arent-happy-about-their-musics-use-in-a-trump-video/news) - Stereogum
+- [TJPL News - Issue 42, June 2026](https://post.rlsbb.to/tjpl-news-issue-42-june-2026/) - Rlsbb.to
