@@ -1,0 +1,31 @@
+# Sources for 2026-06-03 News Episode 
+- [Mastodon Release New Single “Your Ghost Again” Ahead Of 2026 LP](https://www.forbes.com/sites/quentinsinger/2026/06/02/mastodon-release-new-single-your-ghost-again-ahead-of-2026-lp/) - Forbes
+- [Mastodon Premiere New Single "Your Ghost Again''](http://www.metalunderground.com/news/details.cfm?newsid=161506) - Metalunderground.com
+- [BTS, Cardi B Lead 2026 IHeartRadio Music Festival Lineup](https://www.forbes.com/sites/jeffbenjamin/2026/06/02/bts-cardi-b-lead-2026-iheartradio-music-festival-lineup/) - Forbes
+- [BTS, Cardi B, Lainey Wilson, Muse, Snoop Dogg and others will perform at iHeartRadio Music Festival - AP News](https://apnews.com/article/bts-iheartradio-music-festival-11c12c93611fc7aa84dbf38c62bfaa64) - Apnews
+- [BTS And Cardi B Lead 2026 IHeartRadio Music Festival Lineup - Yahoo](https://www.yahoo.com/entertainment/music/articles/bts-cardi-b-lead-2026-120022973.html) - Yahoo
+- [BTS, Cardi B, Lainey Wilson, Muse, Snoop Dogg and others will perform at iHeartRadio Music Festival - Greenwich Time](https://www.greenwichtime.com/entertainment/article/bts-cardi-b-lainey-wilson-muse-snoop-dogg-and-22287341.php) - Greenwichtime
+- [Peabo Bryson Dies: R&B Singer Of ‘Aladdin’s “A Whole New World” & “Beauty & The Beast” Was 75](http://deadline.com/2026/06/peabo-bryson-dead-singer-aladdin-beauty-and-the-beast-1236939369/) - Deadline
+- [Disney Singer and Soul-Pop Crooner Peabo Bryson Dead at 75](https://consequence.net/2026/06/peabo-bryson-dead-disney-singer/) - Consequence.net
+- [Peabo Bryson, known for 'Aladdin' and 'Beauty and the Beast' duets, has died at 75 - Interlochen Public Radio](https://www.interlochenpublicradio.org/2026-06-03/peabo-bryson-known-for-aladdin-and-beauty-and-the-beast-duets-has-died-at-75) - Interlochenpublicradio
+- [Peabo Bryson, known for 'Aladdin' and 'Beauty and the Beast' duets, has died at 75 - NPR Illinois](https://www.nprillinois.org/2026-06-03/peabo-bryson-known-for-aladdin-and-beauty-and-the-beast-duets-has-died-at-75) - Nprillinois
+- [Peabo Bryson, known for 'Aladdin' and 'Beauty and the Beast' duets, has died at 75 - NPR](https://www.npr.org/2026/06/03/g-s1-125555/peabo-bryson-obit) - Npr
+- [Peabo Bryson, voice of ‘A Whole New World,’ dies weeks before scheduled Oakland shows - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/peabo-bryson-dies-oakland-22288608.php) - Sfchronicle
+- [Peabo Bryson, singer known for Disney hits "Beauty and the Beast" and "A Whole New World," dies at 75 - CBS News](https://www.cbsnews.com/news/peabo-bryson-disney-hits-dies-age-75/) - Cbsnews
+- [Metallica Brings Multiple Albums Back Together, And One Has Reason To Celebrate](https://www.forbes.com/sites/hughmcintyre/2026/06/02/metallica-brings-multiple-albums-back-together-and-one-has-reason-to-celebrate/) - Forbes
+- [Mick Jagger über Tourpläne der Rolling Stones: »Hoffentlich wird es so bald wie möglich sein«](https://www.visions.de/news/mick-jagger-ueber-baldige-tourplaene-der-rolling-stones/) - Visions.de
+- [Mick Jagger just said what everybody wants to hear about The Rolling Stones - Newsweek](https://www.newsweek.com/entertainment/music/rolling-stones-fans-will-love-mick-jaggers-latest-tour-comments-12019075) - Newsweek
+- [KATSEYE Re-Enters Billboard 200 And Hot 100 After American Music Awards Performance](http://www.soompi.com/article/1845362wpp/katseye-re-enters-billboard-200-and-hot-100-after-american-music-awards-performance) - soompi
+- [Mastodon Announce 2026 Tour With Deafheaven + Alcest](https://loudwire.com/mastodon-2026-tour-deafheaven-alcest/) - Loudwire
+- [Mastodon Honors Brent Hinds With ‘Your Ghost Again’](https://www.spinmagazine.com/2026/06/mastodon-brent-hinds-song-tour/) - Spinmagazine.com
+- [Castle Rat Announce Fall 2026 North American Headlining Tour](https://loudwire.com/castle-rat-2026-north-american-tour/) - Loudwire
+- [Mastodon Announce Fall 2026 North American Tour with Deafheaven and Alcest](https://consequence.net/2026/06/mastodon-fall-2026-north-american-tour-deafheaven-alcest/) - Consequence.net
+- [How to Buy Last-Minute Governors Ball 2026 Tickets](http://www.rollingstone.com/product-recommendations/tickets/how-to-buy-last-minute-governors-ball-2026-tickets-online-1235570775/) - Rolling Stone
+- [CORTIS Announce First North American Tour Dates: How to Get Tickets](https://consequence.net/2026/06/cortis-2026-north-american-put-your-phone-down-tour/) - Consequence.net
+- [“Expect their already-soaring career to rocket even further after this”: Rising space rockers Slift aren’t just one of the scene’s best live bands – they’ve also made an immediate, dizzying master-stroke with new album Fantasia](https://www.loudersound.com/reviews/slift-fantasia-album-review-metal-hammer) - Louder
+- [Death Cab for Cutie Bring “Riptides” to Kimmel: Watch](https://consequence.net/2026/06/death-cab-for-cutie-riptides-kimmel-watch/) - Consequence.net
+- [Death Cab for Cutie Share New Song “Stone Over Water” and Performed “Riptides” on “Jimmy Kimmel”](https://www.undertheradarmag.com/news/death_cab_for_cutie_share_new_song_stone_over_water_perform_riptides_kimmel) - Undertheradarmag
+- [Death Cab For Cutie Return To Their Roots With New Album ‘I Built You A Tower’ And Unveil Final Preview Track ‘Stone Over Water’](https://rockshotmagazine.com/death-cab-for-cutie-return-to-their-roots-with-new-album-i-built-you-a-tower-and-unveil-final-preview-track-stone-over-water/) - Rockshotmagazine
+- [F4 reunion project F Forever to perform in Singapore this August](https://cnalifestyle.channelnewsasia.com/entertainment/f-forever-f4-reunion-singapore-concert-2026-583901) - CNA
+- [Mastodon Release New Song Honoring Late Guitarist Brent Hinds](https://loudwire.com/mastodon-your-ghost-again-song/) - Loudwire
+- [Kiasmos announce reimagined version of second album, II Reworked](https://www.thelineofbestfit.com/news/kiasmos-announce-reimagined-version-of-second-album-ii-reworked) - Thelineofbestfit.com
