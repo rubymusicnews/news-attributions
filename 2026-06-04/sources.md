@@ -1,0 +1,26 @@
+# Sources for 2026-06-04 News Episode 
+- [Why Did the Beatles Break Up?](https://www.mentalfloss.com/entertainment/music/why-did-the-beatles-break-up) - Mental Floss
+- [Leah McKendrick Tackling Shania Twain Biopic For Sony Pictures](http://deadline.com/2026/06/shania-twain-biopic-leah-mckendrick-directing-sony-1236939923/) - Deadline
+- [Carin León Is Taking ‘Muda’ Around The World](https://www.forbes.com/sites/matthewleimkuehler/2026/06/03/carin-len-is-taking-muda-around-the-world/) - Forbes
+- [Carín León on “MUDA”, Tour and How His Alter Ego Helped Him Overcome Insecurities: 'I'm Very Proud of Where I Am' (Exclusive) - AOL.com](https://www.aol.com/articles/car-n-le-n-muda-204000852.html) - Aol
+- [Olivia Rodrigo Blocked From A New No. 1 — By Another Singer Named Olivia](https://www.forbes.com/sites/hughmcintyre/2026/06/03/olivia-rodrigo-blocked-from-a-new-no-1---by-another-singer-named-olivia/) - Forbes
+- [Exclusive: Dionne Warwick Opens Up About Her Final Album and Her Iconic Career](https://www.theroot.com/exclusive-dionne-warwick-opens-up-about-her-final-albu-2000109049) - The Root
+- [Music reviews: Paul McCartney, Ed O’Brien, and Kevin Morby](https://theweek.com/culture-life/music/reviews-paul-mccartney-ed-obrien-kevin-morby) - The Week Magazine
+- [Paul McCartney’s self-reflective 'The Boys of Dungeon Lane' is one of his best albums of the 21st century - Goldmine Magazine](https://www.goldminemag.com/reviews/album-reviews/paul-mccartneys-self-reflective-the-boys-of-dungeon-lane-is-one-of-his-best-albums-of-the-21st-century/) - Goldminemag
+- [Review: Paul McCartney’s The Boys From Dungeon Lane - SuperDeluxeEdition](https://superdeluxeedition.com/reviews/review-paul-mccartneys-the-boys-from-dungeon-lane/) - Superdeluxeedition
+- [On ‘The Boys of Dungeon Lane,’ Paul McCartney Is a Kid Again - The Ringer](https://www.theringer.com/2026/05/29/music/paul-mccartney-the-boys-of-dungeon-lane-review) - Theringer
+- [Behind Beyoncé’s New Billionaire Status](https://www.theroot.com/behind-beyonc-s-new-billionaire-status-2000081405) - The Root
+- [How These Bold Women Are Reimagining Leadership - Forbes](https://www.forbes.com/sites/aliciapark/2026/06/02/how-these-bold-women-are-reimagining-leadership/) - Forbes
+- [Beyoncé, Kim Kardashian, and Taylor Swift Named Among 'Forbes'' Richest Self-Made Women - Complex](https://www.complex.com/pop-culture/a/jaelaniturnerwilliams/beyonce-kim-kardashian-taylor-swift-richest-women) - Complex
+- [Forbes Richest Self-Made Women in America 2026 - Forbes](https://www.forbes.com/lists/self-made-women/) - Forbes
+- [How Conflict Helped Create Pink Floyd’s “Comfortably Numb” and Its Legendary Guitar Solos](https://www.openculture.com/2026/06/how-conflict-helped-create-pink-floyds-comfortably-numb.html) - Openculture.com
+- [Weezer Teases 20th LP With Wednesday-Featuring Cut](https://www.spinmagazine.com/2026/06/weezer-tease-20th-album/) - Spinmagazine.com
+- [Weezer Drop New Collab, Announce 20th Album With Familiar Title](https://loudwire.com/weezer-we-might-as-well-be-strangers-wednesday-self-titled-gold-album/) - Loudwire
+- [Weezer Announces New Self-Titled Album Weezer - Premier Guitar](https://www.premierguitar.com/news/new-weezer-album-weezer) - Premierguitar
+- [Weezer Previews Self-Titled 'Gold Album,' Out Aug. 21 Ahead of Tour - Rock Cellar Magazine](https://rockcellarmagazine.com/weezer-gold-album-new-album-listen-preview-tour-2026/) - Rockcellarmagazine
+- [Weezer Preview Self-Titled Album With ‘We Might As Well Be Strangers’ Featuring Wednesday - IMDb](https://www.imdb.com/news/ni65868104/?ref_=ttnw_art_perm) - Imdb
+- [The Composer-Conductor Who Pioneered European Opera In Japan](https://bachtrack.com/feature-manfred-gurlitt-forgotten-composer-opera-japan-tokyo-philharmonic-may-2026) - Bachtrack.com
+- [Jimmy Chamberlin Interview: Smashing Pumpkins Tour, New Song](https://loudwire.com/jimmy-chamberlin-smashing-pumpkins-mellon-collie-tour-new-song-butch-vig-interview/) - Loudwire
+- [Apple Music Classical Announces New Partnership With London's Wigmore Hall](https://www.macrumors.com/2026/06/03/apple-music-classical-wigmore-hall-partnership/) - MacRumors
+- [Sara Bareilles Announces New Album Good Grief, Maps Out 2026 North American Tour](https://consequence.net/2026/06/sara-bareilles-new-album-good-grief-2026-north-american-tour/) - Consequence.net
+- [American Football Announce 2026 Fall US Tour](https://consequence.net/2026/06/american-football-2026-fall-tour-dates/) - Consequence.net
