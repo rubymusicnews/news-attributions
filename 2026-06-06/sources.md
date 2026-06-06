@@ -1,0 +1,36 @@
+# Sources for 2026-06-06 News Episode 
+- [How T-pop is blowing up the global charts](http://musically.com/2026/06/05/how-t-pop-is-blowing-up-the-global-charts/) - Music Ally
+- [Michael Jackson’s Historic Winning Streak Continues Into A New Decade](https://www.forbes.com/sites/hughmcintyre/2026/06/05/michael-jacksons-historic-winning-streak-continues-into-a-new-decade/) - Forbes
+- [Michael Jackson becomes first artist with Hot 100 hits in 6 decades - artthreat.net](https://artthreat.net/41397-54350-michael-jackson-becomes-first-artist-with-hot-100-hits-in-6-decades/) - Artthreat
+- [The History of BTS at the AMAs: Stanning BTS](https://consequence.net/2026/06/bts-amas-awards-history-podcast/) - Consequence.net
+- [2026 AMAs full coverage: BTS wins Artist of the Year as New Kids on the Block and Keith Urban bring the nostalgia - Yahoo](https://www.yahoo.com/entertainment/music/live/2026-amas-full-coverage-bts-wins-artist-of-the-year-as-new-kids-on-the-block-and-keith-urban-bring-the-nostalgia-160000335.html) - Yahoo
+- [2026 AMAs full coverage: BTS wins Artist of the Year as New Kids on the Block and Keith Urban bring the nostalgia - Yahoo](https://www.yahoo.com/entertainment/music/live/2026-amas-full-coverage-new-kids-on-the-block-and-keith-urban-bring-the-nostalgia-while-bts-wins-artist-of-the-year-160000293.html) - Yahoo
+- [BTS Wins 2026 American Music Award’s Artist Of The Year - Forbes](https://www.forbes.com/sites/laurasirikul/2026/05/25/bts-wins-2026-american-music-awards-artist-of-the-year/) - Forbes
+- [Drake Manages A First On One Of Billboard’s Toughest Charts](https://www.forbes.com/sites/hughmcintyre/2026/06/05/drake-manages-a-first-on-one-of-billboards-toughest-charts/) - Forbes
+- [Not ‘2 Hard 4 the Radio’: Drake Becomes First Artist With 100 Career Hits on Radio Songs Chart - Billboard Canada](https://ca.billboard.com/music/chart-beat/drake-first-artist-100-hits-radio-songs-chart-1236263164/) - Billboard
+- [The Music Industry’s Music Streaming Problem](https://www.musicbusinessworldwide.com/the-music-industry-doesnt-have-a-streaming-problem-it-has-a-customer-ownership-problem/) - Music Business Worldwide
+- [Spotify bets big on AI covers and early concert tickets - Los Angeles Times](https://www.latimes.com/business/story/2026-05-26/spotify-bets-big-on-ai-covers-early-concert-tickets-as-shares-soar) - Latimes
+- [Justin Bieber Joins A Country Star By Bringing Multiple Singles Back To One Chart](https://www.forbes.com/sites/hughmcintyre/2026/06/05/justin-bieber-joins-a-country-star-by-bringing-multiple-singles-back-to-one-chart/) - Forbes
+- [Phoebe Bridgers’ Madison Square Garden Return Was Unforgettable](http://www.rollingstone.com/music/music-live-reviews/phoebe-bridgers-madison-square-garden-review-setlist-1235573171/) - Rolling Stone
+- [What I Remember From Phoebe Bridgers’s Phoneless MSG Show](http://www.vulture.com/article/phoebe-bridgers-madison-square-garden-concert-recap.html) - Vulture
+- [Phoebe Bridgers at Madison Square Garden: Maybe All Concerts Should Ban Phones](https://www.teenvogue.com/story/phoebe-bridgers-madison-square-garden-show-review) - Teen Vogue
+- [Phoebe Bridgers to Play Surprise Madison Square Garden Show - Pitchfork](https://pitchfork.com/news/phoebe-bridgers-announces-surprise-madison-square-garden-show/) - Pitchfork
+- [Phoebe Bridgers Announces 2026 Arena Tour: "No Phones" - Stereogum](https://stereogum.com/2501441/phoebe-bridgers-announces-2026-arena-tour-no-phones/news) - Stereogum
+- [Phoebe Bridgers Announces One-Dollar Madison Square Garden Show This Week - Stereogum](https://stereogum.com/2500886/phoebe-bridgers-announces-one-dollar-madison-square-garden-show-this-week/news) - Stereogum
+- [Phoebe Bridgers Is Going on Tour - Pitchfork](https://pitchfork.com/news/phoebe-bridgers-solo-tour-fall-2026/) - Pitchfork
+- [Following surprise $1 concert, Phoebe Bridgers announces device-free tour - Greenwich Time](https://www.greenwichtime.com/entertainment/article/phoebe-bridgers-barclays-center-msg-22292729.php) - Greenwichtime
+- [Phoebe Bridgers playing Madison Square Garden this week - BrooklynVegan](https://www.brooklynvegan.com/phoebe-bridgers-playing-madison-square-garden-this-week/) - Brooklynvegan
+- [Indian artists did win at the 2026 Grammys Awards after all](http://musically.com/2026/06/05/indian-artists-did-win-at-the-2026-grammys-awards-after-all/) - Music Ally
+- [Madonna, 67, shocks in skintight pink corset at surprise NYC Times Square concert](https://pagesix.com/2026/06/04/celebrity-news/madonna-67-shocks-in-skintight-pink-corset-at-surprise-nyc-times-square-concert/) - Page Six
+- [Madonna Kicks Off Pride Month With a Surprise Times Square Performance - Vogue](https://www.vogue.com/article/madonna-times-square-performance-confessions) - Vogue
+- [Madonna surprises fans with Times Square pop-up concert - Yahoo News New Zealand](https://nz.news.yahoo.com/madonna-surprises-fans-times-square-140628040.html) - Yahoo
+- [Madonna Sends Her New Single Straight To No. 1 - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/06/05/madonna-sends-her-new-single-straight-to-no-1/) - Forbes
+- [The Human League’s Philip Oakey Talks About The Synthpop Group’s First U.S. Tour In 15 Years](https://www.forbes.com/sites/davidchiu/2026/06/05/the-human-leagues-philip-oakey-talks-about-the-synthpop-groups-first-us-tour-in-15-years/) - Forbes
+- [Laura Marling Surprise Releases New Album… of Raffi Covers](https://pitchfork.com/news/laura-marling-surprise-releases-new-album-of-raffi-covers/) - Pitchfork
+- [Laura Marling Surprise Drops Full Raffi Covers Album Laura Sings Raffi: Stream](https://consequence.net/2026/06/laura-marling-raffi-covers-laura-sings-raffi-stream/) - Consequence.net
+- [Star-studded documentary explores the genius of Earth, Wind & Fire](https://www.npr.org/2026/06/05/nx-s1-5819591/earth-wind-fire-to-be-celestial-vs-thats-the-weight-of-the-world-hbo-documentary) - NPR
+- [‘Earth, Wind & Fire (To Be Celestial vs. That’s the Weight of the World)’ Review: An Irresistible Ensemble on HBO - WSJ](https://www.wsj.com/arts-culture/television/earth-wind-fire-to-be-celestial-vs-thats-the-weight-of-the-world-review-an-irresistible-ensemble-on-hbo-64b9c60a) - Wsj
+- [Tribeca Kicks Off With Earth, Wind & Fire Documentary and Robert De Niro Dissing Trump as 'Immoral, Cruel and Corrupt' - Variety Australia](https://au.variety.com/2026/film/news/tribeca-opening-night-robert-de-niro-slams-trump-37286/) - Variety
+- [At Tribeca, music films are moving beyond the screen \| The Excerpt - USA Today](https://www.usatoday.com/story/news/nation/2026/06/05/why-music-films-are-becoming-full-on-events-at-tribeca-the-excerpt/90407209007/) - Usatoday
+- [Broken Social Scene Surveys ‘Human’ Nature](https://www.spinmagazine.com/2026/06/broken-social-scene-new-album-2/) - Spinmagazine.com
+- [‘Mi Yo De Antes’ Lyrics & Meaning: Ozuna Returns With a Song About Finding Yourself Again After Heartbreak](https://www.justjared.com/2026/06/05/mi-yo-de-antes-lyrics-meaning-ozuna-returns-with-a-song-about-finding-yourself-again-after-heartbreak/) - Just Jared
