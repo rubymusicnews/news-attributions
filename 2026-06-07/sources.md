@@ -1,0 +1,25 @@
+# Sources for 2026-06-07 News Episode 
+- [Olivia Rodrigo Debuts New Song with Robert Smith During Surprise Set at Primavera Sound](https://consequence.net/2026/06/olivia-rodrigo-robert-smith-new-song-primavera-song/) - Consequence.net
+- [Olivia Rodrigo Debuts New Song Featuring Robert Smith at Primavera Sound - Newsweek](https://www.newsweek.com/entertainment/music/olivia-rodrigo-debuts-new-song-featuring-robert-smith-at-primavera-sound-12041052) - Newsweek
+- [Olivia Rodrigo's Newest Song Breaks A Longstanding Tradition - Forbes](https://www.forbes.com/sites/hannahabraham/2026/06/07/olivia-rodrigos-newest-song-breaks-a-longstanding-tradition/) - Forbes
+- [LE SSERAFIM Releases ‘BOOMPALA’ Version With Punjabi Singer Guru Randhawa](https://www.forbes.com/sites/hannahabraham/2026/06/06/le-sserafim-releases-boompala-remix-with-punjabi-singer-guru-randhawa/) - Forbes
+- [Ariana Grande Pop-Up Merch Shop Draws Crowds in San Francisco Ahead of Bay Area Tour Kickoff](https://www.ibtimes.com.au/ariana-grande-pop-store-eternal-sunshine-tour-1870225) - Ibtimes.com.au
+- [The Offspring's Dexter Holland Joins Electric Callboy on New Single](http://www.billboard.com/music/music-news/the-offspring-dexter-holland-electric-callboy-let-the-good-times-roll-1236266009/) - Billboard
+- [ELECTRIC CALLBOY Unites With THE OFFSPRING's DEXTER HOLLAND For New Single And Video 'Let The Good Times Roll' - BLABBERMOUTH.NET](https://blabbermouth.net/news/electric-callboy-unites-with-the-offsprings-dexter-holland-for-new-single-and-video-let-the-good-times-roll) - Blabbermouth
+- [Stray Kids, Jennie, KATSEYE: Everyone Performing At Gov Ball 2026](https://www.forbes.com/sites/hannahabraham/2026/06/06/stray-kids-jennie-katseye-everyone-performing-at-gov-ball-2026/) - Forbes
+- [Stray Kids, Jennie, KATSEYE: Everyone Performing At Gov Ball 2026 - Yahoo News UK](https://uk.news.yahoo.com/stray-kids-jennie-katseye-everyone-060839807.html) - Yahoo
+- [LE SSERAFIM Shares Update On Kim Chaewon’s Health And Upcoming Schedule](http://www.soompi.com/article/1845863wpp/le-sserafim-shares-update-on-kim-chaewons-health-and-upcoming-schedule) - soompi
+- [Charlie Puth Cancels Show Due to Illness: ‘I’m Heartbroken’](https://variety.com/2026/music/news/charlie-puth-sick-cancels-show-1236768688/) - Variety
+- [Charlie Puth Axes Florida Show Due To Illness: “I Am So Devastated To Do This”](http://deadline.com/2026/06/charlie-puth-cancels-florida-concert-show-tour-illness-1236942873/) - Deadline
+- [Charlie Puth Cancels Concert Due to Illness - TMZ](https://www.tmz.com/2026/06/06/charlie-puth-cancels-florida-concert/) - Tmz
+- [Duffy to make comeback with first live concert in 15 years and new music after sexual assault](https://www.the-independent.com/arts-entertainment/music/news/duffy-singer-kidnap-tickets-b2990973.html) - The-independent.com
+- [Duffy announces first live concert in more than 15 years after revealing horrific rape and kidnapping ordeal](https://www.dailymail.com/news/article-15879111/Duffy-concert-15-years-rape-kidnapping-ordeal.html) - Dailymail.com
+- [Singer Duffy to return for first live concert in more than 15 years - BBC](https://www.bbc.com/news/articles/ce8p8mzj4e8o) - Bbc
+- [5 George Harrison Songs Inspired by Spirituality](https://www.mentalfloss.com/entertainment/music/george-harrison-songs-inspired-by-spirituality) - Mental Floss
+- [Morgan Wallen cancels concert at last-minute… just days after flipping piano amid onstage meltdown](https://www.dailymail.com/tvshowbiz/article-15880039/morgan-wallen-cancels-concert-onstage-meltdown-piano.html) - Dailymail.com
+- [Country Music Star Morgan Wallen Suddenly Cancels Pittsburgh Show Leaving Fans Furious](https://brobible.com/sports/article/country-music-star-morgan-wallen-suddenly-cancels-pittsburgh-show-leaving-fans-furious/) - BroBible
+- [Morgan Wallen cancels second Pittsburgh show amid threat of inclement weather - CBS News](https://www.cbsnews.com/pittsburgh/news/morgan-wallen-cancels-second-acrisure-stadium-show/) - Cbsnews
+- [The Mamas and Papas icon Michelle Phillips turns 82 as she celebrates her birthday in rare public sighting](https://www.dailymail.com/tvshowbiz/article-15878939/Mamas-Papas-star-Michelle-Phillips-82-birthday.html) - Dailymail.com
+- [Peso Pluma , Kenia Os Announce Breakup: 'Love, Respect & Best Terms'](http://www.billboard.com/music/latin/peso-pluma-kenia-os-breakup-split-statement-1236266207/) - Billboard
+- [Talia Rae celebrates an overlooked love story on “Julia”](https://www.thelineofbestfit.com/tracks/talia-rae-julia) - Thelineofbestfit.com
+- ["I felt defined by my trauma": Grace Carter details industry burnout and adult adolescence on new single "White"](https://www.thelineofbestfit.com/news/grace-carter-details-industry-burnout-and-adult-adolescence-on-new-single-white) - Thelineofbestfit.com
