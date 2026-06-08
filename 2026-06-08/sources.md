@@ -1,0 +1,23 @@
+# Sources for 2026-06-08 News Episode 
+- [Bruce Springsteen and Bon Jovi Perform at Music America Concert](http://www.billboard.com/music/music-news/bruce-springsteen-bon-jovi-public-enemy-music-america-concert-1236266302/) - Billboard
+- [Bruce Springsteen Opens His Music Center, With Guitars - The New York Times](https://www.nytimes.com/2026/06/06/style/springsteen-opens-his-music-center-in-new-jersey.html) - Nytimes
+- [Madonna is hung up on fans taking pictures at her concerts: ‘Put your f***ing phones down’](https://www.the-independent.com/arts-entertainment/music/news/madonna-2026-songs-phones-b2991289.html) - The-independent.com
+- [More than 20 years after releasing 'Confessions on a Dance Floor', Madonna is taking over New York City to celebrate the sequel. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/more-than-20-years-after-releasing-confessions-on-a-dance-floor-madonna-is-takin/1353483766651960/) - Facebook
+- [Record Collector Presents - Queen 2021](https://post.rlsbb.to/record-collector-presents-queen-2021/) - Rlsbb.to
+- [Ariana Grande Fuels Fresh Health Concerns After Kicking Off Tour As Fans Are Convinced “This Is Not Okay”](https://www.boredpanda.com/ariana-grande-kicks-off-her-tour-but-fans-are-concerned/) - Boredpanda.com
+- [Ariana Grande kicks of her ‘Eternal Sunshine’ tour in Oakland - Los Angeles Times](https://www.latimes.com/0000019e-a2df-d059-afde-ebdff7d90000-123) - Latimes
+- [Ariana Grande Oakland Tour Opener: Concert Review - Variety Australia](https://au.variety.com/2026/music/news/ariana-grande-concert-review-eternal-sunshine-tour-oakland-37365/) - Variety
+- [Ellie Goulding says she felt 'more equipped' to return to work after the birth of her second child Iris after feeling 'like a robot' recording music when she became a mother to her first son Arthur](https://www.dailymail.com/tvshowbiz/article-15881513/Ellie-Goulding-equipped-return-work-birth-second-child-Iris.html) - Dailymail.com
+- [Now That's What I Call 70s Soul (4CD) (2026) FLAC](https://post.rlsbb.to/now-thats-what-i-call-70s-soul-4cd-2026-flac/) - Rlsbb.to
+- [Niall Horan Admitting He’s Jealous Of Harry Styles Is The Healthiest Thing A Pop Star Has Said All Year](https://hollywoodlife.com/2026/06/06/niall-horan-jealous-of-harry-styles-a-therapists-take/) - Hollywood Life
+- [Chris Robinson, Bruce Springsteen face backlash as 'Americans have had enough' of being lectured: expert](https://www.foxnews.com/entertainment/chris-robinson-bruce-springsteen-face-backlash-americans-have-had-enough-being-lectured-expert) - Fox News
+- [Chris Robinson, Bruce Springsteen face backlash as 'Americans have had enough' of being lectured: expert - Yahoo](https://www.yahoo.com/entertainment/music/articles/chris-robinson-bruce-springsteen-face-130012685.html) - Yahoo
+- [Who Goes to a Black Crowes Concert and Chants ‘U.S.A.’? - Vulture](https://www.vulture.com/article/chris-robinson-black-crowes-concert-usa-chant.html) - Vulture
+- [Political dust-up at The Black Crowes Tampa show sees fans leave mid-gig - Far Out Magazine](https://faroutmagazine.co.uk/political-dust-up-at-the-black-crowes-tampa-show-sees-fans-leave-mid-gig/) - Faroutmagazine
+- [Baby Keem Reveals Five-Year Health Battle Nearly Ended His Career](https://allhiphop.com/news/baby-keem-reveals-five-year-health-battle-nearly-ended-his-career/) - AllHipHop
+- [Record Collector Presents - Depeche Mode, 2021](https://post.rlsbb.to/record-collector-presents-depeche-mode-2021/) - Rlsbb.to
+- [Zoh Amba – Eyes Full (2026)](https://exystence.net/blog/2026/06/07/zoh-amba-eyes-full-2026/) - Exystence.net
+- [Rock im Park 2026: Freudentränen bei Iron Maiden](https://laut.de/News/Rock-im-Park-2026-Freudentraenen-bei-Iron-Maiden-05-06-2026-21796) - Laut.de
+- [Rock im Park 2026: Alle warten auf Iron Maiden](https://laut.de/News/Rock-im-Park-2026-Alle-warten-auf-Iron-Maiden-05-06-2026-21796) - Laut.de
+- [【オフィシャルレポート】ロックバンド、FLOWが創るアニソンロックフェスが、横浜・ぴあアリーナ MMを熱くした！──〈FLOW THE FESTIVAL 2026〉](https://ototoy.jp/news/130331) - Ototoy.jp
+- [Jackie DeShannon – Girl of Yesterday (Acoustic Folk Demos) (2026)](https://exystence.net/blog/2026/06/07/jackie-deshannon-girl-of-yesterday-acoustic-folk-demos-2026/) - Exystence.net
