@@ -1,0 +1,38 @@
+# Sources for 2026-06-09 News Episode 
+- [Ariana Grande Charts A Milestone No. 1 As Her New Single Debuts](https://www.forbes.com/sites/hughmcintyre/2026/06/08/ariana-grande-charts-a-milestone-no-1-as-her-new-single-debuts/) - Forbes
+- [Guns N’ Roses to Play Bengaluru and Guwahati on India Return](https://variety.com/2026/music/news/guns-n-roses-india-bengaluru-guwahati-1236769190/) - Variety
+- [Ayra Starr: Tiny Desk Concert](https://www.npr.org/2026/06/08/g-s1-123342/ayra-starr-tiny-desk-concert) - NPR
+- [Ayra Starr: Tiny Desk Concert - Northern Public Radio](https://www.northernpublicradio.org/2026-06-08/ayra-starr-tiny-desk-concert) - Northernpublicradio
+- [Ayra Starr: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-06-08/ayra-starr-tiny-desk-concert) - Wrvo
+- [Charli xcx’s Music, Fashion, Film Tour: How to buy tickets, dates, and more](https://www.thefader.com/2026/06/08/charli-xcx-music-fashion-film-tour-how-to-buy-ticketes-dates-underscores) - The FADER
+- [Charli xcx Will Visit Arenas On Fall Tour](https://www.spinmagazine.com/2026/06/charli-xcx-fall-tour/) - Spinmagazine.com
+- [Charli XCX Announces “Music, Fashion, Film Tour” in 2026](https://consequence.net/2026/06/charli-xcx-music-fashion-film-tour/) - Consequence.net
+- [Charli xcx announces North America tour with special guest and future promise - Newsweek](https://www.newsweek.com/entertainment/charli-xcx-announces-north-america-tour-with-special-guest-12045781) - Newsweek
+- [Talay Riley, Songwriter for Dua Lipa, Britney Spears, H.E.R., Dead at 35](http://www.rollingstone.com/music/music-news/talay-riley-songwriter-dua-lipa-britney-spears-stabbed-dead-1235573726/) - Rolling Stone
+- [Grammy-Winning Singer-Songwriter Talay Riley Fatally Stabbed In London; He Was 35](http://deadline.com/2026/06/talay-riley-dead-stabbed-1236950696/) - Deadline
+- [Nigerian-British singer dies in London stabbing, Stormzy, Craig David, others mourn](https://punchng.com/nigerian-british-singer-dies-in-london-stabbing-stormzy-craig-david-others-mourn/) - The Punch
+- [Talay Riley, songwriter for Britney Spears and Dua Lipa, fatally stabbed at 35 - Entertainment Weekly](https://ew.com/talay-riley-britney-spears-dua-lipa-songwriter-fatally-stabbed-at-35-11993403) - Ew
+- [Songwriter behind hits for Britney Spears and Dua Lipa fatally stabbed at 35, three arrested - Fox News](https://www.foxnews.com/entertainment/songwriter-behind-hits-britney-spears-dua-lipa-fatally-stabbed-35-three-arrested) - Foxnews
+- [Grammy musician Talay Riley killed in London stabbing was 'a gem' - BBC](https://www.bbc.com/news/articles/c8j270wdk1ko) - Bbc
+- [Talay Riley, a Grammy Award-winning songwriter known for collaborations with Usher, Nick Jonas and Dua Lipa, was fatally stabbed in London on June 5. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/talay-riley-a-grammy-award-winning-songwriter-known-for-collaborations-with-ushe/1355344459799224/) - Facebook
+- [Phoebe Bridgers is right – put your phones away!](https://www.dazeddigital.com/music/article/70413/1/phoebe-bridgers-is-right-no-phones-ban-show-gig-classist-ableist?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=phoebe-bridgers-is-right-put-your-phones-away) - Dazed
+- [Phoebe Bridgers Announces 2026 Arena Tour: "No Phones" - Stereogum](https://stereogum.com/2501441/phoebe-bridgers-announces-2026-arena-tour-no-phones/news) - Stereogum
+- [Phoebe Bridgers brings phone-free arena tour to San Francisco - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/music/article/phoebe-bridgers-chase-center-22292889.php) - Sfchronicle
+- [Phoebe Bridgers calls out ICE “idiots” and thanks fans for “internet-free zone” during sold-out Madison Square Garden benefit show - NME](https://www.nme.com/news/music/phoebe-bridgers-madison-square-garden-setlist-report-new-songs-ice-no-phones-3949426) - Nme
+- [Phones banned on Phoebe Bridgers’ tour, including her Halloween shows at Intuit Dome - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-06-05/phoebe-bridgers-la-concerts-intuit-dome-shows-no-phones-lost-tour) - Latimes
+- [Madonna Scores A New Hit And Slips From No. 1 On The Same Chart](https://www.forbes.com/sites/hughmcintyre/2026/06/08/madonna-scores-a-new-hit-and-slips-from-no-1-on-the-same-chart/) - Forbes
+- [Watch Anika Nilles' Full Drum Performance From Rush Tour Kickoff](https://ultimateclassicrock.com/rush-reunion-tour-anika-nilles-drum-footage/) - Ultimate Classic Rock
+- [Rush Play First Reunion Show With New Lineup - Setlist + Video](https://ultimateclassicrock.com/rush-reunion-tour-2026-set-list/) - Ultimate Classic Rock
+- [Rush reunion becomes a moving tribute to Neil Peart and Anika Nilles’ coronation at Kia Forum - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-06-08/rush-reunion-review-kia-forum-geddy-lee-alex-lifeson-anika-nilles-neil-peart) - Latimes
+- [Rush's comeback shines with Anika Nilles' brilliance - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/08/rush-concert-review-fifty-something-tour-anika-nilles/90454075007/) - Usatoday
+- [Rush Kicks Off First Tour in 11 Years, Honors Late Drummer Neil Peart - Newsweek](https://www.newsweek.com/entertainment/music/rush-kicks-off-first-tour-in-11-years-honors-late-drummer-neil-peart-12045408) - Newsweek
+- [RUSH Make Magnificent Return at Kickoff of First Tour in 11 Years: Review, Photos, Video + Setlist - Consequence of Sound](https://consequence.net/2026/06/rush-reunion-tour-kickoff-show-review/) - Consequence
+- [Blackpink Star Jennie Makes History Among K-Pop Acts](https://www.forbes.com/sites/hughmcintyre/2026/06/08/blackpink-star-jennie-makes-history-among-k-pop-acts/) - Forbes
+- [Beastie Boys’ Mike D Lines Up Debut Album](https://pitchfork.com/news/beastie-boys-mike-d-lines-up-debut-album/) - Pitchfork
+- [Mike D Delivering Solo Debut In August](https://www.spinmagazine.com/2026/06/mike-d-solo-debut-album/) - Spinmagazine.com
+- [Mike D Announces Debut Solo Album Thank You, Reveals New Single “True Colors”: Stream](https://consequence.net/2026/06/mike-d-debut-solo-album-thank-you-true-colors/) - Consequence.net
+- [Beastie Boys’ Mike D Announces Debut Album, and His Sons Are Involved - Newsweek](https://www.newsweek.com/entertainment/music/beastie-boys-mike-d-announces-debut-album-and-his-sons-are-involved-12045407) - Newsweek
+- [For Joe Perry, Aerosmith’s Debut Album Just Got a Whole Lot Better](https://www.spinmagazine.com/2026/06/for-joe-perry-aerosmiths-debut-album-just-got-a-whole-lot-better/) - Spinmagazine.com
+- [JAŸ-Z 30: Why ‘Reasonable Doubt’ Is Still A Classic Rap Debut](https://hiphopwired.com/3056087/jay-z-30-reasonable-doubt-classic-rap-album-retrospective/) - Hip-Hop Wired
+- [An Oral History of VH1’s Golden Years](https://www.spinmagazine.com/2026/06/an-oral-history-of-vh1s-golden-years/) - Spinmagazine.com
+- [Jack + Sharon Osbourne Hit Back at Ozzy A.I. 'Cash Grab' Concern](https://loudwire.com/jack-sharon-osbourne-cash-grab-ozzy-ai/) - Loudwire
