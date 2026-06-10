@@ -1,0 +1,25 @@
+# Sources for 2026-06-10 News Episode 
+- [AND2BLE Become Instant Breakout K-Pop Group With 731,000-Selling Debut](https://www.forbes.com/sites/jeffbenjamin/2026/06/09/and2ble-become-instant-breakout-k-pop-group-with-731000-selling-debut/) - Forbes
+- [Apple Music Gains AutoMix Upgrades and More in iOS 27](https://www.macrumors.com/2026/06/09/apple-music-gains-automix-upgrades-and-more-in-ios-27/) - MacRumors
+- [Apple Music is getting new features in iOS 27 software update](http://musically.com/2026/06/09/apple-music-is-getting-new-features-in-ios-27-software-update/) - Music Ally
+- [Apple Music is getting a mini iOS 27 glow-up — but it still lacks the features many subscribers actually want](https://www.techradar.com/audio/apple-music/apple-music-is-getting-a-mini-ios-27-glow-up-but-it-still-lacks-the-features-many-subscribers-actually-want) - TechRadar
+- [iOS 27: Here’s all the new Apple Music features - 9to5Mac](https://9to5mac.com/2026/06/08/ios-27-heres-all-the-new-apple-music-features/) - 9to5mac
+- [TXT’s Yeonjun Confirmed To Be Gearing Up For Solo Comeback](http://www.soompi.com/article/1846391wpp/txts-yeonjun-confirmed-to-be-gearing-up-for-solo-comeback) - soompi
+- [Niall Horan Stopped From Charting A New No. 1 By Another Pop Star](https://www.forbes.com/sites/hughmcintyre/2026/06/09/niall-horan-stopped-from-charting-a-new-no-1-by-another-pop-star/) - Forbes
+- [Sienna Spiro Maps Out “My House” World Tour](https://consequence.net/2026/06/sienna-spiro-my-house-world-tour/) - Consequence.net
+- [Peaches Announces Fall 2026 North American Tour](https://consequence.net/2026/06/peaches-fall-2026-north-american-tour/) - Consequence.net
+- [Music prediction is a $400m market in 2026 so far – on one platform](http://musically.com/2026/06/09/music-prediction-is-a-400m-market-in-2026-so-far-on-one-platform/) - Music Ally
+- [Prediction market Kalshi bets on compliance to address insider trading concerns - Forex Factory](https://www.forexfactory.com/news/1402775-prediction-market-kalshi-bets-on-compliance-to-address) - Forexfactory
+- [Kalshi looks to tackle insider trading by asking some users for their employer info - NBC News](https://www.nbcnews.com/business/markets/kalshi-employer-name-insider-trading-rcna349308) - Nbcnews
+- [Chris Brown Settles ‘Monalisa’ and ‘Sensational’ Lawsuit from Lyricist](http://www.rollingstone.com/music/music-news/chris-brown-sensational-monalisa-lawsuit-sean-kingston-1235574975/) - Rolling Stone
+- [Megadeth’s Three-Decade-Old Album Debuts On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/06/09/megadeths-three-decade-old-album-debuts-on-multiple-charts/) - Forbes
+- ["There can be no more recordings of Soft Cell without Dave, it would not be possible": Soft Cell announce final album, Danceteria](https://www.thelineofbestfit.com/news/soft-cell-announce-final-album-danceteria) - Thelineofbestfit.com
+- [Soft Cell Unveil Final Album Danceteria](https://pitchfork.com/news/soft-cell-unveil-final-album-danceteria/) - Pitchfork
+- [Soft Cell Announce Final Album Danceteria, Unveil Title Track: Stream](https://consequence.net/2026/06/soft-cell-announce-final-album/) - Consequence.net
+- [Interpol Ready New Album, Share Two Songs](https://pitchfork.com/news/interpol-ready-new-album-share-two-songs/) - Pitchfork
+- [‘Mirror, Mirror’: Interpol Steps Into The Future](https://www.spinmagazine.com/?p=662469) - Spinmagazine.com
+- [Watch Out Spotify, A New App Is on Deck](https://www.spinmagazine.com/2026/06/watch-out-spotify-a-new-app-is-on-deck/) - Spinmagazine.com
+- [Album der Foo Fighters: Ältere Herren mit schönem Spielzeug](https://www.faz.net/aktuell/feuilleton/musik-und-buehne/album/das-album-your-favorite-toy-von-den-foo-fighters-200823525.html) - Faz.net
+- [ALPHA DRIVE ONE And Izna Goes Global In Partnership With REPUBLIC](https://www.forbes.com/sites/laurasirikul/2026/06/09/alpha-drive-one-and-izna-goes-global-in-partnership-with-repiblic/) - Forbes
+- [ALPHA DRIVE ONE And Izna Goes Global In Partnership With REPUBLIC - Yahoo News UK](https://uk.news.yahoo.com/alpha-drive-one-izna-goes-220657774.html) - Yahoo
+- [Kelsea Ballerini Talks Her ‘In-Between Season,’ Moving to NYC, and Her ‘Rolling Stone’ Shoutout](http://www.rollingstone.com/product-recommendations/lifestyle/kelsea-ballerini-cma-fest-2026-interview-1235574061/) - Rolling Stone
