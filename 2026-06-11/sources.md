@@ -1,0 +1,30 @@
+# Sources for 2026-06-11 News Episode 
+- [All the Times Bruce Springsteen Has Covered Bob Dylan](http://www.rollingstone.com/music/music-lists/bruce-springsteen-covers-bob-dylan-songs-1235574869/) - Rolling Stone
+- [JAŸ-Z, Eminem Reunite On Rakim/Kurupt/Masta Killa LP](https://www.spinmagazine.com/2026/06/jay-z-eminem-rakim-album/) - Spinmagazine.com
+- [Jack White Releasing New Album Next Month](https://pitchfork.com/news/jack-white-releasing-new-album-next-month/) - Pitchfork
+- [Joe: Tiny Desk Concert](https://www.npr.org/2026/06/10/g-s1-123345/joe-tiny-desk-concert) - NPR
+- [Joe: Tiny Desk Concert - Northern Public Radio](https://www.northernpublicradio.org/2026-06-10/joe-tiny-desk-concert) - Northernpublicradio
+- [Joe: Tiny Desk Concert - WYSO Public Radio](https://www.wyso.org/2026-06-10/joe-tiny-desk-concert) - Wyso
+- [Geese and Oklou were big winners at the 2026 Libera Awards](http://musically.com/2026/06/10/geese-and-oklou-were-big-winners-at-the-2026-libera-awards/) - Music Ally
+- [The Odd Way Paul McCartney Met the Runaway Who Inspired “She’s Leaving Home”](https://www.mentalfloss.com/entertainment/music/how-paul-mccartney-met-melanie-coe-shes-leaving-home) - Mental Floss
+- [The Rolling Stones X Marvel Comics For Foreign Tongues Vinyl](https://bleedingcool.com/comics/the-rolling-stones-x-marvel-comics-for-foreign-tongues-vinyl/) - Bleeding Cool News
+- [Primavera Sound festival faces criticism over weather disruption](http://musically.com/2026/06/10/primavera-sound-festival-faces-criticism-over-weather-disruption/) - Music Ally
+- [Finally, Summer: A Dispatch From Primavera Sound Barcelona](https://www.spinmagazine.com/2026/06/finally-summer-a-dispatch-from-primavera-sound-barcelona/) - Spinmagazine.com
+- [Primavera fans react after Doja Cat and Massive Attack cancelled - BBC](https://www.bbc.com/news/articles/cjepekw4yzwo) - Bbc
+- [Primavera Sound hit by "adverse weather conditions," Massive Attack, Doja Cat & more cancelled - BrooklynVegan](https://www.brooklynvegan.com/primavera-sound-hit-by-adverse-weather-conditions-alex-gs-set-cancelled/) - Brooklynvegan
+- [Alex G and Mac DeMarco's sets at Primavera Sound cancelled due to "adverse weather conditions" - NME](https://www.nme.com/news/music/alex-g-and-mac-demarcos-sets-at-primavera-sound-cancelled-due-to-adverse-weather-conditions-3949219) - Nme
+- [Massive Attack, Bad Gyal, and Doja Cat added to Primavera Sound cancellations as fans criticise organisation - NME](https://www.nme.com/news/music/massive-attack-bad-gyal-and-doja-cat-added-to-primavera-sound-cancellations-as-fans-criticise-organisation-3949279) - Nme
+- [Marty Friedman and Hiromi to feature on new Rodrigo y Gabriela album, OurHome](https://www.thelineofbestfit.com/news/marty-friedman-and-hiromi-to-feature-on-new-rodrigo-y-gabriela-album-ourhome) - Thelineofbestfit.com
+- [Rodrigo y Gabriela Announce New Album OurHome, Share the Oddly Hopeful “Monster”: Stream](https://consequence.net/2026/06/rodrigo-y-gabriela-ourhome-monster/) - Consequence.net
+- [Kanye West's Sexual Assault Accuser Jenn An Breaks Down in Tears Recalling Alleged Ordeal — As Rapper Defends Incident as Being for 'Artistic Purposes'](https://radaronline.com/p/kanye-west-accuser-breaks-down/) - Radaronline.com
+- [Model says as Kanye West sexually assaulted her, he yelled, ‘This is art, I’m Picasso’ - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-06-10/model-suing-kanye-west-alleges-he-yelled-this-is-art-during-assault) - Latimes
+- [Kanye sexually assaulted me, says model, but he says it’s art - BBC](https://www.bbc.com/audio/play/m002y10n) - Bbc
+- [Kanye West: Model who alleges rapper choked her says she felt 'suffocated and scared' - BBC](https://www.bbc.com/news/articles/c0q2jgkwk0no) - Bbc
+- [Billy Ray Cyrus Reveals He Suffered Temporary Vocal Paralysis After a Near-Fatal Battle With Sepsis](http://www.rollingstone.com/music/music-news/billy-ray-cyrus-sepsis-vocal-paralysis-1235575336/) - Rolling Stone
+- [Billy Ray Cyrus’ Health: All About His Sepsis Diagnosis & Vocal Issues](https://hollywoodlife.com/feature/billy-ray-cyrus-health-sepsis-diagnosis-5544130/) - Hollywood Life
+- [Billy Ray Cyrus ‘almost died’ during shocking health scare](https://pagesix.com/2026/06/10/celebrity-news/billy-ray-cyrus-almost-died-during-shocking-health-scare/) - Page Six
+- [“This album is the manifestation of a desire to make something real": Gia Ford to return with new album, A Room Within A Room](https://www.thelineofbestfit.com/news/gia-ford-to-return-with-new-album-a-room-within-a-room) - Thelineofbestfit.com
+- [“This album is the manifestation of a desire to make something real": Gia Ford to return with new album, A Room Within A Room](https://www.thelineofbestfit.com/news/this-album-is-the-manifestation-of-a-desire-to-make-something-real-gia-ford-to-return-with-new-album-a-room-within-a-room) - Thelineofbestfit.com
+- [The Music Industry Didn't See This Coming — Now Artists Worldwide Want In](https://radaronline.com/p/the-music-industry-didnt-see-this-coming-now-artists-worldwide-want-in/) - Radaronline.com
+- [World Cup 2026: How an old song from Bosnia went viral](https://www.dw.com/en/world-cup-2026-how-an-old-song-from-bosnia-went-viral/a-77491463) - DW (English)
+- [Bosnia's World Cup pursuit begins at a home-away-from home in the American Midwest - San Francisco Chronicle](https://www.sfchronicle.com/sports/article/bosnia-s-world-cup-pursuit-begins-at-a-22292336.php) - Sfchronicle
