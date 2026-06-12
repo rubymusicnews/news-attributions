@@ -1,0 +1,37 @@
+# Sources for 2026-06-12 News Episode 
+- [Megan Thee Stallion Links With David Guetta & EJAE For Official FIFA World Cup Anthem](https://hiphopwired.com/3056627/megan-thee-stallion-fifa-world-cup-2026-anthem-dna-details/) - Hip-Hop Wired
+- [Andrea Bocelli, David Guetta, Megan Thee Stallion, Ejae unite for Official FIFA World Cup 2026 anthem - The Music Universe](https://themusicuniverse.com/andrea-bocelli-david-guetta-megan-thee-stallion-ejae-unite-for-official-fifa-world-cup-2026-anthem/) - Themusicuniverse
+- [Shakira, Andrea Bocelli and Salma Hayek kick-start the World Cup at opening ceremony in Mexico City - AP News](https://apnews.com/article/shakira-salma-hayek-world-cup-277219e8c0a58db3f5252a0974c3fc92) - Apnews
+- [Megan Thee Stallion Links With David Guetta & EJAE For Official FIFA World Cup Anthem](https://thebeatdfw.com/4533817/megan-thee-stallion-fifa-world-cup-2026-anthem-dna-details/) - Thebeatdfw
+- [Olivia Rodrigo Reveals She Nearly Had ‘Anxiety Attack’ Before Glastonbury Headlining Set](http://www.rollingstone.com/music/music-news/olivia-rodrigo-anxiety-attack-glastonbury-headlining-set-1235576060/) - Rolling Stone
+- [Olivia Rodrigo Says She Had a Full-On ‘Anxiety Attack’ Before 2025 Glastonbury Festival Set: ‘I Don’t Know If I’m Ready’ - Billboard](https://www.billboard.com/music/pop/olivia-rodrigo-talks-anxiety-attack-2025-glastonbury-set-1236270306/) - Billboard
+- [Olivia Rodrigo sings about heartbreak but she's already chosen her wedding song - BBC](https://www.bbc.com/news/articles/cly83elvz70o) - Bbc
+- [Lizzo in the Age of Backlash](https://www.newyorker.com/culture/pop-music/lizzo-in-the-age-of-backlash) - The New Yorker
+- [Lizzo: Bitch review \| Alexis Petridis's album of the week - The Guardian](https://www.theguardian.com/music/2026/jun/05/lizzo-bitch-album-review) - Theguardian
+- [Lizzo can see the comeback clearly - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-06-10/lizzo-bitch-backlash-sza-interview) - Latimes
+- [Lizzo reclaims her voice on new album: 'I had to take back who I am' - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/05/lizzo-bitch-album-body-positivity/90398650007/) - Usatoday
+- [This Free Tool Can Help Spot AI Slop in Spotify and Apple Music Playlists](https://gizmodo.com/this-free-tool-can-help-spot-ai-slop-in-spotify-and-apple-music-playlists-2000770625) - Gizmodo.com
+- [Deezer launches an AI music detector for other streaming services - The Verge](https://www.theverge.com/ai-artificial-intelligence/948153/deezer-ai-music-detector-spotify-apple) - Theverge
+- [Is AI-generated music hiding in your playlists? Deezer's new AI music detector can tell you - Business Insider](https://www.businessinsider.com/deezer-built-ai-music-detector-spotify-apple-youtube-streaming-platforms-2026-6) - Businessinsider
+- [Deezer’s new tool can identify AI music from Spotify, Apple Music, and others - TechCrunch](https://techcrunch.com/2026/06/11/deezers-new-tool-can-identify-ai-music-from-spotify-apple-music-and-others/) - Techcrunch
+- [Jimi Hendrix's Tragic Last Words Reveal His Dreams For the Future](https://www.mentalfloss.com/entertainment/music/jimi-hendrix-last-words) - Mental Floss
+- [50 Years Later, A Classic Rock Album Is Dominating Spotify](https://screenrant.com/classic-rock-album-dominates-spotify/) - Screen Rant
+- [Who is Alejandro Fernández, the singer performing the Mexican anthem at the 2026 World Cup opening match?](https://worldsoccertalk.com/world-cup/who-is-alejandro-fernandez-the-singer-performing-the-mexican-anthem-at-the-2026-world-cup-opening-match/) - Worldsoccertalk.com
+- [Shakira, Andrea Bocelli and Salma Hayek kick-start the World Cup at opening ceremony in Mexico City](https://japantoday.com/category/2026-fifa-world-cup/shakira-andrea-bocelli-and-salma-hayek-kick-start-the-world-cup-at-opening-ceremony-in-mexico-city) - Japan Today
+- [Shakira headlines 2026 World Cup opening ceremony at Estadio Azteca: Full list of artists performing before Mexico vs South Africa](https://worldsoccertalk.com/world-cup/shakira-headlines-2026-world-cup-opening-ceremony-at-estadio-azteca-full-list-of-artists-performing-before-mexico-vs-south-africa/) - Worldsoccertalk.com
+- [Who is Alejandro Fernandez? Meet the Mexican national anthem singer for 2026 World Cup opening ceremony - sportingnews.com](https://www.sportingnews.com/in/football/news/alejandro-fernandez-mexican-national-anthem-singer-2026-world-cup/9837c9a779371cc5ee6370ee) - Sportingnews
+- [Shakira, Andrea Bocelli and Salma Hayek kick-start the World Cup at opening ceremony in Mexico City - AP News](https://apnews.com/article/shakira-salma-hayek-world-cup-277219e8c0a58db3f5252a0974c3fc92) - Apnews
+- [Ariana Grande tells Trump administration to stop using her music for 'barbaric, inhumane, heinous nonsense'](https://www.cbc.ca/news/entertainment/ariana-grande-trump-music-bye-9.7232410) - CBC News
+- [Ariana Grande Slams White House for Using Her Music in Pro-ICE Video](https://www.usmagazine.com/celebrity-news/news/ariana-grande-slams-white-house-using-her-music-in-ice-video/) - Us Weekly
+- [Ariana Grande Slams White House for Using Her Music in ICE Video: ‘Please Do Not Ever Use My Music,’ White House Responds](https://www.justjared.com/2026/06/11/ariana-grande-slams-white-house-for-using-her-music-in-ice-video-please-do-not-ever-use-my-music-white-house-responds/) - Just Jared
+- [Ariana Grande tells the White House not to use her music in ‘barbaric, inhumane’ ICE post - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-06-11/ariana-grande-tells-white-house-not-to-use-song-in-barbaric-tiktok) - Latimes
+- [Ariana Grande blasts ‘barbaric’ White House TikTok using her song in arrest footage - Ynetnews](https://www.ynetnews.com/culture/article/h1pl3h0011ge) - Ynetnews
+- [Ariana Grande rebukes White House for using her music in ‘barbaric, inhumane’ ICE video - The Guardian](https://www.theguardian.com/music/2026/jun/12/ariana-grande-rebukes-white-house-music-ice-video) - Theguardian
+- [Ariana Grande to White House: Don't use my music for 'heinous nonsense' - Reuters](https://www.reuters.com/business/media-telecom/ariana-grande-white-house-dont-use-my-music-heinous-nonsense-2026-06-11/) - Reuters
+- [Bebe Rexha And The Sound Of Becoming ‘Dirty Blonde’](https://www.forbes.com/sites/desjahaltvater/2026/06/11/bebe-rexha-and-the-sound-of-becoming-dirty-blonde/) - Forbes
+- [The Strokes Push Back Album Release, Announce New York City Concert with Beach House and TV on the Radio](https://consequence.net/2026/06/the-strokes-push-back-album-release-nyc-concert/) - Consequence.net
+- [Yungblud Adds to Magical Night in New York at Radio City Music Hall: Review + Photos](https://consequence.net/2026/06/yungblud-new-york-radio-city-music-hall-review-photos/) - Consequence.net
+- [LyricFind integrates video-creation tool into Indian distro service SwaLay](http://musically.com/2026/06/11/lyricfind-integrates-video-creation-tool-into-indian-distro-service-swalay/) - Music Ally
+- [The Linda Lindas Release New Single “Burning Out”: Stream](https://consequence.net/2026/06/the-linda-lindas-burning-out-warner-label/) - Consequence.net
+- [Interview: Mikkey Dee + Lex Legion Making King Diamond Fans Happy](https://loudwire.com/interview-mikkey-dee-lex-legion-king-diamond/) - Loudwire
+- [Lex Legion // Lex Legion – Self-Titled // Album Review - rocknloadmag.com](https://rocknloadmag.com/lex-legion-lex-legion-self-titled-album-review/) - Rocknloadmag
