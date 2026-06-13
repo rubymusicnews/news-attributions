@@ -1,0 +1,30 @@
+# Sources for 2026-06-13 News Episode 
+- [Olivia Rodrigo’s ‘You Seem Pretty Sad for a Girl So in Love’ Has Arrived](http://www.rollingstone.com/music/music-news/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-1235574715/) - Rolling Stone
+- [Olivia Rodrigo, pop princess of vengeful angst, tries her hand at love songs](https://www.npr.org/2026/06/12/nx-s1-5855379/olivia-rodrigo-you-seem-pretty-sad-album-review) - NPR
+- [Olivia Rodrigo Sends Her New Album Straight To No. 1](https://www.forbes.com/sites/hughmcintyre/2026/06/12/olivia-rodrigo-sends-her-new-album-straight-to-no-1/) - Forbes
+- [Olivia Rodrigo Searches for the Cure on ‘You Seem Pretty Sad for a Girl So in Love’: Stream It Now - Billboard Canada](https://ca.billboard.com/music/music-news/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love-1236270573/) - Billboard
+- [Read the Full Credits to Olivia Rodrigo’s You Seem Pretty Sad for a Girl So in Love - Pitchfork](https://pitchfork.com/news/read-the-full-credits-olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love/) - Pitchfork
+- [Olivia Rodrigo: you seem pretty sad for a girl so in love Album Review - Pitchfork](https://pitchfork.com/reviews/albums/olivia-rodrigo-you-seem-pretty-sad-for-a-girl-so-in-love/) - Pitchfork
+- [8 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/news/8-new-albums-you-should-listen-to-now-olivia-rodrigo-kelsey-lu-wiki/) - Pitchfork
+- [Olivia Rodrigo Debuts New Song with Robert Smith During Surprise Set at Primavera Sound - Consequence of Sound](https://consequence.net/2026/06/olivia-rodrigo-robert-smith-new-song-primavera-song/) - Consequence
+- [Taylor Swift inducted into Songwriters Hall of Fame](https://www.cbc.ca/news/entertainment/taylor-swift-songwriters-hall-of-fame-9.7233078) - CBC News
+- [Taylor Swift Becomes Youngest Woman Inducted into Songwriters Hall of Fame](https://www.breitbart.com/entertainment/2026/06/12/taylor-swift-becomes-youngest-woman-inducted-into-songwriters-hall-of-fame/) - Breitbart News
+- [Taylor Swift Gets Emotional Thanking Family in Songwriters Hall of Fame Speech](https://www.usmagazine.com/celebrity-news/news/taylor-swift-thanks-family-in-songwriters-hall-of-fame-speech/) - Us Weekly
+- [Steven Spielberg Says Taylor Swift Has “No Peer” in Songwriters Hall of Fame Speech](https://consequence.net/2026/06/steven-spielberg-taylor-swift-songwriters-hall-of-fame-speech/) - Consequence.net
+- [Taylor Swift is youngest woman to make Songwriters Hall of Fame at 36, but blew out her voice cheering for the Knicks](https://fortune.com/2026/06/12/taylor-swift-songwriters-hall-fame-raye-royalties/) - Fortune
+- [Taylor Swift makes history at Songwriters Hall of Fame induction ceremony](https://pagesix.com/2026/06/12/entertainment/taylor-swift-makes-history-at-songwriters-hall-of-fame-induction-ceremony/) - Page Six
+- [Hilarious moment Taylor Swift makes director Steven Spielberg record her and Travis Kelce DANCING during Songwriters Hall Of Fame Induction](https://www.dailymail.com/tvshowbiz/article-15894081/taylor-swift-steven-spielberg-record-travis-kelce-dancing.html) - Dailymail.com
+- [BTS Concerts And ‘THE CITY’ Project Generated An Estimated $340 Million For Las Vegas](https://www.forbes.com/sites/laurasirikul/2026/06/12/bts-concerts-and-the-city-project-generated-an-estimated-340-million-for-las-vegas/) - Forbes
+- [How Trueno went from the Buenos Aires’ barrios to rapping with Gorillaz](https://www.dazeddigital.com/music/article/70430/1/how-trueno-went-from-the-buenos-aires-barrios-to-rapping-with-gorillaz-argentina?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=how-trueno-went-from-the-buenos-aires-barrios-to-rapping-with-gorillaz) - Dazed
+- [Carly Simon Readies First Album of Original Songs Since 2008](https://pitchfork.com/news/carly-simon-new-album-comes-in-waves/) - Pitchfork
+- [Evanescence Kick Off 2026 Tour with 21-Song Set Featuring Every Track from New Album](https://consequence.net/2026/06/evanescence-kick-off-2026-tour/) - Consequence.net
+- [The Hell-Raising Rocker Who Conquered Country Radio](https://www.newyorker.com/magazine/2026/06/22/koe-wetzel-music-review) - The New Yorker
+- [Koe Wetzel's 'The Night Champion' arrives with 11 songs as country star's rise shows no signs of slowing - Fox News](https://www.foxnews.com/outkick-culture/koe-wetzels-night-champion-arrives-11-songs-country-stars-rise-shows-signs-slowing) - Foxnews
+- [Mon Laferte on Her Bold New Era: 'My Voice Has Been My Shield and My Weapon'](https://www.usmagazine.com/celebrity-news/news/mon-laferte-on-her-new-era-my-voice-has-been-my-shield/) - Us Weekly
+- [‘Dangerous for being free’: Mon Laferte on calling out injustice as Chile’s biggest star - The Guardian](https://www.theguardian.com/music/2026/jun/11/mon-laferte-interview-chile) - Theguardian
+- [The Warning Announce New Album, Unleash Single “Ritual”: Stream](https://consequence.net/2026/06/the-warning-new-album-single-ritual/) - Consequence.net
+- [2026 SBS Gayo Daejeon Summer Announces 1st Artist Lineup](http://www.soompi.com/article/1847356wpp/2026-sbs-gayo-daejeon-summer-announces-1st-artist-lineup) - soompi
+- [Marilyn Manson Premieres New Single “Exit Wound” - Announces “One Assassination Under God – Chapter 2”](http://www.metalunderground.com/news/details.cfm?newsid=161561) - Metalunderground.com
+- [Frankie Grande Says Celine Dion ‘Peed’ Herself After Ariana’s TV Impression](http://www.rollingstone.com/music/music-news/frankie-grande-celine-dion-ariana-impression-peed-1235576538/) - Rolling Stone
+- [Holly Humberstone Unwinds on Her Tour Bus By Spinning Tom Petty, Van Morrison, and Big Thief](http://www.rollingstone.com/music/music-features/holly-humberstone-tom-petty-van-morrison-song-shuffle-1235576726/) - Rolling Stone
+- [17 New Rock + Metal Tours Announced This Past Week](https://loudwire.com/new-rock-metal-tours-announced-june-5-11-2026/) - Loudwire
