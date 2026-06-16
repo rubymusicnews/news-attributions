@@ -1,0 +1,22 @@
+# Sources for 2026-06-16 News Episode 
+- [Elevate Artists Releases New Analysis of Global Electronic Music Trends](https://www.attackmagazine.com/news/elevate-artists-releases-new-analysis-of-global-electronic-music-trends/) - Attackmagazine.com
+- [Ed Sheeran announces he will be taking a break from music to 'do the dad thing for a while' as he performs the first night of his tour](https://www.dailymail.com/tvshowbiz/article-15900201/Ed-Sheeran-announces-taking-break-music-dad-thing-performs-night-tour.html) - Dailymail.com
+- [Ed Sheeran opens LOOP Tour, hints at break to do 'the dad thing' - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/14/ed-sheeran-concert-review-loop-tour-hiatus/90543947007/) - Usatoday
+- [Ed Sheeran shares big career news with fans on stage during first night of US tour - the-sun.com](https://www.the-sun.com/entertainment/16504765/ed-sheeran-shares-career-news-us-tour/) - The-sun
+- [‘Karma’s a Bitch’: Boy George on Why Culture Club Recreated Their Biggest Hit With AI](http://www.rollingstone.com/music/music-features/boy-george-karma-chameleon-ai-rerecord-interview-1235577295/) - Rolling Stone
+- [Boy George Turns To AI To Reanimate ’80s Hit](https://www.spinmagazine.com/2026/06/boy-george-artists-included/) - Spinmagazine.com
+- [Teaser campaigns have become one of the music industry’s most powerful marketing tools](https://theconversation.com/teaser-campaigns-have-become-one-of-the-music-industrys-most-powerful-marketing-tools-284638) - The Conversation Africa
+- [YouTube launches ‘Music Nights’ series of exclusive concerts](http://musically.com/2026/06/15/youtube-launches-music-nights-series-of-exclusive-concerts/) - Music Ally
+- [YouTube looks to upstage its competitors with “Music Nights” headlined by A-list artists](https://www.tubefilter.com/2026/06/15/youtube-live-event-concert-series-music-nights/) - Tubefilter
+- [Julia Jacklin Readies New Album The Gem](https://pitchfork.com/news/julia-jacklin-readies-new-album-the-gem/) - Pitchfork
+- [Julia Jacklin announces fourth album The Gem, shares first single "Get Away From Me (I Think I’ll Love You Soon)"](https://www.thelineofbestfit.com/news/julia-jacklin-announces-fourth-album-the-gem-shares-first-single-get-away-from-me-i-think-ill-love-you-soon) - Thelineofbestfit.com
+- [Julia Jacklin Announces New Album, The Gem, Unveils First Single: Stream](https://consequence.net/2026/06/julia-jacklin-announces-album-the-gem/) - Consequence.net
+- [Handcraft Bets On Global J-Pop With Aoki, Takarabe](https://www.spinmagazine.com/2026/06/handcraft-steve-aoki-mia-takarabe/) - Spinmagazine.com
+- [AVEX LEADERS KATSUMI KUROIWA AND BRANDON SILVERSTEIN HONORED WITH BILLBOARD'S "GLOBAL GROWTH AWARD"](https://www.prnewswire.com/news-releases/avex-leaders-katsumi-kuroiwa-and-brandon-silverstein-honored-with-billboards-global-growth-award-302800465.html) - PRNewswire
+- [Avex's Global Gambit: A New Blueprint for the Music Industry](https://briefglance.com/articles/avexs-global-gambit-a-new-blueprint-for-the-music-industry) - Briefglance
+- ["Pure sonic velvet. Electric Warrior is the perfect mix of heavy crunch and acoustic swagger." T.Rex's collection of sun-dappled narco-rockers is more than the two hits](https://www.loudersound.com/music/albums/t-rex-electric-warrior) - Louder
+- [Sleeping With Sirens Premiere New Music Video "House Of Matches"](http://www.metalunderground.com/news/details.cfm?newsid=161572) - Metalunderground.com
+- [Mike D Performs “Switch Up” and “What We Got” on Jools Holland: Watch](https://consequence.net/2026/06/mike-d-jools-holland-switch-up-what-we-got/) - Consequence.net
+- [Sleeping With Sirens Announce Fall 2026 North American Tour](https://consequence.net/2026/06/sleeping-with-sirens-announce-fall-2026-north-american-tour/) - Consequence.net
+- [Shania Twain reveals why men are the reason she is not a feminist](https://www.the-independent.com/life-style/shania-twain-feminist-protect-men-b2996100.html) - The-independent.com
+- [Swick and King Doudou announce first joint EP in 12 years, Digi Mangal](https://www.thelineofbestfit.com/news/swick-and-king-doudou-announce-first-joint-ep-in-12-years-digi-mangal) - Thelineofbestfit.com
