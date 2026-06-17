@@ -1,0 +1,25 @@
+# Sources for 2026-06-17 News Episode 
+- [Grammys Expand Best New Artist Eligibility, Add 5 New Categories for 2027](https://consequence.net/2026/06/grammys-2027-best-new-artist-eligibility-new-categories/) - Consequence.net
+- [Grammys introduce new category Best Asian Pop Music Performance](https://www.thefader.com/2026/06/16/grammys-new-category-best-asian-pop-music-performance) - The FADER
+- [How A Newly Introduced Grammys Category Could Change Everything For KPop](https://www.forbes.com/sites/hannahabraham/2026/06/16/how-a-newly-introduced-grammys-category-could-change-everything-for-kpop/) - Forbes
+- [The Grammys add 5 new categories, announce changes to best new artist](https://www.cbc.ca/news/entertainment/grammys-new-categories-change-best-new-artist-9.7237517) - CBC News
+- [Grammys Add Asian Pop Performance, Latin Song and More for 2027 Ceremony](https://www.thewrap.com/industry-news/awards/grammys-asian-pop-latin-song-new-categories-changes-2027/) - TheWrap
+- [Grammy Awards Make Changes To Best New Artist Rules & Add Five New Categories](http://deadline.com/2026/06/grammy-awards-rule-changes-1236957303/) - Deadline
+- [Grammys to Make Best New Artist Category Even More Confusing](https://pitchfork.com/news/grammys-to-make-best-new-artist-even-more-confusing/) - Pitchfork
+- [Madonna Hits A Milestone As Her New Single Becomes An Instant Top 10](https://www.forbes.com/sites/hughmcintyre/2026/06/16/madonna-hits-a-milestone-as-her-new-single-becomes-an-instant-top-10/) - Forbes
+- [Madonna Sends Her New Single Straight To No. 1 - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/06/05/madonna-sends-her-new-single-straight-to-no-1/) - Forbes
+- [The Rolling Stones Reach A Chart Milestone 60 Years After Debuting](https://www.forbes.com/sites/hughmcintyre/2026/06/16/the-rolling-stones-reach-a-chart-milestone-60-years-after-debuting/) - Forbes
+- [TXT’s Yeonjun Is Returning With A Second Solo Mini Album](https://www.forbes.com/sites/hannahabraham/2026/06/16/txts-yeonjun-is-returning-with-a-second-solo-mini-album/) - Forbes
+- [Taylor Swift Fuels Rumors She’s Recording Her 13th Album With 9-Hour Electric Lady Studios Visit](https://www.cosmopolitan.com/entertainment/celebs/a71600022/taylor-swift-13th-album-rumors-electric-lady/) - Cosmopolitan.com
+- [Pink Floyd Blocked From A New No. 1 Album](https://www.forbes.com/sites/hughmcintyre/2026/06/16/pink-floyd-blocked-from-a-new-no-1-album/) - Forbes
+- ["She might have been crowned Miss World Chile, but we could be seeing a future death metal queen." Chilean extreme metallers Decessus made a hell of a first impression at Download festival](https://www.loudersound.com/bands-artists/live-performances/she-might-have-been-crowned-miss-world-chile-but-we-could-be-seeing-a-future-death-metal-queen-chilean-extreme-metallers-decessus-made-a-hell-of-a-first-impression-at-download-festival) - Louder
+- [Post Malone Doubles His Smashes On One Chart With A Decade-Old Song](https://www.forbes.com/sites/hughmcintyre/2026/06/16/post-malone-doubles-his-smashes-on-one-chart-with-a-decade-old-song/) - Forbes
+- [Bruce Springsteen – Chase Center, San Francisco, CA, 04.13.26 (2026)](https://exystence.net/blog/2026/06/16/bruce-springsteen-chase-center-san-francisco-ca-04-13-26-2026/) - Exystence.net
+- [Lambrini Girls to the Front](https://www.spinmagazine.com/2026/06/lambrini-girls-to-the-front/) - Spinmagazine.com
+- [Vince Staples Lines Up North American Tour](https://pitchfork.com/news/vince-staples-lines-up-north-american-tour/) - Pitchfork
+- [Vince Staples Announces 2026 Fall Tour](https://consequence.net/2026/06/vince-staples-2026-cry-baby-tour-dates/) - Consequence.net
+- [Vince Staples Sets Full Band Fall Tour](https://www.spinmagazine.com/2026/06/vince-staples-fall-tour/) - Spinmagazine.com
+- [North West Announces Tour Dates with Molly Santana](https://consequence.net/2026/06/north-west-tour-dates-molly-santana/) - Consequence.net
+- [Soundgarden's Kim Thayil Names the 'Big 4' Grunge Pioneers](https://loudwire.com/soundgarden-kim-thayil-big-4-grunge-pioneers/) - Loudwire
+- [Daughtry Announce “20 Years Unplugged” 2026 US Tour](https://consequence.net/2026/06/daughtry-20-years-unplugged-2026-us-tour/) - Consequence.net
+- [Daughtry to Unplug for Fall 2026 20th Anniversary Acoustic Tour](https://loudwire.com/daughtry-20th-anniversary-acoustic-tour/) - Loudwire
