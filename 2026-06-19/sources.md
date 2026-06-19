@@ -1,0 +1,31 @@
+# Sources for 2026-06-19 News Episode 
+- [Katy Perry Talks Viral Resurgence And Upcoming New Single](https://www.forbes.com/sites/hughmcintyre/2026/06/18/katy-perry-talks-viral-resurgence-and-upcoming-new-single/) - Forbes
+- [Katy Perry Trolled For Butchering Her Own Music](https://dailycaller.com/2026/06/18/katy-perry-new-single-watch-it-burn-epic-fail/) - The Daily Caller
+- [Get Swept Up in Mary in the Junkyard’s Dream World](http://www.rollingstone.com/music/music-features/mary-in-the-junkyard-interview-uk-rock-band-1235576647/) - Rolling Stone
+- [Spotify’s reserved ticket sales to music superfans are now going live](https://biztoc.com/x/d78ef46bd4750db2) - Biztoc.com
+- [Spotify Will Now Reserve Tickets for Superfans Before General Sales Can Skyrocket in Price](https://gizmodo.com/spotify-will-now-reserve-tickets-for-superfans-before-general-sales-can-skyrocket-in-price-2000773888) - Gizmodo.com
+- [Spotify's latest feature is ready to help you avoid concert ticket resellers](https://www.androidauthority.com/spotify-reserved-out-now-3679022/) - Androidauthority
+- [Spotify’s reserved ticket sales to music superfans are now going live - TechCrunch](https://techcrunch.com/2026/06/18/spotifys-reserved-ticket-sales-to-musics-superfans-are-now-going-live/) - Techcrunch
+- [Spotify Launches Ticket Reservation System for True Fans - Zamin.uz](https://zamin.uz/en/technology/207874-spotify-launches-ticket-reservation-system-for-true-fans.html) - Zamin
+- ["While Damon Albarn is mainly known as a charismatic Britpop darling, we’d argue that he's actually music's ultimate wingman." Gorillaz charm and delight Rock For People during a varied and entertaining headline set](https://www.loudersound.com/bands-artists/music-festivals/while-damon-albarn-is-mainly-known-as-a-charismatic-britpop-darling-wed-argue-that-hes-actually-musics-ultimate-wingman-gorillaz-charm-and-delight-rock-for-people-during-a-varied-and-entertaining-headline-set) - Louder
+- [Yuuki Yoshiyama on building 81 MUSIC FESTIVAL and connecting Japan to the world [Q&A]](https://earmilk.com/2026/06/18/yuuki-yoshiyama-on-building-81-music-festival-and-connecting-japan-to-the-world-qa/) - Earmilk.com
+- [Katy Perry wonders if pop stars are ‘making good s–t’ or if they’re ‘just productive’](https://www.celebitchy.com/982689/katy_perry_wonders_if_pop_stars_are_making_good_s--t_or_if_theyre_just_productive/) - Celebitchy.com
+- [Tay Keith, Grammy-Nominated Producer for Travis Scott and Drake, Dies at 29](https://www.thewrap.com/creative-content/music/tay-keith-dies-grammy-nominated-producer-travis-scott-drake/) - TheWrap
+- [Producer Tay Keith Dies at 29](https://pitchfork.com/news/producer-tay-keith-dies-at-29/) - Pitchfork
+- [Tay Keith, Grammy-nominated record producer, found dead in Nashville at 29 - NBC News](https://www.nbcnews.com/news/us-news/tay-keith-grammy-nominated-record-producer-found-dead-nashville-29-rcna350807) - Nbcnews
+- [Grammy-nominated producer Tay Keith found dead in Nashville apartment, police confirm - WSMV](https://www.wsmv.com/2026/06/18/grammy-nominated-producer-tay-keith-found-dead-nashville-apartment-police-confirm/) - Wsmv
+- [Tay Keith, Grammy-nominated record producer, found dead in Nashville at 29 - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/tay-keith-dead-nashville/6515659/) - Nbcnewyork
+- [Tay Keith, Grammy-nominated producer, found dead in Nashville at 29 - CBS News](https://www.cbsnews.com/news/tay-keith-dead-producer-nashville/) - Cbsnews
+- [Music Review: Myles Smith makes anthemic, personal pop on his debut, 'My Mess, My Heart, My Life'](https://abcnews.com/Entertainment/wireStory/music-review-myles-smith-makes-anthemic-personal-pop-133991994) - Abcnews.com
+- [Music Review: Myles Smith makes anthemic, personal pop on his debut, 'My Mess, My Heart, My Life' - Greenwich Time](https://www.greenwichtime.com/entertainment/article/music-review-myles-smith-makes-anthemic-22310722.php) - Greenwichtime
+- [How Myles Smith turned five years of therapy notes into a debut album - BBC](https://www.bbc.com/news/articles/c1dy5xvwrgvo) - Bbc
+- [How a feel-good German song is taking over social media](https://www.dw.com/en/how-a-feel-good-german-song-is-taking-over-social-media/a-77592590) - DW (English)
+- [Role Model Books 2026–2027 Headlining Tour](https://exclaim.ca/music/article/role-model-books-2026-2027-tour) - Exclaim!
+- [Role Model Announces 2026 North American Tour](https://consequence.net/2026/06/role-model-2026-north-american-tour/) - Consequence.net
+- [Sleep Announce 2026 Tour, Unveil First New Music in Eight Years](https://consequence.net/2026/06/sleep-tour-dates-new-music/) - Consequence.net
+- [Sleep Awakens With New Single, Fall Tour](https://www.spinmagazine.com/2026/06/sleep-new-single-fall-tour/) - Spinmagazine.com
+- [Sleep Return With Tour, Comic Book, and First New Song in Eight Years](https://pitchfork.com/news/sleep-return-with-tour-comic-book-and-first-new-song-in-eight-years/) - Pitchfork
+- [Sleep Announce Tour With New Lineup, Debut Song Without Matt Pike](https://loudwire.com/sleep-have-spacesuit-will-travel-2026-tour/) - Loudwire
+- [UMG, The World’s Biggest Music Company, Is Investing In A Mental Health Ecosystem. Here’s How It Works](https://www.forbes.com/sites/cathyolson/2026/06/18/umg-the-worlds-biggest-music-company-is-investing-in-a-mental-health-ecosystem-heres-how-it-works/) - Forbes
+- [Pop-Kultur Festival to addresses streaming exploitation and gender pay gap; adds mùm to lineup](https://www.thelineofbestfit.com/news/pop-kultur-festival-to-addresses-streaming-exploitation-and-gender-pay-gap-adds-mum-to-lineup) - Thelineofbestfit.com
+- [Wayne Jobson Joins Tim Levy on Echoes Across Time to Discuss Storytelling, Reggae Legacy, and a Life Behind the Music](https://www.globenewswire.com/news-release/2026/06/18/3313886/0/en/Wayne-Jobson-Joins-Tim-Levy-on-Echoes-Across-Time-to-Discuss-Storytelling-Reggae-Legacy-and-a-Life-Behind-the-Music.html) - GlobeNewswire
