@@ -1,0 +1,20 @@
+# Sources for 2026-06-20 News Episode 
+- [Listen to FKA twigs’ New Electro Song Featuring Lil Yachty](https://pitchfork.com/news/fka-twigs-lil-yachty-on-your-mind/) - Pitchfork
+- [YG Gets Brutally Honest at ‘The Gentlemen’s Club’](http://www.rollingstone.com/music/music-album-reviews/yg-the-gentlemens-club-review-1235580889/) - Rolling Stone
+- [Apple Music top 20 most-streamed artists of all time, ranked](https://www.cultofmac.com/news/apple-music-top-20-most-streamed-artists) - Cult of Mac
+- [Apple Music in iOS 27 introduces new design changes in two key areas](https://9to5mac.com/2026/06/19/apple-music-in-ios-27-introduces-new-design-changes-in-two-key-areas/) - 9to5Mac
+- [iOS 27: Here’s all the new Apple Music features - 9to5Mac](https://9to5mac.com/2026/06/08/ios-27-heres-all-the-new-apple-music-features/) - 9to5mac
+- [5 New Apple Music Features Coming In iOS 27 - bgr.com](https://www.bgr.com/2195614/new-apple-music-features-coming-ios-27/) - Bgr
+- [Apple Music Gains AutoMix Upgrades and More in iOS 27 - MacRumors](https://www.macrumors.com/2026/06/09/apple-music-gains-automix-upgrades-and-more-in-ios-27/) - Macrumors
+- [Italy on the rise](http://musically.com/2026/06/19/italy-on-the-rise/) - Music Ally
+- [Report highlights big-tech platforms’ role in spreading Indian ‘hate music’](http://musically.com/2026/06/19/report-highlights-big-tech-platforms-role-in-spreading-indian-hate-music/) - Music Ally
+- ["It’s a fun, up-tempo club record": MNEK returns with "Reverse!!" single and announces new album Bulldozer!!](https://www.thelineofbestfit.com/news/mnek-returns-with-reverse-single-and-announces-new-album-bulldozer) - Thelineofbestfit.com
+- [Lizzo’s New Album Disappoints As It Reaches Only One Billboard Chart](https://www.forbes.com/sites/hughmcintyre/2026/06/19/lizzos-new-album-disappoints-as-it-reaches-only-one-billboard-chart/) - Forbes
+- [ILLIT’s Moka To Temporarily Halt Activities Due To Health Concerns](http://www.soompi.com/article/1848958wpp/illits-moka-to-temporarily-halt-activities-due-to-health-concerns) - soompi
+- [Robbie Williams : “Tout est devenu plus simple quand j’ai compris que le show n’était qu’un job”](https://www.lesinrocks.com/musique/robbie-williams-tout-est-devenu-plus-simple-quand-jai-compris-que-le-show-netait-quun-job-698087-19-06-2026/) - Les Inrocks
+- [I Went to One of the Last-Ever Shows of a Beloved Rock Band. What I Saw Was Haunting and Strange.](https://slate.com/culture/2026/06/beach-boys-songs-brian-wilson-tour-mike-love.html) - Slate Magazine
+- [Ken Carson Crafts New LP, ‘Xperiment’](https://www.spinmagazine.com/2026/06/ken-carson-new-album/) - Spinmagazine.com
+- [thrown Premiere New Single & Music Video "rehearsed"](http://www.metalunderground.com/news/details.cfm?newsid=161593) - Metalunderground.com
+- [Ella Langley Ties Her Longest Reign At No. 1](https://www.forbes.com/sites/hughmcintyre/2026/06/19/ella-langley-ties-her-longest-reign-at-no-1/) - Forbes
+- [Ella Langley Ties Her Longest Reign At No. 1 - Yahoo](https://www.yahoo.com/entertainment/music/articles/ella-langley-ties-her-longest-120000052.html) - Yahoo
+- [Ella Langley Manages A First For Women At Country Radio - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/06/14/ella-langley-manages-a-first-for-women-at-country-radio/) - Forbes
