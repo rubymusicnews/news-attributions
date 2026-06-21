@@ -1,0 +1,19 @@
+# Sources for 2026-06-21 News Episode 
+- [Taylor Swift Becomes The First Artist To Manage A Chart Feat](https://www.forbes.com/sites/hughmcintyre/2026/06/20/taylor-swift-becomes-the-first-artist-to-manage-a-chart-feat/) - Forbes
+- [Kanye West Releases ‘Bully’ Deluxe Edition, Unveils ‘Kings’ Video](http://www.billboard.com/music/rb-hip-hop/kanye-west-bully-deluxe-edition-don-toliver-kings-video-1236277110/) - Billboard
+- [Kanye West and Bianca Censori drop steamy 'Gemini Season' music video on rapper's birthday - The News International](https://www.thenews.com.pk/latest/1405258-kanye-west-drops-the-gemini-season-music-video-featuring-bianca-censori) - Thenews
+- [ATEEZ, BOYNEXTDOOR Dominate Seoul Music Awards 2026: Full Winners List](https://www.forbes.com/sites/hannahabraham/2026/06/20/ateez-boynextdoor-dominate-seoul-music-awards-2026-full-winners-list/) - Forbes
+- [Harry Styles halts his Wembley show mid-song to tend to a distressed concert-goer as fans praise him for 'being so caring'](https://www.dailymail.com/tvshowbiz/article-15915115/Harry-Styles-halts-Wembley-mid-song-tend-distressed-concert-goer-fans-praise-caring.html) - Dailymail.com
+- [Brian May Returns To The Billboard Charts — Without Queen](https://www.forbes.com/sites/hughmcintyre/2026/06/20/brian-may-returns-to-the-billboard-charts---without-queen/) - Forbes
+- [Lewis Capaldi says it's 'good to be back' as he addresses his 'complete and utter mental f*****g breakdown' while headlining Isle of Wight festival](https://www.dailymail.com/tvshowbiz/article-15915753/Lewis-Capaldi-says-good-addresses-complete-utter-mental-f-g-breakdown-headlining-Isle-Wight-festival.html) - Dailymail.com
+- [Earth, Wind & Fire documentary explores band's highs and lows, Maurice White's complicated life](https://www.foxnews.com/entertainment/earth-wind-fire-documentary-explores-bands-highs-lows-maurice-whites-complicated-life) - Fox News
+- [Review: Questlove’s Earth, Wind & Fire Doc Is a Must-see - Vulture](https://www.vulture.com/article/review-questlove-earth-wind-and-fire-documentary.html) - Vulture
+- [Questlove's Earth, Wind & Fire doc shows how trauma lingered behind a band's relentless positivity - Los Angeles Times](https://www.latimes.com/entertainment-arts/tv/story/2026-06-09/questlove-earth-wind-and-fire-documentary-recommendations) - Latimes
+- [The Business Deal That Tore Apart Earth, Wind & Fire - WSJ](https://www.wsj.com/arts-culture/music/earth-wind-fire-hbo-documentary-questlove-9e6b2c59) - Wsj
+- [Megastars bring new life to 'aging' country music](https://www.abc.net.au/news/2026-06-20/country-music-rises-in-popularity/106807276) - ABC News (AU)
+- [5 Death Metal Bands You Can’t Pronounce (But Worth Listening To)](https://loudwire.com/death-metal-bands-cant-pronounce/) - Loudwire
+- [90s/2000s Beach Music (2026)](https://post.rlsbb.to/90s-2000s-beach-music-2026/) - Rlsbb.to
+- [Lola Young reflects on difficult year: 'I've missed this'](https://www.rte.ie/entertainment/2026/0620/1579451-lola-young-reflects-on-difficult-year-ive-missed-this/) - RTE
+- [Medimex 2026: gran finale con Ramones, Slowdive e Suede](https://www.ansa.it/puglia/notizie/2026/06/20/medimex-2026-gran-finale-con-ramones-slowdive-e-suede_e21825f4-f8b7-40f9-9156-903f4c2f2024.html) - ANSA.it
+- [K-pop singer reflects on healing and growth through ‘Nail’](http://www.amny.com/entertainment/k-pop-singer-reflects-on-healing-and-growth-through-nail/) - amNY
+- [SJ 東海又要來了！ 7月驚喜加開高雄場 票價、售票日期一次看](https://tw.news.yahoo.com/sj-%E6%9D%B1%E6%B5%B7%E5%8F%88%E8%A6%81%E4%BE%86%E4%BA%86-7%E6%9C%88%E9%A9%9A%E5%96%9C%E5%8A%A0%E9%96%8B%E9%AB%98%E9%9B%84%E5%A0%B4-%E7%A5%A8%E5%83%B9-%E5%94%AE%E7%A5%A8%E6%97%A5%E6%9C%9F-045400793.html) - Yahoo Entertainment
