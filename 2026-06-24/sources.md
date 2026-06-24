@@ -1,0 +1,23 @@
+# Sources for 2026-06-24 News Episode 
+- [Shakira Makes 2026 Her Biggest Year Ever On One Chart With Several New Hits](https://www.forbes.com/sites/hughmcintyre/2026/06/23/shakira-makes-2026-her-biggest-year-ever-on-one-chart-with-several-new-hits/) - Forbes
+- [AC/DC to Power Up Tour Dates With Special Pop-Up Shops](http://www.rollingstone.com/music/music-news/acdc-power-up-tour-pop-ups-1235582527/) - Rolling Stone
+- [AC/DC Plan Pop-Up Shops for Every Date of 'Power Up' Tour](https://www.rollingstone.com/music/music-news/acdc-power-up-tour-pop-ups-1235582527) - Rollingstone
+- [EXCLUSIVE: Michael Jackson Had Himself Cloned — We Reveal How The King of Pop Made DNA Deposits So He'd Live Forever](https://radaronline.com/p/michael-jackson-had-himself-cloned-dna-deposits-live-forever/) - Radaronline.com
+- [FFDP's Zoltan Bathory Interview — New Album, World Tour + More](https://loudwire.com/five-finger-death-punch-zoltan-bathory-new-album-tour-interview/) - Loudwire
+- [Spotify Wins Dismissal of Bot-Farming Lawsuit](https://pitchfork.com/news/spotify-wins-dismissal-of-bot-farming-lawsuit/) - Pitchfork
+- [BOYNEXTDOOR Enters Top 20 Of Billboard 200 For 1st Time As “HOME” Achieves Their Best U.S. Sales Week Yet](http://www.soompi.com/article/1849945wpp/boynextdoor-enters-top-20-of-billboard-200-for-1st-time-as-home-achieves-their-best-u-s-sales-week-yet) - soompi
+- [Instagram](https://www.instagram.com/p/DZ8MJDijXr-) - Instagram
+- [Hatsune Miku successfully wraps Miku Expo 2026 North America tour with 100,000 attendees](https://soranews24.com/2026/06/24/hatsune-miku-successfully-wraps-miku-expo-2026-north-america-tour-with-100000-attendees/) - SoraNews24
+- [The Backstreet Boys Score A New Sales Smash For The First Time In Eight Years](https://www.forbes.com/sites/hughmcintyre/2026/06/23/the-backstreet-boys-score-a-new-sales-smash-for-the-first-time-in-eight-years/) - Forbes
+- [When Bruce Springsteen Becomes History](http://www.rollingstone.com/music/music-features/bruce-springsteen-museum-center-for-american-music-review-1235582122/) - Rolling Stone
+- [Bruce Springsteen opens namesake center, says 'music fights against isolation' - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/11/bruce-springsteen-opens-music-center/90515589007/) - Usatoday
+- [How the Bruce Springsteen Center Is Telling the Story of American Music - Artnet News](https://news.artnet.com/art-world/bruce-springsteen-center-american-music-opens-2780518) - Artnet
+- [Deftones’ Shelved Album Eros Apparently Leaked Online](https://consequence.net/2026/06/deftones-eros-leaked-online/) - Consequence.net
+- [Mötley Crüe Summer 2026 North American Tour: How to Get Last-Minute Tickets](https://consequence.net/2026/06/motley-crue-summer-2026-tour-how-to-get-tickets/) - Consequence.net
+- [How to Get Tickets to Mötley Crüe's Summer 2026 North American Tour](https://consequence.net/2026/06/motley-crue-summer-2026-tour-how-to-get-tickets) - Consequence
+- [Mötley Crüe Tickets, 2026 Concert Tour Dates \| Ticketmaster](https://www.ticketmaster.com/motley-crue-tickets/artist/910417) - Ticketmaster
+- [Motley Crue - Concert Tickets \| Citi Entertainment®](https://www.citientertainment.com/landing/the_return_of_the_carnival_of_sins_motley_crue) - Citientertainment
+- [Lzzy Hale Leads King Ultramega’s Cover of Soundgarden’s “Loud Love”: Stream](https://consequence.net/2026/06/king-ultramega-lzzy-hale-soundgarden-loud-love/) - Consequence.net
+- [BLXST Carries The Weight Of What He’s Built On ‘Labor Of Love’](https://www.forbes.com/sites/desjahaltvater/2026/06/23/blxst-carries-the-weight-of-what-hes-built-on-labor-of-love/) - Forbes
+- ["We need to be wowed by what’s actually real": Jim James reveals plans for new solo album, Wowed Out](https://www.thelineofbestfit.com/news/we-need-to-be-wowed-by-whats-actually-real-jim-james-reveals-plans-for-new-solo-album-wowed-out) - Thelineofbestfit.com
+- [Jim James Finds A ‘Wow’ Signal](https://www.spinmagazine.com/2026/06/jim-james-new-albun/) - Spinmagazine.com
