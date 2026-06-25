@@ -1,0 +1,18 @@
+# Sources for 2026-06-25 News Episode 
+- [beabadoobee Details New Album Pylon and International Tour](https://pitchfork.com/news/beabadoobee-details-new-album-pylon-and-tour/) - Pitchfork
+- [beabadoobee Details Star-Studded ‘Pylon’ LP](https://www.spinmagazine.com/2026/06/beabadoobee-new-album/) - Spinmagazine.com
+- [Hayley Williams, Brendan Yates, Chino Moreno and more feature on new Beabadoobee album, Pylon](https://www.thelineofbestfit.com/news/hayley-williams-brendan-yates-chino-moreno-and-more-feature-on-new-beabadoobee-album-pylon) - Thelineofbestfit.com
+- [Doja Cat ‘Really Disappointed’ Fans Thought AI Songs Were Leaks: ‘None of It Is Me’](http://www.rollingstone.com/music/music-news/doja-cat-slams-ai-leaks-1235583037/) - Rolling Stone
+- [Olivia Rodrigo Misses A New No. 1 As A Superstar Stops Her From Ruling](https://www.forbes.com/sites/hughmcintyre/2026/06/24/olivia-rodrigo-misses-a-new-no-1-as-a-superstar-stops-her-from-ruling/) - Forbes
+- [PJ Harvey Imagines What ‘Voyager’ Spacecraft Thinks of Earth on Otherworldly New Single](http://www.rollingstone.com/music/music-news/pj-harvey-voyager-single-1235582271/) - Rolling Stone
+- [Lykke Li Wants to ‘Unsubscribe’ From the Music Industry’s Status Quo](http://www.rollingstone.com/music/music-features/lykke-li-the-afterparty-interview-1235575254/) - Rolling Stone
+- [Metallica’s Kirk Hammett: “Right Now, Songwriting and Pop Music Is Crap”](https://consequence.net/2026/06/metallica-kirk-hammett-pop-music-crap/) - Consequence.net
+- [Pharrell Williams Debuts Collaborations With Quavo, Lil Baby, Angelique Kidjo at Louis Vuitton Show](http://www.rollingstone.com/music/music-news/pharrell-williams-quavo-lil-baby-louis-vuitton-show-1235582925/) - Rolling Stone
+- [Beatles Series ‘Hamburg Days’ Adds Asa Butterfield, Jonny Lee Miller & Christine Tremarco](http://deadline.com/2026/06/beatles-hamburg-days-asa-butterfield-jonny-lee-miller-1236966007/) - Deadline
+- [Asa Butterfield, Jonny Lee Miller and Christine Tremarco Join Beatles Series ‘Hamburg Days’ - Variety Australia](https://au.variety.com/2026/tv/news/asa-butterfield-jonny-lee-miller-hamburg-days-37994/) - Variety
+- [Music History Documentary 'WHAM! 10 Days In China' Official Trailer](https://www.firstshowing.net/2026/music-history-documentary-wham-10-days-in-china-official-trailer/) - First Showing
+- [Haircut 100 On ‘Boxing The Compass,’ Their First New Album In Over 40 Years](https://www.forbes.com/sites/davidchiu/2026/06/24/haircut-100-on-boxing-the-compass-their-first-new-album-in-over-40-years/) - Forbes
+- [Usher says tour with Chris Brown is about more than 2 stars](https://japantoday.com/category/entertainment/usher-says-tour-with-chris-brown-is-about-more-than-2-stars.-he-makes-the-case-for-r-b-in-stadiums) - Japan Today
+- [Watch a Young Knight Conquer a Castle in Navy Blue’s New Music Video](https://pitchfork.com/news/watch-a-young-knight-conquer-a-castle-in-navy-blues-new-music-video/) - Pitchfork
+- [Brandon Flowers Announces 2026 North American Tour](https://consequence.net/2026/06/brandon-flowers-2026-north-american-tour/) - Consequence.net
+- [Metalsplitter: Iron Maidens Supergau in Paris](https://laut.de/News/Metalsplitter-Iron-Maidens-Supergau-in-Paris-24-06-2026-21828) - Laut.de
