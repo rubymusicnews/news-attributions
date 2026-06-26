@@ -1,0 +1,32 @@
+# Sources for 2026-06-26 News Episode 
+- [The Rolling Stones Release New Songs “Jealous Lover” and Robert Smith Collab “Divine Intervention”: Stream](https://consequence.net/2026/06/the-rolling-stones-release-new-songs-jealous-lover-and-robert-smith-collab-divine-intervention-stream/) - Consequence.net
+- [Rolling Stones, la recensione di «Foreign Tongues»: un blues seppellirà Trump](https://www.ilsole24ore.com/art/rolling-stones-recensione-foreign-tongues-blues-seppellira-trump-AI3KURpD) - Il Sole 24 Ore
+- [The Rolling Stones Release ‘Jealous Lover’ and Robert Smith Collab — Listen - Newsweek](https://www.newsweek.com/entertainment/music/the-rolling-stones-release-jealous-lover-and-robert-smith-collab-listen-12121494) - Newsweek
+- [EN IMAGES. La chanson « Wannabe » fête ses 30 ans : Retour sur le phénomène Spice Girls](https://www.20minutes.fr/diaporama/diaporama-4231169-images-chanson-wannabe-fete-30-ans-retour-phenomene-spice-girls) - 20 Minutes
+- [Pink Floyd’s Legendary Album Hits A Longevity Milestone](https://www.forbes.com/sites/hughmcintyre/2026/06/25/pink-floyds-legendary-album-hits-a-longevity-milestone/) - Forbes
+- [Lionel Richie, 77, 'taken to hospital by ambulance' after dizzy spell onstage saw him end concert](https://www.dailymail.com/tvshowbiz/article-15929887/Lionel-Richie-hospital-ambulance-ill-minnesota.html) - Dailymail.com
+- [Music Icon Lionel Richie, 77, Sparks Health Fears by Axing Concert after Falling Ill on Stage Amid 'Dizziness' Complaints](https://radaronline.com/p/lionel-richie-77-sparks-health-fears-by-axing-concert-after-falling-ill-on-stage/) - Radaronline.com
+- [Lionel Richie, 77, falls ill onstage, abruptly ends opening night concert in Minnesota](https://pagesix.com/2026/06/25/entertainment/lionel-richie-77-falls-ill-onstage-in-minnesota-abruptly-ends-opening-night-concert/) - Page Six
+- [Paramedics Reportedly Rushed Lionel Richie To Hospital In After Mid-Concert Health Scare](https://dailycaller.com/2026/06/25/lionel-richie-halts-performance-on-stage-health-scare-dizzy-ambulance-hospitalized/) - The Daily Caller
+- [Lionel Richie hospitalized after medical incident forced concert to end early (report) - Entertainment Weekly](https://ew.com/lionel-richie-hospitalized-cutting-concert-short-12006630) - Ew
+- [Lionel Richie Cuts Concert Short After Falling Ill Mid-Performance - TheWrap](https://www.thewrap.com/creative-content/music/lionel-richie-cuts-concert-short-falls-ill-mid-performance/) - Thewrap
+- [Lionel Richie postpones Chicago concert after health scare at Minnesota show - WGN-TV](https://wgntv.com/news/the-weekender/lionel-richie-chicago-postponed/) - Wgntv
+- [Taylor Swift could lose grip on her masters after producer Max Martin’s catalogue sale](https://pagesix.com/2026/06/25/entertainment/taylor-swift-could-lose-grip-on-her-masters-after-producer-max-martins-catalogue-sale/) - Page Six
+- [David Clayton-Thomas, Blood, Sweat, and Tears Singer, Dead at 84](http://www.rollingstone.com/music/music-news/david-clayton-thomas-blood-sweat-tears-dead-obit-1235583766/) - Rolling Stone
+- [Blood, Sweat & Tears rocker David Clayton-Thomas dies at 84](https://www.bbc.co.uk/news/articles/cm20l1nngllo) - BBC News
+- [David Clayton-Thomas, powerhouse lead singer of Blood, Sweat & Tears, dies at 84](https://japantoday.com/category/entertainment/david-clayton-thomas-powerhouse-lead-singer-of-blood-sweat-tears-dead-at-84) - Japan Today
+- [Blood Sweat and Tears Frontman David Clayton-Thomas Dies at 84](https://ultimateclassicrock.com/david-clayton-thomas-dies/) - Ultimate Classic Rock
+- [David Clayton-Thomas, Blood, Sweat & Tears Lead Singer, Dies At 84](https://www.forbes.com/sites/timlammers/2026/06/25/david-clayton-thomas-blood-sweat--tears-lead-singer-dies-at-84/) - Forbes
+- [David Clayton-Thomas Cause of Death: Blood, Sweat and Tears Singer Mourned By Music World](http://www.thehollywoodgossip.com/2026/06/david-clayton-thomas-cause-of-death-blood-sweat-and-tears-singer-mourned-by-music-world/) - The Hollywood Gossip
+- [Def Leppard Debuts Inside The Top 10 — On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/06/25/def-leppard-debuts-inside-the-top-10---on-multiple-charts/) - Forbes
+- [Sade Soars To A Career Milestone For Only The Second Time](https://www.forbes.com/sites/hughmcintyre/2026/06/25/sade-soars-to-a-career-milestone-for-only-the-second-time/) - Forbes
+- [JAŸ-Z, Rick Rubin Pair For HBO Documentary](https://www.spinmagazine.com/2026/06/jay-z-rick-rubin-documentary/) - Spinmagazine.com
+- [JAY-Z shares his story in upcoming HBO series - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/25/jay-z-new-hbo-documentary/90695492007/) - Usatoday
+- [‘Jay-Z Documentary Series Set At HBO – Watch The Teaser - Deadline](https://deadline.com/2026/06/jay-z-documentary-series-hbo-trailer-1236967454/) - Deadline
+- [Shaboozey: Tiny Desk Concert](https://www.npr.org/2026/06/25/g-s1-126162/shaboozey-tiny-desk-concert) - NPR
+- [Watch Shaboozey Turn 'Tiny Desk' Into A Dive Bar With Leon Bridges, Sarah Jarosz & Sara Watkins](https://www.jambase.com/article/shaboozey-tiny-desk-concert-leon-bridges) - Jambase
+- [Shaboozey: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-06-25/shaboozey-tiny-desk-concert) - Wrvo
+- [Aaron Dessner, Fred again.. Unite At Eaux Claires](https://www.spinmagazine.com/2026/06/aaron-dessner-fred-again-eaux-claires/) - Spinmagazine.com
+- [Zayn Malik suffers another blow as he is 'dropped by his manager' amid claims he 'punched One Direction bandmate Louis Tomlinson' as his career comeback is hit by fresh woes](https://www.dailymail.com/tvshowbiz/article-15928519/Zayn-Malik-suffers-blow-dropped-manager-amid-claims-punched-One-Direction-bandmate-Louis-Tomlinson-career-comeback-hit-fresh-woes.html) - Dailymail.com
+- [Rob Zombie Premieres New Music Video For "Tarantula"](http://www.metalunderground.com/news/details.cfm?newsid=161616) - Metalunderground.com
+- [Morrissey Lashes Out Against Johnny Marr Over New Smiths Documentary](https://consequence.net/2026/06/morrissey-johnny-marr-documentary-letter/) - Consequence.net
