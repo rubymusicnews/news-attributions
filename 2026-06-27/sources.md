@@ -1,0 +1,21 @@
+# Sources for 2026-06-27 News Episode 
+- [12 New Albums You Should Listen to Now: Beth Orton, Chanel Beads, and More](https://pitchfork.com/news/12-new-albums-you-should-listen-to-now-beth-orton-chanel-beads/) - Pitchfork
+- [Katy Perry drops 'horrifying' new music video packed with Easter Eggs targeting ex Orlando Bloom as fans herald Watch It Burn as 'a masterpiece' and a return to form for the pop star](https://www.dailymail.com/tvshowbiz/article-15931961/Katy-Perry-drops-horrifying-new-music-video-packed-Easter-Eggs-targeting-ex-Orlando-Bloom-fans-herald-Watch-Burn-masterpiece-return-form-pop-star.html) - Dailymail.com
+- [Katy Perry Finally Gets Angry on New Song ‘Watch It Burn’: Watch Fiery Video Now - Billboard Canada](https://ca.billboard.com/music/pop/katy-perry-new-song-watch-it-burn-here-listen-1236281454/) - Billboard
+- [Jay-Z album anniversary campaign launches yearlong program](http://musically.com/2026/06/26/jay-z-album-anniversary-campaign-launches-yearlong-program/) - Music Ally
+- [Brooklyn Public Library releases limited-edition Jay-Z library cards - 6sqft](https://www.6sqft.com/special-edition-jay-z-library-cards-brooklyn-public-library/) - 6sqft
+- [30 years of ‘Reasonable Doubt': New York celebrates Jay-Z's debut album - NBC New York](https://www.nbcnewyork.com/video/news/30-years-of-reasonable-doubt-new-york-celebrates-jay-zs-debut-album/6518303/) - Nbcnewyork
+- [Michael Jackson’s ‘70s Album Reaches A Major Chart Milestone](https://www.forbes.com/sites/hughmcintyre/2026/06/26/michael-jacksons-70s-album-reaches-a-major-chart-milestone/) - Forbes
+- [Becky G Shows Her Hand on New Album ‘Baraja Bendita’](http://www.rollingstone.com/music/music-latin/becky-g-new-album-baraja-bendita-patrona-song-1235584989/) - Rolling Stone
+- [Bruno Mars Matches One Of Miley Cyrus’s Most Impressive Chart Records](https://www.forbes.com/sites/hughmcintyre/2026/06/26/bruno-mars-matches-one-of-miley-cyruss-most-impressive-chart-records/) - Forbes
+- [Bruno Mars Ties One Of The Top Female Artists Of The Past Two Decades - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/06/15/bruno-mars-ties-one-of-the-top-female-artists-of-the-past-two-decades/) - Forbes
+- [Steve Lacy Enlists SZA For ‘Cool’ Duet](https://www.spinmagazine.com/2026/06/steve-lacy-sza-duet/) - Spinmagazine.com
+- [Mick Jagger Admires Geese for Being “Very Experimental”](https://consequence.net/2026/06/mick-jagger-geese-the-rolling-stones/) - Consequence.net
+- [Davido drops first single of 2026, I Know Who I Be](https://punchng.com/davido-drops-first-single-of-2026-i-know-who-i-be/) - The Punch
+- [Doug Goldstein Dies: Longtime Guns N’ Roses Manager Who Saw The Band Through Success And Chaos Was 65](http://deadline.com/2026/06/doug-goldstein-dead-guns-n-roses-manager-1236968589/) - Deadline
+- [Bring Me The Horizon Premiere New Single & Music Video "Dehumanized" From Upcoming Re-Recorded Album "Count Your Blessings – Repented"](http://www.metalunderground.com/news/details.cfm?newsid=161629) - Metalunderground.com
+- [The HU Premiere New Single & Music Video "Grey Hun" From Upcoming New Album "Hun"](http://www.metalunderground.com/news/details.cfm?newsid=161626) - Metalunderground.com
+- [Keyon Harrold celebrates 100 years of Miles Davis at Carnegie Hall](https://www.npr.org/2026/06/26/nx-s1-5869532/jazz-night-in-america-keyon-harrold-miles-davis-carnegie-hall) - NPR
+- [Keyon Harrold celebrates 100 years of Miles Davis at Carnegie Hall - VPM](https://www.vpm.org/npr-news/2026-06-26/keyon-harrold-celebrates-100-years-of-miles-davis-at-carnegie-hall) - Vpm
+- [Keyon Harrold celebrates 100 years of Miles Davis at Carnegie Hall - KRVS Radio Acadie](https://www.krvs.org/npr-news/2026-06-26/keyon-harrold-celebrates-100-years-of-miles-davis-at-carnegie-hall) - Krvs
+- [Sound Waves: How Missy Elliott Became Hip-Hop’s Visual Vanguard, Put The Thing Down, Flipped It & Reversed It](https://bossip.com/4595403/missy-elliott-black-music-month/) - Bossip
