@@ -1,0 +1,24 @@
+# Sources for 2026-06-28 News Episode 
+- [Lorde Marks ‘Virgin’ Anniversary With 49 ‘Xrays’ Demos From the Album](http://www.rollingstone.com/music/music-news/lorde-virgin-anniversary-49-xrays-demos-1235585423/) - Rolling Stone
+- [Hatsune Miku, Vocaloid Producers and Mainstream Western Music Collide With the BEYOND BORDERs Project](https://www.animenewsnetwork.com/press-release/2026-06-27/hatsune-miku-vocaloid-producers-and-mainstream-western-music-collide-with-the-beyond-borders-project/.239009) - Anime News Network
+- [Dua Lipa still can't move into her London pad SIX years after buying it for £6.75M - as £3M mega renovations go at a snail's pace](https://www.dailymail.com/tvshowbiz/article-15931725/Dua-Lipa-husband-Callum-Turner-renting-6-75m-London-home-legal-battle.html) - Dailymail.com
+- [Metallica Reload Reissue Review: History Has Been Kind](https://bleedingcool.com/pop-culture/metallica-reload-reissue-review-history-has-been-kind/) - Bleeding Cool News
+- [Weezer on ‘The Gold Album,’ Viral Success of ‘Go Away’](http://www.rollingstone.com/music/music-features/weezer-interview-podcast-gold-album-rivers-cuomo-1235585555/) - Rolling Stone
+- [Weezer Previews Self-Titled 'Gold Album,' Out Aug. 21 Ahead of Tour - Rock Cellar Magazine](https://rockcellarmagazine.com/weezer-gold-album-new-album-listen-preview-tour-2026/) - Rockcellarmagazine
+- [Madonna lasă de înțeles că ar putea fi cap de afiș la Glastonbury și mărturisește că a fost geloasă pe Kylie Minogue](https://www.digi24.ro/magazin/timp-liber/showbiz/madonna-lasa-de-inteles-ca-ar-putea-fi-cap-de-afis-la-glastonbury-si-marturiseste-ca-a-fost-geloasa-pe-kylie-minogue-3835759) - Digi24.ro
+- [Madonna was 'jealous of Kylie' - and more things we learned in her Graham Norton interview - BBC](https://www.bbc.com/news/articles/cn07rpn0rkxo) - Bbc
+- [Grammy and Latin Grammy winner Carín León set for a big match at Inter Miami's stadium](https://abcnews.com/Entertainment/wireStory/grammy-latin-grammy-winner-carn-len-set-big-134277417) - Abcnews.com
+- [Grammy and Latin Grammy winner Carín León set for a big match at Inter Miami’s stadium - AP News](https://apnews.com/article/carin-leon-inter-miami-messi-beckham-17819f3919307060205207ea1781cbc2) - Apnews
+- [Grammy and Latin Grammy winner Carín León set for a big match at Inter Miami's stadium - Greenwich Time](https://www.greenwichtime.com/sports/article/grammy-and-latin-grammy-winner-car-n-le-n-set-22323523.php) - Greenwichtime
+- [Academy Of Country Music Awards Sets 2027 Date](http://deadline.com/2026/06/academy-of-country-music-awards-acms-2027-date-1236968825/) - Deadline
+- [Donald Trump's '90s Music Festival, Reduced To Just Vanilla Ice, Gets Rained Out](https://stereogum.com/2503641/donald-trumps-90s-music-festival-reduced-to-just-vanilla-ice-gets-rained-out/news) - Stereogum
+- [Vanilla Ice’s Concert at Freedom 250 Canceled Due to Weather](http://www.rollingstone.com/music/music-news/vanilla-ice-concert-freedom-250-canceled-weather-1235585451/) - Rolling Stone
+- [Vanilla Ice, One of the Few Freedom 250 Event Holdouts, Sees Concert Canceled](https://www.thewrap.com/creative-content/music/vanilla-ice-freedom-250-concert-canceled/) - TheWrap
+- [Vanilla Ice’s Great American State Fair Concert Gets Washed Out](https://consequence.net/2026/06/vanilla-ices-freedom-250-show-gets-washed-out/) - Consequence.net
+- [Trump’s Freedom 250 cancels Vanilla Ice concert two hours before showtime - Yahoo](https://www.yahoo.com/news/politics/articles/trump-freedom-250-cancels-vanilla-015020634.html) - Yahoo
+- [Donald Trump's Freedom 250 faces fresh humiliation as Vanilla Ice concert canceled - The Mirror US](https://www.themirror.com/entertainment/breaking-vanilla-ice-trump-canceled-1908287) - Themirror
+- [13 Best Death Metal Bands From New York](https://loudwire.com/best-death-metal-bands-new-york/) - Loudwire
+- [Safety Trance – sacrificio (2026)](https://exystence.net/blog/2026/06/28/safety-trance-sacrificio-2026/) - Exystence.net
+- [We spent the day with Sophia Stel](https://www.dazeddigital.com/music/article/70174/1/we-spent-the-day-with-sophia-stel?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=we-spent-the-day-with-sophia-stel) - Dazed
+- [Aitana ft. Nicki Nicole – “Formentera” single cover](https://fontsinuse.com/uses/78214/aitana-ft-nicki-nicole-formentera-single-cove) - Fontsinuse.com
+- [Michael Bublé surprises fans with intimate Dublin gig](https://www.rte.ie/entertainment/2026/0627/1580602-michael-buble-surprises-fans-with-intimate-dublin-gig/) - RTE
