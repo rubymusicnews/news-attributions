@@ -1,0 +1,31 @@
+# Sources for 2026-06-29 News Episode 
+- [BTS’s “ARIRANG” Becomes 1st Album By Korean Artist To Spend 12 Weeks In Top 10 Of Billboard 200](http://www.soompi.com/article/1850900wpp/btss-arirang-becomes-1st-album-by-korean-artist-to-spend-12-weeks-in-top-10-of-billboard-200) - soompi
+- [Muse Wow Us Into Submission With Their 10th Album](http://www.rollingstone.com/music/music-album-reviews/muse-wow-signal-review-1235583097/) - Rolling Stone
+- [Alicia Keys Earns A New Chart Hit — With Some Help From The Knicks](https://www.forbes.com/sites/hughmcintyre/2026/06/28/alicia-keys-earns-a-new-chart-hit---with-some-help-from-the-knicks/) - Forbes
+- [Madonna Says AI Is “Opposite Of Making Art,” Prefers “Connecting To Nature”](http://deadline.com/2026/06/madonna-ai-opposite-making-art-1236969203/) - Deadline
+- [Madonna Says Using AI Is the ‘Opposite of Making Art’ - Variety Australia](https://au.variety.com/2026/music/news/madonna-ai-opposite-of-making-art-38080/) - Variety
+- [The Top K-Pop Albums & Songs Of 2022](https://web.archive.org/web/20221208063926/https://www.nylon.com/entertainment/best-kpop-albums-songs-2022) - Archive.org
+- [Katy Perry is forced to cancel concert just HOURS before taking to the stage: 'No choice'](https://www.dailymail.com/tvshowbiz/article-15935477/katy-perry-cancels-concert-hours-stage-no-choice.html) - Dailymail.com
+- [Katy Perry’s Festival Set Canceled Over Dangerous Weather Conditions - TMZ](https://www.tmz.com/2026/06/28/katy-perry-concert-canceled/) - Tmz
+- [Clive Davis’ Pre-Grammy Gala Was the Last Great Music-Industry Party](http://www.rollingstone.com/music/music-features/clive-davis-pre-grammy-gala-last-great-music-industry-party-1235585594/) - Rolling Stone
+- [Clive Davis helped build the Grammy Museum. Its president says 'his legacy is not going to be replicated' - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-06-22/clive-davis-helped-build-grammy-museum-its-president-says-his-legacy-is-not-going-to-be-replicated) - Latimes
+- [Clive Davis, music industry starmaker, has died at 94 - AP News](https://apnews.com/article/clive-davis-obituary-music-mogul-45c9f57f7f764cbf815c9747cbff94e3) - Apnews
+- [Clive Davis, music industry starmaker, has died at 94 - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/clive-davis-music-industry-starmaker-has-died-22315153.php) - Sfchronicle
+- [Clipse Reflects on The Neptunes’ Breakup](https://www.theroot.com/clipse-reflects-on-the-neptunes-breakup-2000113213) - The Root
+- [Lizzo responds after new album fails to crack Top 100 charts: ‘That was soul-crushing’](https://www.the-independent.com/arts-entertainment/music/news/lizzo-bitch-new-album-charts-b3004523.html) - The-independent.com
+- [Bruce Springsteen – Amerant Bank Arena, Sunrise, FL, 04.23.26 (2026)](https://exystence.net/blog/2026/06/28/bruce-springsteen-amerant-bank-arena-sunrise-fl-04-23-26-2026/) - Exystence.net
+- [Suno launches Spark incubator program to feed independent artists to its AI machine](https://www.theverge.com/ai-artificial-intelligence/958801/suno-launches-spark-incubator-program-to-feed-independent-artists-to-its-ai-machine) - The Verge
+- [AI Music Platform Suno Reveals Incubator Program for Indie Artists - The Hollywood Reporter](https://www.hollywoodreporter.com/music/music-industry-news/suno-reveals-incubator-program-for-indie-artists-1236630427/) - Hollywoodreporter
+- [2026 BET Awards Winners: The Full List (Updating)](https://www.vibe.com/news/entertainment/bet-awards-2026-complete-winners-list-1235177790/) - Vibe
+- [BET Awards 2026: Check Out Our Viewing Guide to Tonight's Big Event](https://bleedingcool.com/tv/bet-awards-2026-check-out-our-viewing-guide-to-tonights-big-event/) - Bleeding Cool News
+- [BET Awards 2026: Complete Winners List (Live Updates)](https://www.eonline.com/news/1432369/bet-awards-2026-winners-list) - Eonline.com
+- [BET Awards 2026 Red Carpet Pre-Show: The Countdown Begins Now!](https://bleedingcool.com/tv/bet-awards-2026-red-carpet-pre-show-the-countdown-begins-now/) - Bleeding Cool News
+- [BET Awards 2026 winners list - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/28/bet-awards-2026-winners-list/90717671007/) - Usatoday
+- [Here Are the Winners of the 2026 BET Awards: Full List](https://www.billboard.com/lists/2026-bet-awards-winners-list/) - Billboard
+- [BET Awards 2026: The Complete Winners List](https://www.rollingstone.com/music/music-news/bet-awards-2026-complete-winners-list-1235581172/) - Rollingstone
+- [Alan Jackson Final Concert Setlist: Every Song He Played in Nashville](http://www.billboard.com/lists/alan-jackson-final-concert-setlist-2026-songs/) - Billboard
+- [Inside country legend Alan Jackson's triumphant finale concert...](https://apnews.com/article/alan-jackson-final-concert-george-strait-72ebb2f87fdca2c2ae8a7308278c9b9b) - Associated Press
+- [Inside country legend Alan Jackson's triumphant finale concert](https://abcnews.com/Entertainment/wireStory/inside-country-legend-alan-jacksons-triumphant-finale-concert-134285594) - Abcnews.com
+- [Inside country icon Alan Jackson’s triumphant finale concert](https://pagesix.com/2026/06/28/entertainment/inside-country-icon-alan-jacksons-triumphant-finale-concert-as-superstar-hangs-up-his-hat-in-nashville/) - Page Six
+- [Inside country legend Alan Jackson's triumphant finale concert](https://www.ksat.com/entertainment/2026/06/28/inside-country-legend-alan-jacksons-triumphant-finale-concert/) - KSAT San Antonio
+- [A Deep Dive Into the 1967 Recording of Pink Floyd’s Debut Album ‘The Piper at the Gates of Dawn’](https://laughingsquid.com/pink-floyd-piper-at-the-gates-of-dawn/) - Laughingsquid.com
