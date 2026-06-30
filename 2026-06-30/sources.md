@@ -1,0 +1,29 @@
+# Sources for 2026-06-30 News Episode 
+- [BTS Ties Rihanna’s Sales Record](https://www.forbes.com/sites/hughmcintyre/2026/06/29/bts-ties-rihannas-sales-record/) - Forbes
+- [Walton Goggins Plays Ultimate Cool Guy in the Strokes ‘Going Shopping’ Video](http://www.rollingstone.com/music/music-news/walton-goggins-the-strokes-music-video-going-shopping-1235585843/) - Rolling Stone
+- [BIGHIT MUSIC Provides Update On Legal Measures To Protect CORTIS’s Rights And Privacy](http://www.soompi.com/article/1851112wpp/bighit-music-provides-update-on-legal-measures-to-protect-cortiss-rights-and-privacy) - soompi
+- [Lauryn Hill surprises fans with rare performance at BET Awards show](https://www.the-independent.com/arts-entertainment/music/news/lauryn-hill-bet-awards-performance-b3004858.html) - The-independent.com
+- [Teyana Taylor's tears and Lauryn Hill tribute steal show at BET Awards](https://www.bbc.co.uk/news/articles/cpd3y6lv819o) - BBC News
+- [3 Songs You Might Not Know Lauryn Hill Wrote](https://www.mentalfloss.com/entertainment/music/songs-you-might-not-know-lauryn-hill-wrote) - Mental Floss
+- [Lauryn Hill Honored, Performs at BET Awards](http://www.thehollywoodgossip.com/2026/06/lauryn-hill-honored-lifetime-bet-awards/) - The Hollywood Gossip
+- [Watch Ms. Lauryn Hill Tribute With SZA, Doechii, and Nas at BET Awards 2026 - Pitchfork](https://pitchfork.com/news/watch-ms-lauryn-hill-tribute-with-sza-doechii-and-nas-at-bet-awards-2026/) - Pitchfork
+- [Lauryn Hill honored, Janet Jackson stuns Teyana Taylor and Druski makes history at BET Awards - NBC News](https://www.nbcnews.com/news/us-news/lauryn-hill-honored-janet-jackson-stuns-teyana-taylor-druski-makes-his-rcna352245) - Nbcnews
+- [Photo highlights of the BET Awards - AP News](https://apnews.com/photo-gallery/photos-bet-awards-f1809410e34624bd363ef048684212ee) - Apnews
+- [5 memorable moments from the 2026 BET Awards: From Cardi B to Lauryn Hill - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-06-29/2026-bet-awards-memorable-moments-card-b-laryn-hill-sza-doechii) - Latimes
+- [French Montana, Max B, and Rick Ross Perform at BET Awards 2026](http://www.rollingstone.com/music/music-news/rick-ross-performance-bet-awards-2026-1235582446/) - Rolling Stone
+- [BET Awards 2026: Performers, Nominees, & How To Watch - HotNewHipHop](https://www.hotnewhiphop.com/999687-bet-awards-2026-performers-nominees-how-to-watch) - Hotnewhiphop
+- [Alicia Keys Honors Clive Davis at Funeral: ‘You Didn’t Just Sign an Artist. You Recognized the Soul’](http://www.rollingstone.com/music/music-news/alicia-keys-eulogy-clive-davis-read-full-speech-1235585900/) - Rolling Stone
+- [A-listers like Alicia Keys, Bruce Springsteen pay tribute to legendary mogul Clive Davis: ‘He changed my life forever’ - New York Post](https://nypost.com/2026/06/29/us-news/clive-davis-nyc-funeral-draws-a-listers-bruce-springsteen-alicia-keys/) - Nypost
+- [Star-maker Clive Davis honored at funeral that draws Bruce Springsteen, Dionne Warwick and others - ABC News - Breaking News, Latest News and Videos](https://abcnews.com/Entertainment/wireStory/star-maker-clive-davis-honored-funeral-watch-134301869) - Abcnews
+- [Clive Davis helped launch or shape the careers of these music stars, across genres and decades - AP News](https://apnews.com/article/clive-davis-music-star-careers-singer-influence-26f348bd5793aaa2d5f331f21f73ad34) - Apnews
+- [Megadeth Premiere Live Performance Video For "Puppet Parade"](http://www.metalunderground.com/news/details.cfm?newsid=161639) - Metalunderground.com
+- [P.J. Morton showcases pop and gospel influences on new album](https://www.npr.org/2026/06/29/nx-s1-5847029/p-j-morton-showcases-pop-and-gospel-influences-on-new-album) - NPR
+- [The Opener: ElGrandeToto wants to be “the greatest Arab artist”](https://www.thefader.com/2026/06/29/the-opener-elgrandetoto-wants-to-be-the-greatest-arab-artist) - The FADER
+- [ElGrandeToto Returns to His Most Rebellious Self on SALGOAT (Vol. 2) - Scoop Empire](https://scoopempire.com/elgrandetoto-returns-to-his-most-rebellious-self-on-salgoat-vol-2/) - Scoopempire
+- [Legendary Cellist Pablo Casals, at Age 93, on Creative Vitality and How Working with Love Prolongs Your Life](https://www.themarginalian.org/2026/06/29/pablo-casals-work-age/) - Themarginalian.org
+- [Beth Orton Demands Your Attention on ‘The Ground Above’](https://www.spinmagazine.com/2026/06/beth-orton-demands-your-attention-on-the-ground-above/) - Spinmagazine.com
+- [5 Questions as My Chemical Romance Restart 'Black Parade' Tour](https://loudwire.com/my-chemical-romance-black-parade-tour-questions/) - Loudwire
+- [Sailor Honeymoon announce debut LP The Worst of Sailor Honeymoon and share new single](https://www.thelineofbestfit.com/news/sailor-honeymoon-announce-debut-lp-the-worst-of-sailor-honeymoon-and-share-new-single) - Thelineofbestfit.com
+- [Is AI Helping or Hurting Black Music? SZA, Flo Milli, and More Speak to The Root](https://www.theroot.com/is-ai-helping-or-hurting-black-music-sza-flo-milli-a-2000113457) - The Root
+- [SZA, Kenneth Blume Decry Use of Their Songs in AI Training Data Sets - Pitchfork](https://pitchfork.com/news/sza-kenneth-blume-decry-use-of-their-songs-in-ai-training-data-sets/) - Pitchfork
+- [Music in training sets is the new Spotify Wrapped: how genAI uses your music - CDM Create Digital Music](https://cdm.link/music-in-training-sets-is-the-new-spotify-wrapped-how-genai-uses-your-music/) - Cdm
