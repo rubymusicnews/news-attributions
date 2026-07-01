@@ -1,0 +1,27 @@
+# Sources for 2026-07-01 News Episode 
+- [Understanding Latin America’s Music Market: Platforms, Fans, and Growth Opportunities](http://musically.com/2026/06/30/understanding-latin-americas-music-market-platforms-fans-and-growth-opportunities/) - Music Ally
+- [Ariana Grande’s Album Reaches A Milestone Shortly Before Her New Project Drops](https://www.forbes.com/sites/hughmcintyre/2026/06/30/ariana-grandes-album-reaches-a-milestone-shortly-before-her-new-project-drops/) - Forbes
+- [Ella Langley And Taylor Swift Make Chart History Together](https://www.forbes.com/sites/hughmcintyre/2026/06/30/ella-langley-and-taylor-swift-make-chart-history-together/) - Forbes
+- [Katseye Is Ready to Talk About Manon, Coachella, and Everything Else](https://www.vanityfair.com/story/katseye) - Vanity Fair
+- [Katseye performs ‘Golden’ with ‘K-Pop Demon Hunters’ at Coachella - Los Angeles Times](https://www.latimes.com/0000019d-7aa6-d741-a9fd-fbae83c50000-123) - Latimes
+- [KATSEYE Performs ‘Golden’ At Coachella with HUNTR/X voices - Forbes](https://www.forbes.com/sites/hannahabraham/2026/04/11/coachella-2026-katseye-performs-golden-with-ejae-audrey-nuna-and-rei-ami/) - Forbes
+- [Katseye Says the Netflix Docuseries Was Only “a Percentage” of the Story - Allure](https://www.allure.com/story/katseye-cover-interview) - Allure
+- [Madonna preps livestream and pop-ups with TikTok and iHeartRadio](http://musically.com/2026/06/30/madonna-preps-livestream-and-pop-ups-with-tiktok-and-iheartradio/) - Music Ally
+- [TikTok, iHeartMedia Embrace 'Phygital' For Upcoming Madonna Album 06/30/2026 - MediaPost](https://www.mediapost.com/publications/article/416184/tiktok-iheartmedia-embrace-phygital-for-upcomin.html) - Mediapost
+- [Fred again.. soundtracks Dior menswear show in Paris, featuring unreleased music](https://djmag.com/news/fred-again-soundtracks-dior-menswear-show-paris-featuring-unreleased-music) - DJ Mag
+- [Dior mashes up laid-back ‘indie sleaze’ with elegant luxury - The Guardian](https://www.theguardian.com/fashion/2026/jun/24/dior-mashes-up-laid-back-indie-sleaze-elegant-luxury-jonathan-anderson) - Theguardian
+- [Dior Homme SS27: How Jonathan Anderson is redefining masculine refinement - fashionunited.uk](https://fashionunited.uk/news/fashion/dior-homme-ss27-how-jonathan-anderson-is-redefining-masculine-refinement/2026062488853) - Fashionunited
+- [What Married Life Means for Taylor Swift’s Music & Recent ‘Debut TV’ Clues](https://extratv.com/2026/06/30/what-married-life-means-for-taylor-swift-s-music-and-recent-debut-tv-clues/) - Extra
+- [Ariana Grande reschedules THREE tour dates as fans rage about non-refundable flights and hotels](https://www.dailymail.com/tvshowbiz/article-15942301/Ariana-Grande-reschedules-THREE-tour-dates-fans-rage-Eternal-Sunshine.html) - Dailymail.com
+- [Ariana Grande Reschedules Eternal Sunshine Tour Shows Over Safety Concerns - E! News](https://www.eonline.com/news/1433480/ariana-grande-reschedules-eternal-sunshine-tour-safety-concerns) - Eonline
+- [2 Ariana Grande Boston shows rescheduled, TD Garden says - WMUR](https://www.wmur.com/article/ariana-grande-boston-shows/71780314) - Wmur
+- [Ariana Grande makes ‘unfortunate’ announcement regarding ‘Eternal Sunshine’ tour: ‘So sorry’ - Page Six](https://pagesix.com/2026/06/29/entertainment/ariana-grande-makes-unfortunate-announcement-regarding-eternal-sunshine-tour/) - Pagesix
+- [Deep Purple star happy for his music to be used by AI ‘with consent’](https://www.the-independent.com/arts-entertainment/music/news/deep-purple-ian-paice-ai-b3006010.html) - The-independent.com
+- [Deep Purple star happy for his music to be used by AI ‘with consent’](https://uk.news.yahoo.com/deep-purple-star-happy-music-152226306.html) - Yahoo
+- [Deep Purple’s Ian Paice happy for his drumming to be used by AI ‘with consent’](https://www.surreycomet.co.uk/leisure/national/26241807.deep-purples-ian-paice-happy-drumming-used-ai-with-consent/) - Surreycomet
+- [“ACON 2026” Unveils Special Cover Stages By Sung Han Bin, CLOSE YOUR EYES, MEOVV, And More](http://www.soompi.com/article/1851418wpp/acon-2026-unveils-special-cover-stages-by-sung-han-bin-close-your-eyes-meovv-and-more) - soompi
+- [Watermelon Pictures Takes North America For Umm Kulthum Biopic ‘El Sett’](http://deadline.com/2026/06/watermelon-pictures-america-umm-kulthum-biopic-el-sett-1236970953/) - Deadline
+- [Quote of the day by Bon Jovi: ‘It’s okay to be a little broken. Everybody’s broken in this life’, what American rock band’s song teaches about healing and self-acceptance](https://economictimes.indiatimes.com/magazines/panache/quote-of-the-day-by-bon-jovi-its-okay-to-be-a-little-broken-everybodys-broken-in-this-life-what-american-rock-bands-song-teaches-about-healing-and-self-acceptance/articleshow/132089618.cms) - The Times of India
+- [Explicit Music Is on a Rapid Decline: Report](https://consequence.net/2026/06/explicit-music-is-declining/) - Consequence.net
+- [Deep Purple – SPLAT! (2026)](https://exystence.net/blog/2026/07/01/deep-purple-splat-2026/) - Exystence.net
+- [Ian Gillan Tells the Story Behind Deep Purple’s New Single - Newsweek](https://www.newsweek.com/entertainment/music/ian-gillan-tells-the-story-behind-deep-purples-new-single-12115905) - Newsweek
