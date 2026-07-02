@@ -1,0 +1,31 @@
+# Sources for 2026-07-02 News Episode 
+- [Olivia Rodrigo’s New Album Refuses To Budge From No. 1 On Every Chart](https://www.forbes.com/sites/hughmcintyre/2026/07/01/olivia-rodrigos-new-album-refuses-to-budge-from-no-1-on-every-chart/) - Forbes
+- [Olivia Rodrigo Hits No. 1 On A Chart She’s Never Ruled Before - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/06/28/olivia-rodrigo-hits-no-1-on-a-chart-shes-never-ruled-before/) - Forbes
+- [Village People lead singer and founding member Victor Willis dies at the age of 75 after a 'short but aggressive illness'](https://www.dailymail.com/tvshowbiz/article-15944033/Village-People-lead-singer-Victor-Willis-dies-illness.html) - Dailymail.com
+- [Village People Singer Victor Willis Dies at 74](https://pitchfork.com/news/village-people-singer-victor-willis-dies-at-74/) - Pitchfork
+- [Village People’s Victor Willis, The Voice Of ‘Y.M.C.A.,’ Dies At 74](https://www.spinmagazine.com/2026/07/village-people-victor-willis-obit/) - Spinmagazine.com
+- [Victor Willis, Village People Lead Singer, Dies at 74 After ‘Aggressive Illness’](https://extratv.com/2026/07/01/victor-willis-village-people-obituary/) - Extra
+- [Village People frontman Victor Willis has died aged 74](https://www.thejournal.ie/victor-willis-village-people-7087102-Jul2026/) - TheJournal.ie
+- [Victor Willis, leadzanger van de Village People, overleden op 70-jarige leeftijd](https://newsmonkey.be/victor-willis-leadzanger-van-de-village-people-overlijdt-op-70-jarige-leeftijd/) - Newsmonkey.be
+- [Victor Willis death: How did Village People lead singer die? From 'Y.M.C.A.' hit to regular fixtures for Donald Trump rally, all about Texas-born music legend](https://economictimes.indiatimes.com/news/international/us/victor-willis-cause-of-death-reason-village-people-y-m-c-a-donald-trump-texas-born-musician/articleshow/132114817.cms) - The Times of India
+- [Remembering Victor Willis: How He Wrote the Disco Anthem “Y.M.C.A.”](https://blogs.loc.gov/loc/2026/07/remembering-victor-willis-how-he-wrote-the-disco-anthem-y-m-c-a/) - Loc.gov
+- [‘God Bless Him!’ Trump mourns death of Village People singer Victor Willis, co-writer of ‘YMCA’](https://www.wnd.com/2026/07/god-bless-him-trump-mourns-death-village-people/) - Wnd.com
+- [Amsterdam Dance Event Has Announced The First Wave Of Artists For ADE 2026](https://www.attackmagazine.com/news/amsterdam-dance-event-has-announced-the-first-wave-of-artists-for-ade-2026/) - Attackmagazine.com
+- [Snow Patrol Begins BMG Chapter With Kylie Minogue](https://www.spinmagazine.com/2026/07/snow-patrol-kylie-minogue/) - Spinmagazine.com
+- [Charli XCX explains why she does not play up her Indian heritage](https://www.the-independent.com/arts-entertainment/music/news/charli-xcx-indian-heritage-mixed-race-b3006417.html) - The-independent.com
+- [Deftones Bring Multiple Fan-Favorite Albums Back To The Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/01/deftones-bring-multiple-fan-favorite-albums-back-to-the-charts/) - Forbes
+- [Von den Beatles bis zu Michael Jackson – die vergessenen Debütalben der großen Stars](https://www.welt.de/kultur/article6a2e29966bb5c7fe2e1c5876/unbekannte-alben-von-den-beatles-bis-zu-michael-jackson-die-vergessenen-debuetalben-der-grossen-stars.html) - DIE WELT
+- [Die 16 vergessenen Debütalben großer Musiker](https://www.welt.de/kultur/article6a2e29966bb5c7fe2e1c5876/unbekannte-alben-die-16-vergessenen-debuetalben-grosser-musiker.html) - DIE WELT
+- [Madeon Embraces Creative Risk on Victory: “The One Sin of an Artist Is to Be Boring”](https://dancingastronaut.com/2026/07/madeon-embraces-creative-risk-on-victory-the-one-sin-of-an-artist-is-to-be-boring/) - Dancing Astronaut
+- [Spotify launches animated ode to concert-going obsessives](https://www.creativereview.co.uk/spotify-great-lengths-jocelyn-charles-animated-film-reserved/) - Creative Review
+- [Spotify Lures Fans to Reserved With a Promise: No More Extreme Lengths Necessary - ADWEEK](https://www.adweek.com/creativity/spotify-lures-fans-to-reserved-with-a-promise-no-more-extreme-lengths-necessary/) - Adweek
+- [Spotify’s reserved ticket sales to music superfans are now going live - TechCrunch](https://techcrunch.com/2026/06/18/spotifys-reserved-ticket-sales-to-musics-superfans-are-now-going-live/) - Techcrunch
+- [Spotify Will Now Reserve Tickets for Superfans Before General Sales Can Skyrocket in Price - Gizmodo](https://gizmodo.com/spotify-will-now-reserve-tickets-for-superfans-before-general-sales-can-skyrocket-in-price-2000773888) - Gizmodo
+- [All of Taylor Swift’s Lyrics About Getting Married, From ‘Love Story’ to ‘Honey’](https://www.today.com/popculture/music/taylor-swift-wedding-lyrics-marriage-travis-kelce-rcna352390) - TODAY
+- [Taylor Swift's new married name revealed by friends: 'Very traditional' singer has 'meaningful' reason for change](https://www.dailymail.com/tvshowbiz/article-14799389/taylor-swift-surname-change-married-travis-kelce-wedding.html) - Dailymail.com
+- [Hidden face in the crowd that proves the TRUTH about Taylor Swift's MSG wedding to Travis Kelce: As singer is hit by last-minute 'jitters' and can't even sleep, her private jet touches down... and her farcical 'bridezilla' behavior is exposed](https://www.dailymail.com/tvshowbiz/article-15942007/taylor-swift-travis-kelce-wedding-proof-pictures.html) - Dailymail.com
+- [Taylor Swift and Travis Kelce wedding rumors swirl: Everything we know about reported MSG ceremony](https://www.cbssports.com/nfl/news/taylor-swift-travis-kelce-wedding-rumors-madison-square-garden/) - CBS Sports
+- [Maroon 5 at BST Hyde Park 2026: set times, last-minute tickets, setlist and what you need to know](https://www.timeout.com/london/news/maroon-5-london-bst-hyde-park-set-times-tickets-guide-070126) - Time Out
+- [How The Mars Volta Built A Live LP With Its Fans](https://www.spinmagazine.com/2026/07/the-mars-volta-live-album/) - Spinmagazine.com
+- [Haircut 100’s New Album Is Shear Brilliance](https://www.spinmagazine.com/2026/07/haircut-100s-new-album-is-shear-brilliance/) - Spinmagazine.com
+- [Ela Minus and Nick León join forces on new EP, qué les pasó a mis amigos?](https://www.thelineofbestfit.com/news/ela-minus-and-nick-leon-join-forces-on-new-ep-que-les-paso-a-mis-amigos) - Thelineofbestfit.com
