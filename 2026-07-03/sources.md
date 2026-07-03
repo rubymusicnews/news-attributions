@@ -1,0 +1,20 @@
+# Sources for 2026-07-03 News Episode 
+- [Scale Your Payouts, Match Your Ambition](http://musically.com/2026/07/02/scale-your-payouts-match-your-ambition/) - Music Ally
+- [Katy Perry Soars To A New Career Chart Peak](https://www.forbes.com/sites/hughmcintyre/2026/07/02/katy-perry-soars-to-a-new-career-chart-peak/) - Forbes
+- [Noah Kahan’s Manager on Building a Slow-Burn Success Story](http://www.rollingstone.com/music/music-features/noah-kahan-manager-drew-simmons-interview-1235586441/) - Rolling Stone
+- [Dua Lipa Mounts A Chart Comeback With Multiple Hits](https://www.forbes.com/sites/hughmcintyre/2026/07/02/dua-lipa-mounts-a-chart-comeback-with-multiple-hits/) - Forbes
+- [Stray Kids Score Another Top 10 Sales Smash In America](https://www.forbes.com/sites/hughmcintyre/2026/07/02/stray-kids-score-another-top-10-sales-smash-in-america/) - Forbes
+- [Madonna’s 10 most controversial moments, ranked](https://www.dazeddigital.com/music/article/70576/1/madonnas-10-most-controversial-moments-sex-violence-catholic-church-blasphemy?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=madonna-s-10-most-controversial-moments-ranked) - Dazed
+- [Bad Bunny fans go wild for his transformation from edgy skinhead to chiselled superstar as he takes the UK by storm with sell-out shows](https://www.dailymail.com/tvshowbiz/article-15947081/Bad-Bunny-fans-wild-transformation-sell-shows.html) - Dailymail.com
+- [Bad Bunny: Latin star lights up London with history-making stadium show - BBC](https://www.bbc.com/news/articles/c2dyrk56dg9o) - Bbc
+- [Bad Bunny’s London show proves he is selling more than just hits - Ynetnews](https://www.ynetnews.com/culture/article/rydmy9bqfg) - Ynetnews
+- [Bad Bunny review – dynamic Latin superstar hosts thrilling party - The Guardian](https://www.theguardian.com/music/2026/jun/28/bad-bunny-review-tottenham-hotspur-stadium) - Theguardian
+- [Alex Warren Ties One Of The Biggest Pop Hits Of All Time](https://www.forbes.com/sites/hughmcintyre/2026/07/02/alex-warren-ties-one-of-the-biggest-pop-hits-of-all-time/) - Forbes
+- [Lost trove of toothless and chubby cheeked Taylor Swift pictures: See unrecognizable star before transforming into global pop princess](https://www.dailymail.com/tvshowbiz/article-15945163/Taylor-Swift-lost-photos-unrecognizable.html) - Dailymail.com
+- [24 Celebrity Faces Before And After Fame That’ll Instantly Make You Do A Double Take - BuzzFeed](https://www.buzzfeed.com/michelelbird/celebs-before-and-after-fame) - Buzzfeed
+- [NPR Music+: “Such Great Heights” by The Postal Service](https://www.npr.org/2026/07/02/nx-s1-5876257/npr-music-such-great-heights-by-the-postal-service) - NPR
+- [PS Hitsquad - Life on License](https://djmag.com/reviews/ps-hitsquad-life-license) - DJ Mag
+- [George Strait And Neil Diamond Surge On Billboard Charts With Old Greatest Hit Albums](https://dailycaller.com/2026/07/02/george-strait-neil-diamond-surge-billboard-200-greatest-hits/) - The Daily Caller
+- [‘Don’t Mess With a Comedic Rapper’: How Afroman Became a Free-Speech Hero](http://www.rollingstone.com/music/music-features/afroman-trial-free-speech-hero-interview-1235577509/) - Rolling Stone
+- [Juror in viral Afroman trial can't believe cops even bothered with the case - A.V. Club](https://www.avclub.com/afroman-juror-speaks-out) - Avclub
+- [Nashville Singer Crystal Rose Likes to Make Music on the ‘Cloudy’ Side](http://www.rollingstone.com/music/music-features/crystal-rose-mad-black-woman-artist-to-watch-1235587901/) - Rolling Stone
