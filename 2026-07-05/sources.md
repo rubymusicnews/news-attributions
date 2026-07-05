@@ -1,0 +1,32 @@
+# Sources for 2026-07-05 News Episode 
+- [Beyonce sends fans into a frenzy as she drops surprise new song for the first time in two years](https://www.dailymail.com/tvshowbiz/article-15953299/Beyonce-sends-fans-frenzy-drops-surprise-new-song-time-two-years.html) - Dailymail.com
+- [Beyoncé Delivers Fourth of July Fireworks With Surprise New Song ‘Morning Dew (Donk)’](http://www.rollingstone.com/music/music-news/beyonce-surprise-new-song-morning-dew-donk-bday-reissue-1235589184/) - Rolling Stone
+- [Beyoncé releases first new song in two years](https://www.rte.ie/entertainment/2026/0704/1581778-beyonce-releases-first-new-song-in-two-years/) - RTE
+- [Beyoncé releases surprise track, 'Morning Dew (Donk)' for Fourth of July](https://www.inquirer.com/entertainment/music/beyonce-new-song-morning-dew-donk-act-iii-20260704.html) - The Philadelphia Inquirer
+- [Beyoncé releases surprise new track for Fourth of July weekend - The Guardian](https://www.theguardian.com/music/2026/jul/04/beyonce-releases-surprise-new-track-for-fourth-of-july-weekend) - Theguardian
+- [Beyoncé Drops Unreleased Song ‘Morning Dew (Donk)’ Ahead of ‘B’Day’ 20th Anniversary Reissue - Variety](https://variety.com/2026/music/news/beyonce-morning-dew-donk-bday-20th-anniversary-reissue-1236801739/) - Variety
+- [Beyoncé Surprise-Releases New Song “Morning Dew (Donk)” - Pitchfork](https://pitchfork.com/story/listen-to-beyonce-new-song-morning-dew-donk-bday-anniversary/) - Pitchfork
+- [Beyoncé Revisits Her Self-Titled Era with ‘Morning Dew (Donk)’ - Vulture](https://www.vulture.com/article/beyonce-morning-dew-donk-new-song.html) - Vulture
+- [Beyoncé surprises fans with new single 'Morning Dew (Donk)' - USA Today](https://www.usatoday.com/story/entertainment/music/2026/07/04/beyonce-drops-morning-dew-donk-amid-album-rumors/90801760007/) - Usatoday
+- [Michael Jackson’s ‘Thriller’ Single Soars To A New Chart High](https://www.forbes.com/sites/hughmcintyre/2026/07/04/michael-jacksons-thriller-single-soars-to-a-new-chart-high/) - Forbes
+- [“When the kings of metal knuckle down, they deserve their crowns”: Metallica bring legendary songs, incredible support acts and big balls to night one of their London takeover](https://www.loudersound.com/reviews/metallica-london-stadium-night-one-july-2026-review) - Louder
+- [EXCLUSIVE: Aging Madonna, 67, 'Refused to Be Placed into Legends Slot at Glastonbury' As She 'Thinks It's Reserved for Grannies'](https://radaronline.com/p/madonna-refused-glastonbury-legends-slot/) - Radaronline.com
+- [Madonna was 'jealous of Kylie' - and more things we learned in her Graham Norton interview - BBC](https://www.bbc.com/news/articles/cn07rpn0rkxo) - Bbc
+- [Emotional Harry Styles ends his record-breaking 12-night Wembley residency with tribute to One Direction as Liam Payne's parents watch on](https://www.dailymail.com/tvshowbiz/article-15953429/Emotional-Harry-Styles-ends-record-breaking-12-night-Wembley-residency-tribute-One-Direction-Liam-Paynes-parents-watch-on.html) - Dailymail.com
+- [Harry Styles fans spot tribute to ex Taylor Swift as he performs his final Wembley gig on her wedding day](https://www.dailymail.com/tvshowbiz/article-15952807/Harry-Styles-tribute-Taylor-Swift-Wembley-wedding.html) - Dailymail.com
+- [Meet $tarface: Tyga Trades 808s for Synths in an '80s World](http://www.billboard.com/music/rb-hip-hop/tyga-unveils-starface-alter-ego-10-track-project-1236287676/) - Billboard
+- [Maná to Perform at Halftime of Mexico-England World Cup Match](http://www.billboard.com/music/latin/mana-halftime-show-mexico-vs-england-world-cup-2026-1236287830/) - Billboard
+- [RAYE helps launch Montreux Jazz Festival with surprise guests](https://www.the-independent.com/arts-entertainment/music/news/raye-montreux-jazz-festival-2026-mark-ronson-alicia-keys-b3008910.html) - The-independent.com
+- [E' online il teaser del documentario sulla reunion degli Oasis, nelle sale a settembre](https://www.ansa.it/sito/notizie/cultura/musica/2026/07/04/e-online-il-teaser-del-documentario-sulla-reunion-degli-oasis-nelle-sale_c33594f0-b437-4b5a-9136-3e24b6c37b21.html) - ANSA.it
+- [E' online il teaser del documentario sulla reunion degli Oasis, nelle sale a settembre](https://www.ansa.it/sito/notizie/cultura/cinema/2026/07/04/e-online-il-teaser-del-documentario-sulla-reunion-degli-oasis-nelle-sale_291f3a86-a376-40d4-99fe-d7287c095cd9.html) - ANSA.it
+- [E' online il teaser del documentario sulla reunion degli Oasis, nelle sale a settembre](https://www.ansa.it/sito/notizie/cultura/2026/07/04/e-online-il-teaser-del-documentario-sulla-reunion-degli-oasis-nelle-sale_469ee3cd-b11c-4cf0-979f-0f0323249946.html) - ANSA.it
+- [Oasis Tour Documentary to Release in Imax and Movie Theaters Before Disney+ Launch - Variety](https://variety.com/2026/film/global/oasis-tour-doc-release-imax-and-movie-theaters-disney-1236741639/) - Variety
+- [Oasis Tour Documentary to Release in Imax and Movie Theatres Before Disney+ Launch - Variety Australia](https://au.variety.com/2026/film/news/oasis-tour-doc-release-imax-and-movie-theaters-disney-36376/) - Variety
+- [Oasis documentary to show first Gallagher brothers interview in 25 years - BBC](https://www.bbc.com/news/articles/c0q2n5e20xjo) - Bbc
+- [A year after Oasis reunited for their world tour in Cardiff, Wales, fans can see their first performance together in 16 years on the big screen. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/a-year-after-oasis-reunited-for-their-world-tour-in-cardiff-wales-fans-can-see-t/1377235944276742/) - Facebook
+- [DJ Seinfeld – If This Is It (2026)](https://exystence.net/blog/2026/07/04/dj-seinfeld-if-this-is-it-2026/) - Exystence.net
+- [The Beautiful Death of Ozzy Osbourne: Sympathy for the metal](https://www.irishtimes.com/culture/books/review/2026/07/04/the-beautiful-death-of-ozzy-osbourne-sympathy-for-the-metal/) - The Irish Times
+- [Ozzy Osbourne's concert throne to go on display in Birmingham - BBC](https://www.bbc.com/news/articles/cql1eezqnlko) - Bbc
+- [Whiskeytown – Pneumonia (25th Anniversary Remastered Edition) (2026)](https://exystence.net/blog/2026/07/04/whiskeytown-pneumonia-25th-anniversary-remastered-edition-2026/) - Exystence.net
+- [Uncle Acid Accuse “Pop Diva” Damon Albarn of Getting Roskilde Set Cut Short](https://consequence.net/2026/07/gorillaz-uncle-acid-roskilde-fest/) - Consequence.net
+- [Dropkick Murphys on Trump, The Pogues and Irish Americans](https://www.rte.ie/entertainment/2026/0704/1581135-dropkick-murphys-on-trump-the-pogues-and-irish-americans/) - RTE
