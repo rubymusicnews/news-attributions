@@ -1,0 +1,27 @@
+# Sources for 2026-07-07 News Episode 
+- [Mick Jagger Says The Rolling Stones Plan to Tour in 2027, Won’t Play Residency-Style Shows](https://consequence.net/2026/07/the-rolling-stones-mick-jagger-residency-tour-2027/) - Consequence.net
+- [Mick Jagger says AI gave the Rolling Stones ‘rubbish’ ideas - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/mick-jagger-ai-rubbish-rolling-stones-22334627.php) - Sfchronicle
+- [Ahead of 86th Birthday, Ringo Starr Announces New Tour Dates](https://consequence.net/2026/07/ringo-starr-fall-2026-north-american-tour/) - Consequence.net
+- [Ringo Starr Announces East Coast Tour](https://pitchfork.com/story/ringo-starr-announces-east-coast-tour/) - Pitchfork
+- [Beatles’ Ringo Starr Is Hitting the Road This Fall - Newsweek](https://www.newsweek.com/entertainment/music/beatles-ringo-starr-is-hitting-the-road-this-fall-12162668) - Newsweek
+- [Rihanna’s Dance-Pop Smash Ties Her Fan-Favorite Album Cut](https://www.forbes.com/sites/hughmcintyre/2026/07/06/rihannas-dance-pop-smash-ties-her-fan-favorite-album-cut/) - Forbes
+- [Notorious B.I.G. Reaches A Huge Chart Milestone Decades After His Death](https://www.forbes.com/sites/hughmcintyre/2026/07/06/notorious-big-reaches-a-huge-chart-milestone-decades-after-his-death/) - Forbes
+- [Jay-Z Knows the Past Still Pays](http://www.rollingstone.com/music/music-features/jay-z-reasonable-doubt-30-anniversary-marketing-1235589763/) - Rolling Stone
+- [JAY-Z shares his story in upcoming HBO series - USA Today](https://www.usatoday.com/story/entertainment/music/2026/06/25/jay-z-new-hbo-documentary/90695492007/) - Usatoday
+- [Brooklyn Public Library releases limited-edition Jay-Z library cards - 6sqft](https://www.6sqft.com/special-edition-jay-z-library-cards-brooklyn-public-library/) - 6sqft
+- [Co-Ed KPop Group KARD To Disband After First Album And World Tour](https://www.forbes.com/sites/hannahabraham/2026/07/06/co-ed-kpop-group-kard-to-disband-after-first-album-and-world-tour/) - Forbes
+- [Four Tet surprise drops new eight-track album under Wingdings moniker](https://djmag.com/news/four-tet-surprise-drops-new-eight-track-album-under-wingdings-moniker) - DJ Mag
+- [The Last Beatles Song John Lennon Performed Live—and the Music Legend Who Made It Happen](https://www.mentalfloss.com/entertainment/music/last-beatles-song-john-lennon-performed-live-music-legend-who-made-it-happen) - Mental Floss
+- [Yungblud Receives Support From SZA, Alyssa Milano, More After Opening Up About ‘Industry Plant’ Discourse](http://www.rollingstone.com/music/music-news/yungblud-breaks-down-industry-plant-celeb-support-reaction-1235589490/) - Rolling Stone
+- [Rockers and Celebs Support Yungblud After Emotional Post on “Industry Plant” Accusations](https://consequence.net/2026/07/yungblud-supported-emotional-post-industry-plant-accusations/) - Consequence.net
+- [Philip Glass' new symphony premieres at Tanglewood after Kennedy Center cancellation](https://www.npr.org/2026/07/06/nx-s1-5342928/philip-glass-lincoln-symphony-bso) - NPR
+- [Metal Band Calls Out FIFA World Cup Song for Sounding 'Familiar'](https://loudwire.com/mutoid-man-2026-fifa-world-cup-theme-song/) - Loudwire
+- [First-Ever Official Black Sabbath Book Arriving This Fall](https://ultimateclassicrock.com/black-sabbath-official-book/) - Ultimate Classic Rock
+- [A Duran Duran victory lap reminds us why they outlasted the sneers](https://www.thelineofbestfit.com/features/live/duran-duran-bst-hyde-park-2026-victory-lap-reminds-outlasted-sneers) - Thelineofbestfit.com
+- [Lauren Bennett from LMFAO’s ‘Party Rock Anthem’ dead at 37](https://nypost.com/2026/07/06/entertainment/lauren-bennett-from-lmfaos-party-rock-anthem-dead-at-37/) - New York Post
+- [Lauren Bennett, Singer of Party Rock Anthem, Dies: Cause of Death and Net Worth](https://www.merca20.com/lauren-bennett-singer-of-party-rock-anthem-dies-cause-of-death-and-net-worth/) - Merca20.com
+- [‘Party Rock Anthem’ Singer Lauren Bennet Dies Tragically At 37](https://dailycaller.com/2026/07/06/party-rock-anthem-singer-lauren-bennett-lmfao-death-37/) - The Daily Caller
+- [Lauren Bennett, known for LMFAO's 'Party Rock Anthem,' dies at 36 - USA Today](https://www.usatoday.com/story/entertainment/music/2026/07/06/lauren-bennett-dead-lmfao-party-rock-anthem/90823853007/) - Usatoday
+- [Lauren Bennett, singer on LMFAO's 'Party Rock Anthem,' dies at 37 - ABC7 Los Angeles](https://abc7.com/post/lauren-bennett-singer-featured-lmfaos-2011-dance-hit-party-rock-anthem-dies-37/19458834/) - Abc7
+- [G.R.L. member and 'Party Rock Anthem' singer Lauren Bennett dies at 37 - ABC News - Breaking News, Latest News and Videos](https://abcnews.com/GMA/Culture/grl-member-party-rock-anthem-singer-lauren-bennett-dies/story?id=134531048) - Abcnews
+- [Lauren Bennett, a UK 'X-Factor' contestant who collaborated with LMFAO on the global smash "Party Rock Anthem" and later was a member of G.R.L. has died at 36. Read more below. - facebook.com](https://www.facebook.com/deadline/posts/lauren-bennett-a-uk-x-factor-contestant-who-collaborated-with-lmfao-on-the-globa/1378711334129203/) - Facebook
