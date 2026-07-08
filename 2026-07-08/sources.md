@@ -1,0 +1,21 @@
+# Sources for 2026-07-08 News Episode 
+- [Watch U2 Crash a Family’s Apartment in New Music Video](https://pitchfork.com/story/listen-to-u2-new-single-street-of-dreams/) - Pitchfork
+- [U2 Beats The Mexico City Rain In New Video](https://www.spinmagazine.com/2026/07/u2-new-video-single/) - Spinmagazine.com
+- [Duffy Performs at Secret London Concert for Her First Live Show in 15 Years](http://www.rollingstone.com/music/music-news/duffy-performs-secret-london-concert-first-live-show-years-1235590204/) - Rolling Stone
+- [Singer Duffy to return for first live concert in more than 15 years - BBC](https://www.bbc.com/news/articles/ce8p8mzj4e8o) - Bbc
+- [Duffy Plays First Concert In 15 Years - Stereogum](https://stereogum.com/2504282/duffy-plays-first-concert-in-15-years/news) - Stereogum
+- [MONSTA X’s Kihyun Has Been Everywhere But Now Is At The ‘BORDERLINE’](https://www.forbes.com/sites/laurasirikul/2026/07/07/monsta-xs-kihyun-has-been-everywhere-but-now-is-at-the-borderline/) - Forbes
+- [Watch: MONSTA X’s Kihyun Finds Liberation In Empowering “So Good” Solo Comeback MV](http://www.soompi.com/article/1852918wpp/watch-monsta-xs-kihyun-finds-liberation-in-empowering-so-good-solo-comeback-mv) - soompi
+- [Miley Cyrus Scores A New Hit — With One Of Her Most Famous Songs](https://www.forbes.com/sites/hughmcintyre/2026/07/07/miley-cyrus-scores-a-new-hit---with-one-of-her-most-famous-songs/) - Forbes
+- [Miley Cyrus Scores A New Hit — With One Of Her Most Famous Songs - Yahoo](https://www.yahoo.com/entertainment/music/articles/miley-cyrus-scores-hit-one-133000055.html) - Yahoo
+- [The Iconic Rolling Stones Song Keith Richards Wrote in His Sleep](https://www.mentalfloss.com/entertainment/music/rolling-stones-song-keith-richards-wrote-in-sleep) - Mental Floss
+- [no na, the Indonesian girl group taking ‘island pop’ global](https://www.dazeddigital.com/music/article/70605/1/global-girl-group-no-na-are-bringing-indonesian-island-pop-to-the-world?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=no-na-the-indonesian-girl-group-taking-island-pop-global) - Dazed
+- [TEN Launches Next-Gen Creative Company, ILLIMINT, Focused On Artists](https://www.forbes.com/sites/laurasirikul/2026/07/07/ten-launches-next-gen-creative-company-illimint-focused-on-artists/) - Forbes
+- [Gilla Band Set Next Album Pugnello](https://pitchfork.com/story/gilla-band-new-album-pugnello/) - Pitchfork
+- [Gilla Band detail first new album in four years, Pugnello](https://www.thelineofbestfit.com/news/gilla-band-detail-first-new-album-in-four-years-pugnello) - Thelineofbestfit.com
+- [Ella Langley Almost Earns Her First No. 1 On One Chart — But She’s Beaten To The Top](https://www.forbes.com/sites/hughmcintyre/2026/07/07/ella-langley-almost-earns-her-first-no-1-on-one-chart---but-shes-beaten-to-the-top/) - Forbes
+- [AI Music Start-Up Suno Hires Atlantic Records, YouTube Alums to Lead Marketing and Music Business Development (EXCLUSIVE)](https://variety.com/2026/music/news/suno-hires-grace-james-christian-bowne-executives-1236802750/) - Variety
+- [Santana Expands Fall 2026 Las Vegas Residency](https://consequence.net/2026/07/santana-new-2026-las-vegas-residency-dates/) - Consequence.net
+- [Slayr Readies New Avant Nova EP](https://pitchfork.com/story/slayr-readies-new-avant-nova-ep/) - Pitchfork
+- [Avex Music Group CEO Brandon Silverstein Outlines Avex's Global Growth Strategy at xeva live 2026](https://www.prnewswire.com/news-releases/avex-music-group-ceo-brandon-silverstein-outlines-avexs-global-growth-strategy-at-xeva-live-2026-302819524.html) - PRNewswire
+- [AI-powered live-music firm Gotobeat expands to arena shows](http://musically.com/2026/07/07/ai-powered-live-music-firm-gotobeat-expands-to-arena-shows/) - Music Ally
