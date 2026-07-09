@@ -1,0 +1,24 @@
+# Sources for 2026-07-09 News Episode 
+- [World Cup spikes Shakira catalogue’s Spotify streams by 21.6%](http://musically.com/2026/07/08/world-cup-spikes-shakira-catalogues-spotify-streams-by-21-6/) - Music Ally
+- [HYBE Launches ‘Next New Creator’ To Find Their Global Music Producers](https://www.forbes.com/sites/laurasirikul/2026/07/07/hybe-launches-next-new-creator-to-find-their-global-music-producers/) - Forbes
+- [WinWin, Heeseung And More: Every KPop Idol Departure In 2026](https://www.forbes.com/sites/hannahabraham/2026/07/08/winwin-heeseung-and-more-every-kpop-idol-departure-in-2026/) - Forbes
+- [Winwin Is the Latest Member to Leave NCT and SM Entertainment - Teen Vogue](https://www.teenvogue.com/story/winwin-leaves-nct-and-sm-entertainment-pens-letter-to-fans) - Teenvogue
+- [King Gizzard & the Lizard Wizard Are Releasing an EDM Album](https://pitchfork.com/story/king-gizzard-and-the-lizard-wizard-are-releasing-an-edm-album/) - Pitchfork
+- [King Gizzard & the Lizard Wizard Announce New Techno Album Alien Metal](https://consequence.net/2026/07/king-gizzard-the-lizard-wizard-new-album-alien-metal/) - Consequence.net
+- [King Gizzard and the Lizard Wizard are going electronic with new album, Alien Metal](https://www.thelineofbestfit.com/news/king-gizzard-and-the-lizard-wizard-are-going-electronic-with-new-album-alien-metal) - Thelineofbestfit.com
+- [Tina Turner Charts A New Bestselling Album Years After Her Passing](https://www.forbes.com/sites/hughmcintyre/2026/07/08/tina-turner-charts-a-new-bestselling-album-years-after-her-passing/) - Forbes
+- [Meet San Of ATEEZ: K-Pop’s Viral Gateway Idol](https://www.forbes.com/sites/laurasirikul/2026/07/08/meet-san-of-ateez-k-pops-viral-gateway-idol/) - Forbes
+- [My Chemical Romance’s Tour Helps The Band Mount A Major Comeback](https://www.forbes.com/sites/hughmcintyre/2026/07/08/my-chemical-romances-tour-helps-the-band-mount-a-major-comeback/) - Forbes
+- [Bon Jovi Kick Off “Forever Tour” at Madison Square Garden as Jon Bon Jovi Makes Admirable Return from Vocal Surgery: Review](https://consequence.net/2026/07/bon-jovi-kick-off-forever-tour-msg-review/) - Consequence.net
+- [Bon Jovi has 9 shows at MSG. Which one has the cheapest tickets? - New York Post](https://nypost.com/2026/06/26/ticket-sales/get-the-cheapest-tickets-to-see-bon-jovi-at-msg-with-a-discount/) - Nypost
+- [Music Review: More new Stones tunes? ‘Foreign Tongues’ expands on a late, stunning creative burst](https://abcnews.com/Entertainment/wireStory/music-review-new-stones-tunes-foreign-tongues-expands-134579419) - Abcnews.com
+- [Rolling Stones, ‘Foreign Tongues': Album Review - Ultimate Classic Rock](https://ultimateclassicrock.com/rolling-stones-foreign-tongues-review/) - Ultimateclassicrock
+- [The Rolling Stones: Foreign Tongues review – stomping blues and anti-Musk politics make this another late triumph - The Guardian](https://www.theguardian.com/music/2026/jul/04/the-rolling-stones-foreign-tongues-review) - Theguardian
+- [Music Review: More new Stones tunes? ‘Foreign Tongues’ expands on a late, stunning creative burst - AP News](https://apnews.com/article/rolling-stones-music-review-7d24321dfed0d6307fd3a45462a06bc5) - Apnews
+- [Interpol Unveil New Single “Iron City”: Stream](https://consequence.net/2026/07/interpol-new-single-iron-city-stream/) - Consequence.net
+- [‘Elon Musk is dangerous and crazy. And I kind of used to like him’: Interpol on their political awakening – and making their masterpiece - The Guardian](https://www.theguardian.com/music/2026/jun/26/interpol-interview-elon-musk-fatherhood-ai-album) - Theguardian
+- [Metallica’s Decades-Old Album Becomes A Sudden Top 10 Bestseller](https://www.forbes.com/sites/hughmcintyre/2026/07/08/metallicas-decades-old-album-becomes-a-sudden-top-10-bestseller/) - Forbes
+- [A K-pop idol breaks down the math behind why your favorite star might be broke](https://www.businessinsider.com/kpop-idol-broke-no-money-momoland-hyebin-2026-7#article) - Business Insider
+- [A K-pop idol breaks down the math behind why your favorite star might be broke - Business Insider](https://www.businessinsider.com/kpop-idol-broke-no-money-momoland-hyebin-2026-7) - Businessinsider
+- [Guinness World Records certifies Saheed Osupa, Malaika-led Afrobeats orchestra feat](https://www.vanguardngr.com/2026/07/guinness-world-records-certifies-saheed-osupa-malaika-led-afrobeats-orchestra-feat/) - Vanguard
+- [Billie Joe Armstrong Is Fronting a Punk Supergroup to Honor the Ramones, and Travis Barker and Tim Armstrong Are in It Too](https://thoughtcatalog.com/jeremy-london/2026/07/billie-joe-armstrong-is-fronting-a-punk-supergroup-to-honor-the-ramones-and-travis-barker-and-tim-armstrong-are-in-it-too/) - Thoughtcatalog.com
