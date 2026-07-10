@@ -1,0 +1,31 @@
+# Sources for 2026-07-10 News Episode 
+- [Katy Perry’s New Single Underperforms And Misses Most Major Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/09/katy-perrys-new-single-underperforms-and-misses-most-major-charts/) - Forbes
+- [Music Industry Moves: T.I. Strikes Publishing Deal With Reservoir, Primary Wave Partners With Foreigner’s Mick Jones](https://variety.com/2026/music/news/t-i-strikes-publishing-deal-with-reservoir-1236805912/) - Variety
+- [Sombr Misses Out On A New No. 1 Hit As A K-Pop Star Rules Again](https://www.forbes.com/sites/hughmcintyre/2026/07/09/sombr-misses-out-on-a-new-no-1-hit-as-a-k-pop-star-rules-again/) - Forbes
+- [‘Total Eclipse Of The Heart’ Singer Bonnie Tyler Dies](https://www.spinmagazine.com/2026/07/bonnie-tyler-obituary/) - Spinmagazine.com
+- [Bonnie Tyler dead at 75: Total Eclipse of the Heart star passes away in Portugal after emergency surgery which left her in a coma](https://www.dailymail.com/tvshowbiz/article-15812251/Bonnie-Tyler-dead-75-Singer-passes-away.html) - Dailymail.com
+- [‘Total Eclipse of the Heart’ Singer Bonnie Tyler Has Died at 75](http://www.thecut.com/article/total-eclipse-heart-singer-bonnie-tyler-dies-75.html) - The Cut
+- [Legendary Singer Bonnie Tyler Passes Away Aged 75](https://www.boredpanda.com/bonnie-tyler-passed-away/) - Boredpanda.com
+- [Bonnie Tyler, who topped the charts with epic ‘Total Eclipse of the Heart,’ has died at 75 - AP News](https://apnews.com/article/bonnie-tyler-singer-died-11b043ebdb4fa946daa42aad804ce4a1) - Apnews
+- [Bonnie Tyler, singer of ballad 'Total Eclipse of the Heart,' has died at 75 - NPR](https://www.npr.org/2026/07/09/nx-s1-5887107/bonnie-tyler-obit) - Npr
+- [Bonnie Tyler, who topped the charts with epic 'Total Eclipse of the Heart,' has died at 75 - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/bonnie-tyler-who-topped-the-charts-with-epic-22338555.php) - Sfchronicle
+- [Bonnie Tyler, who topped the charts with epic 'Total Eclipse of the Heart,' has died at 75 - Greenwich Time](https://www.greenwichtime.com/entertainment/article/bonnie-tyler-who-topped-the-charts-with-epic-22338555.php) - Greenwichtime
+- [Total Eclipse of the Heart singer Bonnie Tyler dies aged 75 - BBC](https://www.bbc.com/news/articles/clypqj2z1zpo) - Bbc
+- [Singer Bonnie Tyler, of ‘Total Eclipse of the Heart’ fame, dies at 75 - New York Daily News](https://www.nydailynews.com/2026/07/09/bonnie-tyler-dead/) - Nydailynews
+- [Bonnie Tyler, singer of 'Holding Out for a Hero', dead at 75 - The Jerusalem Post](https://www.jpost.com/international/article-901998) - Jpost
+- [Black Sabbath’s Bill Ward Reveals He Uses Wheelchair But Vows He’s “Not in Retirement”](https://consequence.net/2026/07/black-sabbath-bill-ward-wheelchair/) - Consequence.net
+- [Black Sabbath drummer Bill Ward reveals he’s confined to wheelchair — nearly one year after Ozzy Osbourne’s death](https://pagesix.com/2026/07/09/celebrity-news/black-sabbaths-bill-ward-reveals-hes-confined-to-a-wheelchair-one-year-after-ozzy-osbournes-death/) - Page Six
+- [Black Sabbath's Bill Ward Offers Transparency on Wheelchair Usage](https://loudwire.com/black-sabbath-bill-ward-wheelchair-usage/) - Loudwire
+- [“I’m just catching a ride, I’m not in retirement or ill or giving up”: Black Sabbath’s Bill Ward declares he’s “still a drummer” despite needing to use a wheelchair - Louder](https://www.loudersound.com/news/black-sabbath-bill-ward-using-wheelchair-2026) - Loudersound
+- [Black Sabbath Drummer Opens Up About Wheelchair Use - Newser](https://www.newser.com/story/392555/black-sabbath-drummer-opens-up-about-wheelchair-use.html) - Newser
+- [Milky Chance’s ‘Stolen Dance’ hits 2bn Spotify streams… 13 years after release](http://musically.com/2026/07/09/milky-chances-stolen-dance-hits-2bn-spotify-streams-13-years-after-release/) - Music Ally
+- [Drake Blocks Himself From Charting A New No. 1 Hit](https://www.forbes.com/sites/hughmcintyre/2026/07/09/drake-blocks-himself-from-charting-a-new-no-1-hit/) - Forbes
+- [Lim Kim, Bree Runway Crossover Collab Brings Korean ‘Insa’ To The Ballroom](https://www.forbes.com/sites/jeffbenjamin/2026/07/09/lim-kim-bree-runway-crossover-collab-brings-korean-insa-to-the-ballroom/) - Forbes
+- [Dickinson + Harris Address Iron Maiden's Rock Hall Induction](https://loudwire.com/bruce-dickinson-steve-harris-real-feelings-iron-maiden-rock-hall-induction/) - Loudwire
+- [20 Questions with Jorja Smith](https://www.anothermag.com/design-living/17296/20-questions-with-jorja-smith-what-are-the-odds-album?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=20-questions-with-jorja-smith) - AnOther Magazine
+- [O detalhe na reação de j-hope que fez os ARMYs suspeitarem de música inédita do BTS na final da Copa](https://portalpopline.com.br/j-hope-musica-inedita-bts-final-copa/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=j-hope-musica-inedita-bts-final-copa) - Portalpopline.com.br
+- [Digital Marketing Manager – The Orchard – London](http://musically.com/2026/07/09/digital-marketing-manager-the-orchard-london/) - Music Ally
+- [Yungblud ‘Reluctantly’ Cancels Cowboys Music Festival Performance: ‘Working on Myself’](http://www.rollingstone.com/music/music-news/yungblud-cancels-cowboys-music-festival-performance-1235591760/) - Rolling Stone
+- [Yungblud Pulls Out of Festival Performance After Recent ‘Breakdown’](https://www.usmagazine.com/celebrity-news/news/yungblud-pulls-out-of-festival-performance-after-breakdown/) - Us Weekly
+- [Ο Yungblud ακύρωσε εμφάνισή του λίγες μέρες μετά τα δάκρυά του στη σκηνή: «Αντιμετωπίζω κατάματα όσα συμβαίνουν για το καλό μου»](https://www.protothema.gr/life-style/article/1848357/o-yungblud-akurose-emfanisi-tou-se-festival-liges-meres-meta-ta-klamata-tou-sti-skini/) - Protothema.gr
+- [At France’s Yardland, Afro-diasporic culture is front and center](https://www.thefader.com/2026/07/09/yardland-festival-france-2026-style-photos) - The FADER
