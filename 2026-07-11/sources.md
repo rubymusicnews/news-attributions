@@ -1,0 +1,16 @@
+# Sources for 2026-07-11 News Episode 
+- [Bad Bunny’s Tour Makes His Grammy-Winning Album A Bestseller Again](https://www.forbes.com/sites/hughmcintyre/2026/07/10/bad-bunnys-tour-makes-his-grammy-winning-album-a-bestseller-again/) - Forbes
+- [Justin Bieber’s Album Returns After He Drops Two Surprise Live Sets](https://www.forbes.com/sites/hughmcintyre/2026/07/10/justin-biebers-album-returns-after-he-drops-two-surprise-live-sets/) - Forbes
+- [12 New Albums You Should Listen to Now: Kelela, Jack White, and More](https://pitchfork.com/story/12-new-albums-you-should-listen-to-now-kelela-jack-white-rolling-stones/) - Pitchfork
+- [EXCLUSIVE: AI Can't Get No Satisfaction! Mick Jagger Mauled for Turning to Artificial Intelligence to Write Rolling Stones' Latest Project](https://radaronline.com/p/mick-jagger-ai-rolling-stones-album-project-backlash/) - Radaronline.com
+- [Mick Jagger says AI gave the Rolling Stones ‘rubbish’ ideas - San Francisco Chronicle](https://www.sfchronicle.com/entertainment/article/mick-jagger-ai-rubbish-rolling-stones-22334627.php) - Sfchronicle
+- [Cage The Elephant Release Single “Beaches in Tennessee”: Stream](https://consequence.net/2026/07/cage-the-elephant-single-beaches-in-tennessee/) - Consequence.net
+- [Fiona Apple Wants to Write About the ‘Endless Barrage of Horrors’ in Today’s World](http://www.rollingstone.com/music/music-news/fiona-apple-new-music-video-update-1235592093/) - Rolling Stone
+- [Three live marketing trends in 2026 (Udo Lindenberg, Rosalía, Zara Larsson & Avery Cochrane)](http://musically.com/2026/07/10/three-live-marketing-trends-in-2026-udo-lindenberg-rosalia-zara-larsson-avery-cochrane/) - Music Ally
+- [Konzerte in München: So punkten Sie beim BTS-Small-Talk](https://www.faz.net/aktuell/gesellschaft/menschen/bts-in-muenchen-so-koennen-sie-beim-k-pop-small-talk-mitreden-201015729.html) - Faz.net
+- [Kanye West Announces New Orleans Show Despite Ongoing Backlash](https://hiphopwired.com/3059138/kanye-west-new-orleans-concert/) - Hip-Hop Wired
+- [Dahi details collab-heavy debut album Black Boy (Alternative), shares Childish Gambino collaboration “Running”](https://www.thelineofbestfit.com/news/dahi-details-collab-heavy-debut-album-black-boy-alternative-shares-childish-gambino-collaboration-running) - Thelineofbestfit.com
+- [Rock Icon Yoshiki Is Just Getting Started With Walt Disney Concert Hall](https://www.forbes.com/sites/laurasirikul/2026/07/10/rock-icon-yoshiki-is-just-getting-started-with-walt-disney-concert-hall/) - Forbes
+- [世界的ジャズフォトグラファー・中平穂積 初の追悼回顧展「THE TRAJECTORY OF JAZZ 」フランス・パリ／東京（浜離宮恩賜庭園）二都市同時開催 ! 8月25日（火）開幕 !](https://prtimes.jp/main/html/rd/p/000000003.000186677.html) - Prtimes.jp
+- [Alabama Shakes Unveil New Single “I Feel Hope Coming”: Stream](https://consequence.net/2026/07/alabama-shakes-single-i-feel-hope-coming/) - Consequence.net
+- [7 Real Places That Inspired Beatles Hits](https://www.mentalfloss.com/entertainment/music/real-places-that-inspired-beatles-songs) - Mental Floss
