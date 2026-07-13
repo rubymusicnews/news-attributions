@@ -1,0 +1,26 @@
+# Sources for 2026-07-13 News Episode 
+- [Madonna Makes History After New Album 'Confessions II' Hits Billboard No. 1](https://www.usmagazine.com/entertainment/news/madonnas-makes-history-with-confessions-ii-billboard-no-1/) - Us Weekly
+- [Madonna Scores Historic 10th No. 1 Album With 'Confessions II,' Breaks Multiple Billboard Records - Just Jared](https://www.justjared.com/2026/07/12/madonna-scores-historic-10th-no-1-album-with-confessions-ii-breaks-multiple-billboard-records/) - Justjared
+- [Olivia Rodrigo May Follow Lady Gaga And Billie Eilish’s Historic Grammy Feat](https://www.forbes.com/sites/hughmcintyre/2026/07/12/olivia-rodrigo-may-follow-lady-gaga-and-billie-eilishs-historic-grammy-feat/) - Forbes
+- [Harry Styles 'pockets a staggering £15million a night for record-breaking Wembley Stadium gigs'](https://www.dailymail.com/tvshowbiz/article-15971931/Harry-Styles-pockets-staggering-15million-night-record-breaking-Wembley-Stadium-gigs.html) - Dailymail.com
+- [Harry Styles makes emotional One Direction tribute at final Wembley show as he brings out surprise guest - The Independent](https://www.independent.co.uk/arts-entertainment/music/news/harry-styles-wembley-12-one-direction-gemma-speech-b3009148.html) - Independent
+- [Goose Didn’t Just Inherit the Jam Band Scene — They Reinvented It](http://www.rollingstone.com/music/music-features/goose-madison-square-garden-jam-band-backlash-influences-1235591813/) - Rolling Stone
+- [Bruce Springsteen – UBS Arena, Belmont Park, NY, 05.05.26 (2026)](https://exystence.net/blog/2026/07/12/bruce-springsteen-ubs-arena-belmont-park-ny-05-05-26-2026/) - Exystence.net
+- [Iron Maiden's first ever festival is a triumph and a true celebration of one of heavy metal's most storied bands](https://www.loudersound.com/bands-artists/music-festivals/iron-maiden-eddfest-review-2026) - Louder
+- [Pitbull Sets Guinness World Record for Largest Gathering of People in Bald Caps](https://consequence.net/2026/07/pitbull-sets-guinness-world-record/) - Consequence.net
+- [Pitbull fans set Guinness World Record at BST Hyde Park show - BBC](https://www.bbc.com/news/articles/cp8leyy42nvo) - Bbc
+- [Pitbull sets Guinness World Record for largest gathering of people wearing bald caps - CBS News](https://www.cbsnews.com/news/pitbull-guinness-world-record-bald-caps/) - Cbsnews
+- [‘It’s a blessing and an honour to see the baldies’: Pitbull sets bald cap Guinness World Record - Sky News Australia](https://www.skynews.com.au/lifestyle/celebrity-life/its-a-blessing-and-an-honour-to-see-the-baldies-pitbull-sets-bald-cap-guinness-world-record/video/5536dcb8b5221c4575b62d8e6e31f6e4) - Skynews
+- [Fans at a Pitbull concert in London set the record for largest gathering of people with bald caps - Modern Ghana](https://www.modernghana.com/amp/videonews/680842) - Modernghana
+- [Alan Jackson Scores A New Bestseller Following His Farewell Concert](https://www.forbes.com/sites/hughmcintyre/2026/07/12/alan-jackson-scores-a-new-bestseller-following-his-farewell-concert/) - Forbes
+- [Alan Jackson Scores A New Bestseller Following His Farewell Concert](https://www.yahoo.com/entertainment/music/articles/alan-jackson-scores-bestseller-following-120000519.html) - Yahoo
+- [Christine Perfect, Later Known as Christine McVie, at the Melody Maker Pop Star Awards in London, 1969](https://www.vintag.es/2026/07/christine-mcvie-1969-melody-maker-winner.html) - Vintag.es
+- [The Plot In You Premiere New Music Video For "Carved"](http://www.metalunderground.com/news/details.cfm?newsid=161692) - Metalunderground.com
+- [Lenzman, The North Quarter founder and drum & bass stalwart, dies](https://djmag.com/news/lenzman-north-quarter-founder-and-drum-bass-stalwart-dies) - DJ Mag
+- [Van Miles’ erfgoed tot nieuwe game changers: artiesten dragen 50 jaar North Sea Jazz de toekomst in](https://www.nrc.nl/nieuws/2026/07/12/van-miles-erfgoed-tot-nieuwe-game-changers-artiesten-dragen-50-jaar-north-sea-jazz-de-toekomst-in-a4932291) - Www.nrc.nl
+- [Baby Rose’s Story Is Still Unfolding](http://www.rollingstone.com/music/music-features/baby-rose-new-album-tour-olivia-dean-1235592172/) - Rolling Stone
+- [Baby Rose Is Turning Yearning Into a Living Archive - Newsweek](https://www.newsweek.com/entertainment/baby-rose-is-turning-yearning-into-a-living-archive-12168195) - Newsweek
+- [Baby Rose's voice is always searching. 'YEARNALISM' gives it a home - Maine Public](https://www.mainepublic.org/npr-news/2026-07-10/baby-roses-voice-is-always-searching-yearnalism-gives-it-a-home) - Mainepublic
+- [Baby Rose's voice is always searching. 'YEARNALISM' gives it a home - NPR](https://www.npr.org/2026/07/10/nx-s1-5872739/baby-rose-yearnalism-review) - Npr
+- [Baby Rose's voice is always searching. 'YEARNALISM' gives it a home - Boise State Public Radio](https://www.boisestatepublicradio.org/music/2026-07-10/baby-roses-voice-is-always-searching-yearnalism-gives-it-a-home) - Boisestatepublicradio
+- [Andy Bickers, Longtime Cold Chisel Saxophonist, Dies at 56](http://www.billboard.com/music/rock/andy-bickers-cold-chisel-saxophonist-dies-1236292439/) - Billboard
