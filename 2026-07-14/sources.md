@@ -1,0 +1,24 @@
+# Sources for 2026-07-14 News Episode 
+- [BTS’s agency denies plagiarism allegations after US lawsuit over hit song ‘Swim’](https://www.the-independent.com/arts-entertainment/music/news/bts-arirang-swim-plagiarism-lawsuit-bighit-music-b3013711.html) - The-independent.com
+- [Two Of Rihanna’s Biggest Hits Climb To Never-Before-Seen Chart Peaks](https://www.forbes.com/sites/hughmcintyre/2026/07/13/two-of-rihannas-biggest-hits-climb-to-never-before-seen-chart-peaks/) - Forbes
+- [Mastodon Preview New Album With Rousing Single ‘Snakes For Dinner’](http://www.rollingstone.com/music/music-news/mastodon-snakes-for-dinner-single-marrow-deep-album-1235592538/) - Rolling Stone
+- [Mastodon Enters New Era On ‘Marrow Deep’](https://www.spinmagazine.com/2026/07/mastodon-new-album/) - Spinmagazine.com
+- [Mastodon Announce New Album, Unveil “Snakes for Dinner” Featuring Josh Homme: Stream](https://consequence.net/2026/07/mastodon-new-album-song-snakes-for-dinner-josh-homme/) - Consequence.net
+- [Mastodon Premiere "Snakes For Dinner" Video Featuring Josh Homme - Announce Ninth Album "Marrow Deep"](http://www.metalunderground.com/news/details.cfm?newsid=161697) - Metalunderground.com
+- [Olivia Rodrigo Beats Her Own Longest-Running No. 1 With Her Latest Champion](https://www.forbes.com/sites/hughmcintyre/2026/07/13/olivia-rodrigo-beats-her-own-longest-running-no-1-with-her-latest-champion/) - Forbes
+- [Olivia Rodrigo Beats Her Own Longest-Running No. 1 With Her Latest Champion](https://uk.news.yahoo.com/olivia-rodrigo-beats-her-own-123000804.html) - Yahoo
+- [SEVENTEEN Will Stay Together As Members Confirm Contract Renewal](https://www.forbes.com/sites/hannahabraham/2026/07/13/seventeen-will-stay-together-as-members-confirm-contract-renewal/) - Forbes
+- [Flea and the Honora Band: Tiny Desk Concert](https://www.npr.org/2026/07/13/g-s1-130901/flea-tiny-desk-concert) - NPR
+- [Flea and the Honora Band: Tiny Desk Concert - KGOU](https://www.kgou.org/arts-and-entertainment/2026-07-13/flea-and-the-honora-band-tiny-desk-concert) - Kgou
+- [Flea and the Honora Band: Tiny Desk Concert - Kansas Public Radio](https://kansaspublicradio.org/npr-news/2026-07-13/flea-and-the-honora-band-tiny-desk-concert) - Kansaspublicradio
+- [Flea and the Honora Band: Tiny Desk Concert - KSUT Public Radio](https://www.ksut.org/2026-07-13/flea-and-the-honora-band-tiny-desk-concert) - Ksut
+- [Benson Boone’s New Single Is Already One Of His Biggest — And Worst Performers](https://www.forbes.com/sites/hughmcintyre/2026/07/13/benson-boones-new-single-is-already-one-of-his-biggest---and-worst-performers/) - Forbes
+- [D12 “My Band”](https://www.spinmagazine.com/2026/07/d12-my-band/) - Spinmagazine.com
+- [Young Thug Announces YSL Tour](https://pitchfork.com/story/young-thug-announces-ysl-tour/) - Pitchfork
+- [Young Thug Announces “The New Generation Tour”](https://consequence.net/2026/07/young-thug-the-new-generation-tour/) - Consequence.net
+- [Was your favorite music influencer paid to post that song?](https://www.npr.org/2026/07/13/nx-s1-5849926/influencers-paid-music-promotion) - NPR
+- [Music influencers are getting paid to promote songs — and they're not telling you - KUOW](https://www.kuow.org/stories/music-influencers-are-getting-paid-to-promote-songs-and-they-re-not-telling-you) - Kuow
+- [60. Montreux Jazz Festival: ein Ort für die Live-Musik, die immer lebendig bleibt](https://www.nzz.ch/feuilleton/musik/das-60-montreux-jazz-festival-highlights-von-the-roots-und-agnes-obel-ld.10014620) - Www.nzz.ch
+- [Morgan Wallen Sends Multiple Hits To New Peaks On The Biggest Songs Chart](https://www.forbes.com/sites/hughmcintyre/2026/07/13/morgan-wallen-sends-multiple-hits-to-new-peaks-on-the-biggest-songs-chart/) - Forbes
+- ["Thousands of fans with knees far less reliable than they were are bouncing around, screaming every word." Bring Me The Horizon's crushing Count Your Blessings show is a reminder of how ferociously heavy they can still be](https://www.loudersound.com/music/thousands-of-fans-with-knees-far-less-reliable-than-they-were-are-bouncing-around-screaming-every-word-bring-me-the-horizons-crushing-count-your-blessings-show-is-a-reminder-of-how-ferociously-heavy-they-can-still-be) - Louder
+- [The Story Behind Phil Collins’ Live Aid Outfit And The Day It Crossed The Atlantic](https://www.forbes.com/sites/katehardcastle/2026/07/13/the-story-behind-phil-collins-live-aid-outfit-and-the-day-it-crossed-the-atlantic/) - Forbes
