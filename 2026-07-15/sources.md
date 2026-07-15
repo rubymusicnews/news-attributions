@@ -1,0 +1,25 @@
+# Sources for 2026-07-15 News Episode 
+- [Iron Maiden Sell Half the Rights to Their Music and Likenesses to Pophouse](https://consequence.net/2026/07/iron-maiden-pophouse-deal/) - Consequence.net
+- [Iron Maiden, Pophouse Partner For Future Projects](https://www.spinmagazine.com/2026/07/iron-maiden-pophouse/) - Spinmagazine.com
+- [Iron Maiden's rights sold to Pophouse - Axios](https://www.axios.com/2026/07/14/iron-maiden-rights-pophouse) - Axios
+- [Harry Styles’s Grammy-Winning Album Brings The Singer To A Chart Milestone](https://www.forbes.com/sites/hughmcintyre/2026/07/14/harry-styless-grammy-winning-album-brings-the-singer-to-a-chart-milestone/) - Forbes
+- [Nearly 2.2m fans showed up for Madonna’s TikTok livestream](http://musically.com/2026/07/14/nearly-2-2m-fans-showed-up-for-madonnas-tiktok-livestream/) - Music Ally
+- [Karol G Is Bringing Powerhouse Women, Including Elena Rose, on Tour](http://www.rollingstone.com/music/music-features/elena-rose-karol-g-stadium-tour-opener-1235593291/) - Rolling Stone
+- [Jason Newsted on the Time Metallica Had Darts Thrown at Them Onstage](http://www.rollingstone.com/music/music-news/jason-newsted-metallica-stop-show-darts-interview-1235593579/) - Rolling Stone
+- [The Rose Found Clarity In The Calm To Take ‘100% Control’ Of Their Story](https://www.forbes.com/sites/jeffbenjamin/2026/07/13/the-rose-found-clarity-in-the-calm-to-take-100-control-of-their-story/) - Forbes
+- ["Metal is a better place for having a happy, healthy System Of A Down in it." System Of A Down's UK return was electric, euphoric and one of the best rock stadium shows in recent memory](https://www.loudersound.com/bands-artists/concerts-shows/metal-is-a-better-place-for-having-a-happy-healthy-system-of-a-down-in-it-system-of-a-downs-uk-return-was-electric-euphoric-and-one-of-the-best-rock-stadium-shows-in-recent-memory) - Louder
+- [Queens Of The Stone Age Make It Look ‘Easy’](https://www.spinmagazine.com/2026/07/queens-of-the-stone-age-new-song/) - Spinmagazine.com
+- [Listen to Queens of the Stone Age's First Single in Three Years](https://pitchfork.com/story/listen-to-queens-of-the-stone-age-easy-street/) - Pitchfork
+- [Billy Joel reveals why he quit writing music: ‘I didn’t want to go like that’](https://pagesix.com/2026/07/14/entertainment/billy-joel-reveals-why-he-quit-writing-music/) - Page Six
+- [Mike D’s New Solo Album Contains Music Made With 1980s Beastie Boys Sampler](http://www.rollingstone.com/music/music-news/mike-d-solo-album-beastie-boys-sampler-1235593149/) - Rolling Stone
+- [How I signed Wizkid through Banky W – Akon](https://www.vanguardngr.com/2026/07/how-i-signed-wizkid-through-banky-w-akon/) - Vanguard
+- [Why I signed Wizkid in 2008 — Akon](https://punchng.com/?p=2190408) - The Punch
+- [Sam Fender and Olivia Dean make UK chart history: Rein Me In overtakes Wet Wet Wet as the longest-running number one single of all time by a British act](https://www.dailymail.com/tvshowbiz/article-15976147/Sam-Fender-Olivia-Dean-make-UK-chart-history-Rein-overtakes-Wet-Wet-Wet-longest-running-number-one-single-time-British-act.html) - Dailymail.com
+- [How Sam Fender & Olivia Dean’s ‘Rein Me In’ Became a Record-Breaking U.K. Chart Success - Billboard](https://www.billboard.com/lists/sam-fender-olivia-dean-rein-mein-uk-chart-records/) - Billboard
+- [Spotify adds its own AI chatbot – here’s what you can do with it [Video]](http://9to5google.com/2026/07/14/spotify-adds-its-own-ai-chatbot-heres-what-you-can-do-with-it-video/) - 9to5google.com
+- [Spotify is putting a conversational chatbot right inside its app](https://www.androidauthority.com/talk-to-spotify-conversational-ai-beta-3687332/) - Android Authority
+- [Spotify adds its own AI chatbot – here’s what you can do with it [Video] - 9to5Google](https://9to5google.com/2026/07/14/spotify-adds-its-own-ai-chatbot-heres-what-you-can-do-with-it-video/) - 9to5google
+- [Spotify expands its AI push with a ChatGPT-like music assistant - TechCrunch](https://techcrunch.com/2026/07/14/spotify-expands-its-ai-push-with-a-chatgpt-like-music-assistant/) - Techcrunch
+- [Spotify Now Lets You Ask AI Questions in Its Mobile App - CNET](https://www.cnet.com/tech/services-and-software/spotify-now-lets-you-ask-ai-questions-in-mobile-app/) - Cnet
+- [SUMMA WUZZON: Tours + Festivals](https://www.spinmagazine.com/2026/07/summa-wuzzon-tours-festivals/) - Spinmagazine.com
+- [Billboard’s Music Industry Events Calendar - K-Jewel 99.3 FM](http://www.kjwl.com/2026/07/06/billboards-music-industry-events-calendar-174/) - Kjwl
