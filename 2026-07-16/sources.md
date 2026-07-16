@@ -1,0 +1,25 @@
+# Sources for 2026-07-16 News Episode 
+- [Karol G Feels It Was ‘Incorrect’ That She Was the First Latina to Headline Coachella](http://www.rollingstone.com/music/music-latin/karol-g-discusses-being-first-latina-headline-coachella-1235594059/) - Rolling Stone
+- [Karol G Wants Coachella Performance to Have Impact on Latin Community - The Hollywood Reporter](https://www.hollywoodreporter.com/video/karol-g-wants-coachella-performance-have-impact-on-latin-community-beyond-saying-ice-out-video/) - Hollywoodreporter
+- [Metallica Mounts A Huge Chart Comeback With Multiple Bestsellers](https://www.forbes.com/sites/hughmcintyre/2026/07/15/metallica-mounts-a-huge-chart-comeback-with-multiple-bestsellers/) - Forbes
+- [Mnet Partners With REPUBLIC To Launch Project ‘GIRLS PLANET 2027’](https://www.forbes.com/sites/laurasirikul/2026/07/14/mnet-partners-with-republic-to-launch-project-girls-planet-2027/) - Forbes
+- [CJ ENM’s Mnet & Universal Music Group’s Republic Partner To Launch Global Girl Group](http://deadline.com/2026/07/k-pop-kep1er-cj-enm-mnet-universal-music-group-1236982703/) - Deadline
+- [CJ ENM’s Mnet & Universal Music Group’s Republic Partner To Launch Global Girl Group](https://deadline.com/2026/07/k-pop-kep1er-cj-enm-mnet-universal-music-group-1236982703/) - Deadline
+- [Mnet Partners With REPUBLIC To Launch Project ‘GIRLS PLANET 2027’](https://www.yahoo.com/entertainment/music/articles/mnet-partners-republic-launch-project-034300228.html) - Yahoo
+- [David Bowie’s 1965 Shel Talmy Sessions Get Boxed](https://www.spinmagazine.com/2026/07/david-bowie-shel-talmy-box/) - Spinmagazine.com
+- [My Chemical Romance join TikTok after 1.4bn ‘Teenagers’ views](http://musically.com/2026/07/15/my-chemical-romance-join-tiktok-after-1-4bn-teenagers-views/) - Music Ally
+- [My Chemical Romance join TikTok after 1.4bn ‘Teenagers’ views - Music Ally](https://musically.com/2026/07/15/my-chemical-romance-join-tiktok-after-1-4bn-teenagers-views) - Musically
+- [Ariana Grande’s Grammy-Nominated Album Returns Just Before Her New Project Drops](https://www.forbes.com/sites/hughmcintyre/2026/07/15/ariana-grandes-grammy-nominated-album-returns-just-before-her-new-project-drops/) - Forbes
+- [Beyoncé’s 20-Year-Old Song Becomes An Instant Bestseller](https://www.forbes.com/sites/hughmcintyre/2026/07/15/beyoncs-20-year-old-song-becomes-an-instant-bestseller/) - Forbes
+- [Bruno Mars’s Most Recent No. 1 Ties Several Of The Star’s Biggest Hits](https://www.forbes.com/sites/hughmcintyre/2026/07/15/bruno-marss-most-recent-no-1-ties-several-of-the-stars-biggest-hits/) - Forbes
+- [KISS Expands Ace Frehley Tribute At Vegas KRUISE](https://www.spinmagazine.com/2026/07/kiss-kruise-ace-frehley-2/) - Spinmagazine.com
+- [We tend to think boy bands are made for teenage girls and forgotten just as fast — but BTS built a fan base far more mature and diverse than the stereotype, with many adult listeners describing the music as genuinely therapeutic](https://spacedaily.com/d-we-tend-to-think-boy-bands-are-made-for-teenage-girls-and-forgotten-just-as-fast-but-bts-built-a-fan-base-far-more-mature-and-diverse-than-the-stereotype-with-many-adult-listeners-describin/) - Space Daily
+- [Watch Robyn Cover Erasure’s “Always”](https://pitchfork.com/story/watch-robyn-cover-erasures-always/) - Pitchfork
+- [Producer of New Slipknot Album Revealed, Jim Root Shares Details](https://loudwire.com/jim-root-slipknot-producer-album-update-2026/) - Loudwire
+- [Latin and country surge in the US as more music is being streamed than ever before](https://abcnews.com/Entertainment/wireStory/latin-country-surge-us-music-streamed-134776522) - Abcnews.com
+- [Latin and country surge in the US as more music is being streamed than ever before - Greenwich Time](https://www.greenwichtime.com/entertainment/article/latin-and-country-surge-in-the-us-as-more-music-22346041.php) - Greenwichtime
+- [Netflix is about to host videos from BuzzFeed, Condé Nast, and other publishers - The Verge](https://www.theverge.com/streaming/962528/netflix-digital-media-brands-streaming) - Theverge
+- [AI Music App Suno Got Hacked, Giving a Glimpse of Just How Much Music It Scraped](https://gizmodo.com/ai-music-app-suno-got-hacked-giving-a-glimpse-of-just-how-much-music-it-scraped-2000786013) - Gizmodo.com
+- [Suno snatched millions of songs from YouTube, Genius, and Deezer - The Verge](https://www.theverge.com/ai-artificial-intelligence/966072/suno-ai-music-training-scraping-youtube-hack) - Theverge
+- [Hack Reveals Suno AI Music Generator Scraped YouTube, Deezer, and Genius - 404 Media](https://www.404media.co/hack-reveals-suno-ai-music-generator-scraped-youtube-deezer-and-genius/) - 404media
+- [Hack suggests AI music generator Suno scraped YouTube for training data - TechCrunch](https://techcrunch.com/2026/07/15/hack-suggests-ai-music-generator-suno-scraped-youtube-for-training-data/) - Techcrunch
