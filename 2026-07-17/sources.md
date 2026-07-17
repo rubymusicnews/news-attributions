@@ -1,0 +1,28 @@
+# Sources for 2026-07-17 News Episode 
+- [Guest column: Is the world sleeping on the India sync opportunity?](http://musically.com/2026/07/16/guest-column-is-the-world-sleeping-on-the-india-sync-opportunity/) - Music Ally
+- [Bad Bunny verso Milano: quanti soldi muove il rapper portoricano odiato da Trump](https://www.ilsole24ore.com/art/bad-bunny-milano-quanti-soldi-muove-rapper-portoricano-odiato-trump-AJ01SfL) - Il Sole 24 Ore
+- [Billy Joel reveals hit song was nearly axed from album before Grammy winner stepped in](https://www.the-independent.com/arts-entertainment/music/news/billy-joel-just-the-way-you-are-b3015966.html) - The-independent.com
+- [Robert Plant Is Receiving an Americana Music Lifetime Achievement Award](http://www.rollingstone.com/music/music-country/robert-plant-americana-lifetime-achievement-award-1235594718/) - Rolling Stone
+- [Lorde Slams Spotify Over Sloppy AI-Generated Song Descriptions](http://www.rollingstone.com/music/music-news/lorde-slams-spotify-ai-generated-song-descriptions-1235594882/) - Rolling Stone
+- [Lorde on Spotify’s AI Song Descriptions: “We Don’t Want This”](https://pitchfork.com/story/lorde-on-spotifys-ai-song-descriptions/) - Pitchfork
+- [Phoebe Bridgers Returns to ‘Fallon,’ This Time for ‘Lost Boys (Acoustic)’](http://www.rollingstone.com/music/music-news/phoebe-bridgers-jimmy-fallon-lost-boys-acoustic-1235594000/) - Rolling Stone
+- [Phoebe Bridgers Strips Down ‘Lost Boys’](https://www.spinmagazine.com/2026/07/phoebe-bridgers-lost-boys-acoustic/) - Spinmagazine.com
+- [Wanna Feel Old? This Is Phoebe Bridgers' 'Tonight Show' Band Now - Stereogum](https://stereogum.com/2505355/wanna-feel-old-this-is-phoebe-bridgers-tonight-show-band-now/news) - Stereogum
+- [A Look Inside Motown’s Famous Hitsville U.S.A.](https://www.theroot.com/a-look-inside-motowns-famous-hitsville-u-s-a-2000116442) - The Root
+- [Look Inside Motown’s Original House Where Michael Jackson Became Famous](https://www.theroot.com/look-inside-motown-s-original-house-where-michael-jack-2000116442) - The Root
+- [America in Pursuit: The story of Motown Records (CT+) - NPR](https://www.npr.org/2026/07/04/nx-s1-5870966/america-in-pursuit-the-story-of-motown-records-ct) - Npr
+- [Tiny Desk Radio: Air, Igor Levit, Fito Páez](https://www.npr.org/2026/07/16/g-s1-133606/tiny-desk-radio-air-igor-levit-fito-paez) - NPR
+- [Tiny Desk Radio: Air, Igor Levit, Fito Páez - KCBX](https://www.kcbx.org/npr-top-news/2026-07-15/tiny-desk-radio-air-igor-levit-fito-paez) - Kcbx
+- [Tiny Desk Radio: Air, Igor Levit, Fito Páez - mynspr.org](https://www.mynspr.org/npr-news/2026-07-15/tiny-desk-radio-air-igor-levit-fito-paez) - Mynspr
+- [Tiny Desk Radio: Air, Igor Levit, Fito Páez - waer.org](https://www.waer.org/2026-07-16/tiny-desk-radio-air-igor-levit-fito-paez) - Waer
+- [Olivia Dean & The Killers Set to Headline Ocean Way Festival](https://extratv.com/2026/07/16/olivia-dean-and-the-killers-set-to-headline-ocean-way-festival/) - Extra
+- [New Music ‘Ocean Way Festival’ Coming To Santa Monica This September](https://www.forbes.com/sites/laurasirikul/2026/07/16/new-music-ocean-way-festival-coming-to-santa-monica-this-september/) - Forbes
+- [Goldenvoice's Ocean Way fest gets Olivia Dean, the Killers to Santa Monica. Take the E, there's no parking - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-07-16/goldenvoices-ocean-way-fest-gets-olivia-dean-killers-to-santa-monica-take-e-theres-no-parking) - Latimes
+- [Noga Erez Turns Turmoil Into Art](http://www.rollingstone.com/music/music-features/noga-erez-documentary-israel-war-backlash-art-1235590117/) - Rolling Stone
+- [Noga Erez and Ori Rousso share intimate details in new documentary ‘Noga’ - The Times of Israel](https://www.timesofisrael.com/noga-erez-and-ori-rousso-share-intimate-details-in-new-documentary-noga/) - Timesofisrael
+- [“Crazy, moving”: Noga Erez documentary charts music star's rise through tragedy and triumph - The Jerusalem Post](https://www.jpost.com/israel-news/culture/article-902161) - Jpost
+- [Unimpeded by war, Jerusalem Film Festival to open with strong international guest list - The Times of Israel](https://www.timesofisrael.com/unimpeded-by-war-jerusalem-film-festival-to-open-with-strong-international-guest-list/amp/) - Timesofisrael
+- [Band supporting Harry Styles nominated for major awards](https://www.the-independent.com/arts-entertainment/music/news/fcukers-independent-music-awards-nominations-list-b3016025.html) - The-independent.com
+- [Seven Reasons Why You Should See Jack White’s Tour Right Now](http://www.rollingstone.com/music/music-features/jack-white-tour-2026-white-stripes-solo-1235593493/) - Rolling Stone
+- [Lynyrd Skynyrd’s Classic Smash Rises To No. 1 For The First Time](https://www.forbes.com/sites/hughmcintyre/2026/07/16/lynyrd-skynyrds-classic-smash-rises-to-no-1-for-the-first-time/) - Forbes
+- [Who Is That Guy Singing ‘Lost Boys’ With Phoebe Bridgers on TV?](http://www.rollingstone.com/music/music-features/phoebe-bridgers-tonight-show-lost-boys-dan-reeder-1235594489/) - Rolling Stone
