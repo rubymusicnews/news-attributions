@@ -1,0 +1,28 @@
+# Sources for 2026-07-18 News Episode 
+- [The Rolling Stones match The Beatles’ record with 15th number one album](https://www.the-independent.com/arts-entertainment/music/rolling-stones-record-uk-the-beatles-b3017211.html) - The-independent.com
+- [Watch Miss Monique premiere her new Biorhythm audiovisual show at Tomorrowland 2026](https://djmag.com/news/watch-miss-monique-premiere-her-new-biorhythm-audiovisual-show-tomorrowland-2026) - DJ Mag
+- [Daughter From Hell: The 5 best tracks on Gracie Abrams’ new album](https://www.dazeddigital.com/music/article/70665/1/five-best-tracks-gracie-abrams-daughter-from-hell-new-album-review?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=daughter-from-hell-the-5-best-tracks-on-gracie-abrams-new-album) - Dazed
+- [Paul Mescal Is a Sad-Girl Songwriter Now](http://www.thecut.com/article/paul-mescal-gracie-abrams-songwriting.html) - The Cut
+- [Gracie Abrams: Daughter From Hell Album Review - Pitchfork](https://pitchfork.com/reviews/albums/gracie-abrams-daughter-from-hell/) - Pitchfork
+- [On Daughter From Hell, Gracie Abrams Is Her Own Greatest Obstacle: Review - Consequence of Sound](https://consequence.net/2026/07/gracie-abrams-daughter-from-hell-review/) - Consequence
+- [Gracie Abrams: Daughter from Hell review – bloodless anthems hit like a faceful of icing sugar - The Guardian](https://www.theguardian.com/music/2026/jul/13/gracie-abrams-daughter-from-hell-review) - Theguardian
+- [What It's Like Opening For Metallica (Ft. Evanescence's Amy Lee)](https://loudwire.com/amy-lee-evanescence-open-metallica-interview/) - Loudwire
+- [Like Mike withdraws from Tomorrowland set, announces touring break for health reasons](https://djmag.com/news/mike-withdraws-tomorrowland-set-announces-touring-break-health-reasons) - DJ Mag
+- [Like Mike Steps Away From Touring and Tomorrowland Due to Health Concerns - EDM](https://edm.com/news/like-mike-steps-away-touring-tomorrowland-health-concerns) - Edm
+- [Like Mike Pulls Out Of Tomorrowland, Ushuaïa Ibiza Appearances \| EDM Identity](https://edmidentity.com/2026/07/16/like-mike-cancels-tomorrowland-ushuaia) - Edmidentity
+- [18 New Rock + Metal Tours Announced This Past Week](https://loudwire.com/new-rock-metal-tours-announced-july-10-16-2026/) - Loudwire
+- [KPop Veteran Tiffany Young Announces Solo Album And Asia Tour](https://www.forbes.com/sites/hannahabraham/2026/07/17/kpop-veteran-tiffany-young-announces-solo-album-and-asia-tour/) - Forbes
+- [Ava Max Scores: The Pop Star on the World Cup, Her Favorite ABBA Song, and More](http://www.rollingstone.com/music/music-features/ava-max-energy-fifa-world-cup-interview-1235594478/) - Rolling Stone
+- [Post Malone Debuting Music At FIFA Closing?](https://www.spinmagazine.com/2026/07/post-malone-fifa/) - Spinmagazine.com
+- [World Cup final halftime break to be longer than usual because of halftime show](https://www.app.com/story/news/2026/07/17/fifa-extends-world-cup-final-halftime-break-to-accommodate-music-show/90955791007/) - Asbury Park Press
+- [Post Malone to headline closing ceremony for 2026 FIFA World Cup - Yahoo Sports](https://sports.yahoo.com/articles/post-malone-headline-closing-ceremony-043908321.html) - Yahoo
+- [Steve Lacy Told Us How ‘Oh Yeah?’ Would Happen. We Just Had to Wait a Year](http://www.rollingstone.com/music/music-features/steve-lacy-oh-yeah-love-songwriting-1235594602/) - Rolling Stone
+- [Wildfire Smoke Forces the Black Keys, Creed, and More to Postpone Concerts](http://www.rollingstone.com/music/music-news/wildfire-concerts-postponed-black-keys-john-mellencamp-1235594945/) - Rolling Stone
+- [Concerts and outdoor events around Chicagoland on hold as the haze from wildfire smoke lingers - Chicago Tribune](https://www.chicagotribune.com/2026/07/17/chicago-wildfire-smoke-cancellations/) - Chicagotribune
+- [The Olivia Tremor Control Announce The Same Place, First New Album in 27 Years](https://consequence.net/2026/07/olivia-tremor-control-new-album-the-same-place/) - Consequence.net
+- [The Olivia Tremor Control Detail First New Album in Over Two Decades](https://exclaim.ca/music/article/the-olivia-tremor-control-detail-first-new-album-in-over-two-decades) - Exclaim!
+- [William Shatner, 95, to play at legendary punk rock festival Riot Fest](https://www.the-independent.com/arts-entertainment/music/news/william-shatner-riot-fest-tickets-b3016721.html) - The-independent.com
+- [William Shatner will debut his new heavy metal band at Riot Fest - Chicago Tribune](https://www.chicagotribune.com/2026/07/16/william-shatner-riot-fest/) - Chicagotribune
+- [William Shatner joins 2026 Riot Fest lineup with new metal band - CBS News](https://www.cbsnews.com/chicago/video/william-shatner-joins-2026-riot-fest-lineup-with-new-metal-band/) - Cbsnews
+- [What to do in Chicago: Sharks at Shedd and concerts by Paul Simon, Melanie Martinez and Rush - Chicago Tribune](https://www.chicagotribune.com/2026/07/16/what-to-do-chicago-july18/) - Chicagotribune
+- [Leon Bridges Jams With Jungle On New Album](https://www.spinmagazine.com/2026/07/leon-bridges-jungle-new-album/) - Spinmagazine.com
