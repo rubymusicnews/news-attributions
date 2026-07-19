@@ -1,0 +1,22 @@
+# Sources for 2026-07-19 News Episode 
+- [(VIDEO) BTS Concert in Paris Draws Record 92,000 Fans as President Macron Attends Historic Show](https://www.ibtimes.com.au/bts-record-crowd-stade-de-france-concert-1872516) - Ibtimes.com.au
+- [Sebastian Ingrosso brings out Steve Angello during Tomorrowland mainstage set: Watch](https://djmag.com/news/sebastian-ingrosso-brings-out-steve-angello-during-tomorrowland-mainstage-set-watch) - DJ Mag
+- [(VIDEO) BTS Breaks Spotify Record With 'NORMAL' Music Video, Most-Streamed K-Pop Video in a Single Day](https://www.ibtimes.com.au/bts-normal-video-spotify-record-1872514) - Ibtimes.com.au
+- [BTS Hype ‘NORMAL’ Single Release With Tabloid-Style ‘Mysterious Late-Night Gathering’ Newspaper Ads - Billboard](https://www.billboard.com/music/pop/bts-normal-single-tabloid-late-night-gathering-newspaper-ads-1236293905/) - Billboard
+- [Taylor Swift Manages A Historic First On The Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/18/taylor-swift-manages-a-historic-first-on-the-charts/) - Forbes
+- [World Cup 2026 final: Spotlight on Chris Martin’s team and tactics for ‘halftime show’](https://www.irishtimes.com/culture/music/2026/07/18/world-cup-2026-final-spotlight-on-chris-martins-team-and-tactics-for-halftime-show/) - The Irish Times
+- [Who is in the World Cup halftime show? Full details and list of known performers for 2026 final - sportingnews.com](https://www.sportingnews.com/us/soccer/news/world-cup-halftime-show-details-performers-2026-final/ecafd0b6389b49c2764d1094) - Sportingnews
+- [Justin Bieber, Shakira, Madonna and BTS: What to expect at the World Cup final halftime show - Yahoo](https://www.yahoo.com/entertainment/music/article/justin-bieber-shakira-madonna-and-bts-what-to-expect-at-the-world-cup-final-halftime-show-185223257.html) - Yahoo
+- [Justin Bieber joins Madonna, Shakira and BTS for Fifa World Cup final half-time show - BBC](https://www.bbc.com/news/articles/c1wyx7g9e1do) - Bbc
+- [Justin Bieber, Shakira, Madonna and BTS: What to expect at the World Cup final halftime show that could break soccer's rules - Yahoo](https://www.yahoo.com/entertainment/music/article/justin-bieber-shakira-madonna-and-bts-what-to-expect-at-the-world-cup-final-halftime-show-that-could-break-soccers-rules-185223257.html) - Yahoo
+- [50 Years Ago Today: Yes and Peter Frampton Spark a Riot in San Diego](http://www.rollingstone.com/music/music-features/yes-peter-frampton-concert-riot-1976-1235592921/) - Rolling Stone
+- [Shakira Gifts Brooklyn Concert Tickets to Honorees & More Latin Music News](http://www.billboard.com/music/latin/shakira-tickets-ximena-sarinana-hispanic-heritage-belicofest-1236296712/) - Billboard
+- [Baffled fans, a mid-air stabbing and a very sneery director - a new film with unseen footage from the first ever pop tour of the Communist China reveals why Wham! saw red](https://www.dailymail.com/tvshowbiz/article-15985415/Unseen-footage-Communist-China-Wham-saw-red.html) - Dailymail.com
+- ['Wham! concerts changed lives in China' - Ridgeley - BBC](https://www.bbc.com/news/articles/c78glnk524lo) - Bbc
+- [Tems becomes first African female artist to clinch Diamond single in US](https://www.vanguardngr.com/2026/07/tems-becomes-first-african-female-artist-to-clinch-diamond-single-in-us/) - Vanguard
+- [How AI-Generated Songs Like ‘GG EZ’ Are Taking Over K-Pop Dance Challenges](https://www.forbes.com/sites/laurasirikul/2026/07/18/how-ai-generated-songs-like-gg-ez-are-taking-over-k-pop-dance-challenges/) - Forbes
+- [Music Industry Introduces Labels For Works That Use AI In Sound Recordings - Deadline](https://deadline.com/2026/07/music-ai-labels-recording-industry-1236979107/) - Deadline
+- [Bianca Censori Explores Power, Trauma, and the Burden of Kingship in New Video for Ye’s ‘King’](https://www.theroot.com/bianca-censori-explores-power-trauma-and-the-burden-o-2000115961) - The Root
+- [From Friends To Foes: A Timeline Of JAŸ-Z & Dame Dash’s Relationship](https://bossip.com/4603987/jay-z-dame-dash-relationship-timeline/) - Bossip
+- [Shania Twain Finally Plays Her Dream Gig: A Tiny Dive Bar in Toronto](http://www.rollingstone.com/music/music-country/shania-twain-surprise-concert-horseshoe-tavern-recap-1235595620/) - Rolling Stone
+- [Billboard - July 18, 2026](https://post.rlsbb.cc/billboard-july-18-2026/) - Rlsbb.cc
