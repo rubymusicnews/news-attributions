@@ -1,0 +1,34 @@
+# Sources for 2026-07-20 News Episode 
+- [PSY’s “Gangnam Style” Becomes 1st MV By Asian Artist To Hit 6 Billion Views](http://www.soompi.com/article/1855840wpp/psys-gangnam-style-becomes-1st-mv-by-asian-artist-to-hit-6-billion-views) - soompi
+- [Psy’s 'Gangnam Style' MV Sets K-Pop Record with 6 Billion YouTube Views - The Asia Business Daily](https://www.asiae.co.kr/en/article/entertainment-star/2026072010280487064) - Asiae
+- [BTS Makes History — Again — With ‘Dynamite’ Performance At The World Cup Halftime Show](https://www.forbes.com/sites/laurasirikul/2026/07/19/bts-makes-history---again---with-dynamite-performance-at-the-world-cup-halftime-show/) - Forbes
+- [BTS Lights Up The FIFA World Cup Halftime Show Like Dynamite](https://www.forbes.com/sites/hannahabraham/2026/07/19/bts-light-up-the-fifa-world-cup-halftime-show-like-dynamite/) - Forbes
+- [Is BTS back? These are the members (OT7) who will perform at the Spain vs Argentina World Cup final halftime show](https://en.as.com/soccer/is-bts-back-these-are-the-members-ot7-who-will-perform-at-the-spain-vs-argentina-world-cup-final-halftime-show-f202607-n/) - As.com
+- [The Best Parts of the 2026 FIFA World Cup Final (That Had Nothing to Do With the Match) - Vogue](https://www.vogue.com/article/the-best-parts-of-the-2026-fifa-world-cup-final-that-had-nothing-to-do-with-the-match) - Vogue
+- [When is BTS performing at the World Cup? Projected start time for 2026 FIFA halftime show - sportingnews.com](https://www.sportingnews.com/us/soccer/news/when-bts-performing-world-cup-projected-start-time-2026-fifa-halftime-show/7435c9a52882d6f40a1743cc) - Sportingnews
+- [Madonna, BTS and Bieber bring star power to World Cup halftime show - Reuters](https://www.reuters.com/sports/soccer/madonna-bts-bieber-bring-star-power-world-cup-halftime-show-2026-07-19/) - Reuters
+- [How to Disable Music Videos in Spotify](https://www.wired.com/story/how-to-disable-all-the-music-videos-in-spotify/) - Wired
+- [Creedence Clearwater Revival’s Classic Hit Brings The Band To One Chart For The First Time](https://www.forbes.com/sites/hughmcintyre/2026/07/19/creedence-clearwater-revivals-classic-hit-brings-the-band-to-one-chart-for-the-first-time/) - Forbes
+- [Creedence Clearwater Revival Reaches A New Peak On One Billboard Chart - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/07/18/creedence-clearwater-revival-reaches-a-new-peak-on-one-billboard-chart/) - Forbes
+- [Journey and Lynyrd Skynyrd return to the Hot 100 for first time in decades](https://ruralradio.com/kneb-am/abc_news/journey-and-lynyrd-skynyrd-return-to-the-hot-100-for-first-time-in-decades-abcidecc73ee0) - Ruralradio
+- [Drake Replaces Himself At No. 1 With A Milestone New Champion](https://www.forbes.com/sites/hughmcintyre/2026/07/19/drake-replaces-himself-at-no-1-with-a-milestone-new-champion/) - Forbes
+- [Soompi’s K-Pop Music Chart 2026, July Week 3](http://www.soompi.com/article/1855968wpp/soompis-k-pop-music-chart-2026-july-week-3) - soompi
+- [Jennifer Finch, L7 Bassist and Tireless Indie-Rock Champion, Dies After Battle With Brain Cancer](https://variety.com/2026/music/news/jennifer-finch-dead-l7-bassist-brain-cancer-1236815960/) - Variety
+- [Who was Jennifer Finch? L7 Bassist's Career, Dating History, Health Journey, and Death at 59](https://www.ibtimes.co.uk/remembering-jennifer-finch-l7-bassist-1809391) - International Business Times UK
+- [L7's Jennifer Finch Dead at 59](https://exclaim.ca/music/article/l7-s-jennifer-finch-dead-at-59) - Exclaim!
+- [L7 Bassist Jennifer Finch Dies Of Cancer](https://www.spinmagazine.com/2026/07/jennifer-finch-l7-obit/) - Spinmagazine.com
+- [L7 rocker Jennifer Finch dead at 59 days after announcing aggressive brain cancer battle](https://www.news.com.au/entertainment/music/rock-community-unites-to-support-l7-bassist-jennifer-finch-in-brain-cancer-fight/news-story/88b14164e541ac9f3388d507bf034baf) - News.com.au
+- [Jennifer Finch, L7 Bassist and Los Angeles Punk Figure, Dies at 59](http://www.billboard.com/music/rock/jennifer-finch-l7-bassist-dies-1236297297/) - Billboard
+- [L7 Bassist Jennifer Finch Dies at 59](https://pitchfork.com/story/l7-bassist-jennifer-finch-dies-at-59/) - Pitchfork
+- [L7 bassist Jennifer Finch passes away at 59 after battle with cancer](https://newsable.asianetnews.com/entertainment/l7-bassist-jennifer-finch-passes-away-at-59-after-battle-with-cancer-articleshow-pg1goon) - Asianetnews.com
+- [L7 Bassist Jennifer Finch Passes Aged 59 Shortly After Revealing Brain Cancer Diagnosis](http://www.metalunderground.com/news/details.cfm?newsid=161733) - Metalunderground.com
+- [Dave Grohl's daughter reacts to his ex Jennifer Finch's shock cancer death at 59… more than 30 years after Nirvana star dated the L7 bassist](https://www.dailymail.com/tvshowbiz/article-15988341/dave-grohl-daughter-violet-reacts-jennifer-finch-death.html) - Dailymail.com
+- [Enkay Ogboruche joins Recording Academy’s 2026 new member class](https://www.vanguardngr.com/2026/07/enkay-ogboruche-joins-recording-academys-2026-new-member-class/) - Vanguard
+- [Kool The Gang, nella Cavea dell'Auditorium i campioni della disco music](https://www.ansa.it/sito/notizie/cultura/musica/2026/07/19/kool-the-gang-nella-cavea-dellauditorium-i-campioni-della-disco-music_210e248b-0605-4fdf-903e-0c272522a75f.html) - ANSA.it
+- [Luke Combs at Slane Castle review: Country star burns bright despite mid-concert lull](https://www.irishtimes.com/culture/music/review/2026/07/19/luke-combs-at-slane-castle-review-country-star-burns-bright-despite-mid-concert-lull/) - The Irish Times
+- [Jim Gilstrap Death: Stevie Wonder ‘Good Times’ Vocalist Dies at 79](http://www.billboard.com/music/rb-hip-hop/jim-gilstrap-death-stevie-wonder-good-times-vocalist-dies-1236297595/) - Billboard
+- [Beloved R&B and soul singer dead at 79: ‘He never forgot his roots’ - Cleveland.com](https://www.cleveland.com/entertainment/2026/07/beloved-rb-and-soul-singer-dead-at-79-he-never-forgot-his-roots.html) - Cleveland
+- [Beloved R&B and soul singer dead at 79: ‘He never forgot his roots’ - AL.com](https://www.al.com/news/2026/07/beloved-rb-and-soul-singer-dead-at-79-he-never-forgot-his-roots.html) - Al
+- [Liam Gallagher Shuts Down Fan Asking for a New Oasis Album](https://loudwire.com/liam-gallagher-shuts-down-fan-new-oasis-album-valid-amusing-reason/) - Loudwire
+- [This unpronounceable series of glyphs is an incredible side project from Kieran Hebden (aka Four Tet)](https://www.theverge.com/entertainment/967696/four-tet-wingdings-album-review) - The Verge
+- [Garbage at Iveagh Gardens review: There’s a slightly rubbish moment in this exhilarating gig](https://www.irishtimes.com/culture/music/review/2026/07/19/garbage-at-iveagh-gardens-review-theres-a-slightly-rubbish-moment-in-this-exhilarating-gig/) - The Irish Times
