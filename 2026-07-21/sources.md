@@ -1,0 +1,28 @@
+# Sources for 2026-07-21 News Episode 
+- [Michael Jackson Posthumously Reaches A Milestone — Again](https://www.forbes.com/sites/hughmcintyre/2026/07/20/michael-jackson-posthumously-reaches-a-milestone---again/) - Forbes
+- [Mötley Crüe Kick Off 2026 North American Tour with 17-Song Set: Photos, Video + Setlist](https://consequence.net/2026/07/motley-crue-kick-off-2026-north-american-tour/) - Consequence.net
+- [Arca announces new album, 'XXXXX', shares new material: Listen](https://djmag.com/news/arca-announces-new-album-xxxxx-shares-new-material-listen) - DJ Mag
+- [Miley Cyrus’s Patriotic Song Hits A Milestone She Rarely Reaches](https://www.forbes.com/sites/hughmcintyre/2026/07/20/miley-cyruss-patriotic-song-hits-a-milestone-she-rarely-reaches/) - Forbes
+- [Miley Cyrus’s Early Career Smash Reaches A New Peak - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/07/19/miley-cyruss-early-career-smash-reaches-a-new-peak/) - Forbes
+- [Melissa Auf der Maur Unveils First New Music in 16 Years](https://pitchfork.com/story/melissa-auf-der-maur-unveils-first-new-music-in-16-years/) - Pitchfork
+- [Melissa Auf der Maur Digs Into Her Archive for First New Music in Over 15 Years](http://www.rollingstone.com/music/music-news/melissa-auf-der-maur-new-music-bass-womb-room-1235595950/) - Rolling Stone
+- [Melissa Auf der Maur Announces Album BASS WOMB ROOM, Featuring First New Music in Over 15 Years](https://consequence.net/2026/07/melissa-auf-der-maur-new-album-bass-womb-room/) - Consequence.net
+- [Melissa Auf der Maur Unearths ’90s Demos For New Collection](https://www.spinmagazine.com/2026/07/melissa-auf-der-maur-new-album/) - Spinmagazine.com
+- [Melissa Auf der Maur is Releasing Her First New Music in Over 15 Years to Accompany Her Photography Exhibit at the AGO - Billboard](https://ca.billboard.com/music/rock/melissa-auf-der-maur-bass-womb-room) - Billboard
+- [Kid Cudi Reveals He and Ye Are Rebuilding Their Friendship & Sees Them Collaborating in the Future: ‘One Day Soon For Sure’ - Billboard](https://ca.billboard.com/music/rb-hip-hop/kid-cudi-kanye-west-rebuilding-friendship-1236298145/) - Billboard
+- [Apple Music in iOS 27: Five new features coming to your iPhone](https://9to5mac.com/2026/07/20/apple-music-in-ios-27-five-new-features-coming-to-your-iphone/) - 9to5Mac
+- [iOS 27: My favorite new iPhone features (other than AI) - 9to5Mac](https://9to5mac.com/2026/07/14/ios-27-my-favorite-new-iphone-features-other-than-ai/) - 9to5mac
+- [50 Years Ago Today: The Band Warm Up for ‘The Last Waltz’ in Asbury Park](http://www.rollingstone.com/music/music-features/the-band-last-waltz-asbury-park-1235595345/) - Rolling Stone
+- [For Avalon Emerson, starting a band changed everything](https://www.npr.org/sections/world-cafe/2026/07/20/nx-s1-5900960/avalon-emerson-and-the-charm-album-written-into-changes) - NPR
+- [For Avalon Emerson, starting a band changed everything - Houston Public Media](https://www.houstonpublicmedia.org/npr/2026/07/20/nx-s1-5900960/for-avalon-emerson-starting-a-band-changed-everything/) - Houstonpublicmedia
+- [For Avalon Emerson, starting a band changed everything - WBOI](https://www.wboi.org/npr-news/2026-07-20/for-avalon-emerson-starting-a-band-changed-everything) - Wboi
+- [For Avalon Emerson, starting a band changed everything - Boise State Public Radio](https://www.boisestatepublicradio.org/music/2026-07-20/for-avalon-emerson-starting-a-band-changed-everything) - Boisestatepublicradio
+- [For Avalon Emerson, starting a band changed everything - Aspen Public Radio](https://www.aspenpublicradio.org/2026-07-20/for-avalon-emerson-starting-a-band-changed-everything) - Aspenpublicradio
+- [Toby Keith Misses Out On His First No. 1 On Multiple Charts By One Space](https://www.forbes.com/sites/hughmcintyre/2026/07/20/toby-keith-misses-out-on-his-first-no-1-on-multiple-charts-by-one-space/) - Forbes
+- [Madonna, Ella Langley, Toby Keith & More: Chart Highlights - Billboard](https://www.billboard.com/lists/madonna-ella-langley-chart-highlights-july-18-2026/) - Billboard
+- [Chart Final UPDATE: Bump 'n' Grindr - Hits Daily Double](https://www.hitsdailydouble.com/news/charts/top-50-2026-07-10) - Hitsdailydouble
+- [RUSH Rumored to Play Las Vegas Sphere Residency in 2027](https://consequence.net/2026/07/rush-las-vegas-sphere-residency-2027-report/) - Consequence.net
+- [Uncle Acid and the Deadbeats Announce Shapes of Midnight Album, Unveil Title Track: Stream](https://consequence.net/2026/07/uncle-acid-and-the-deadbeats-shapes-at-midnight/) - Consequence.net
+- [Tomahawk Play First Show in 13 Years as They Launch Tour with Melvins: Video + Setlists](https://consequence.net/2026/07/tomahawk-first-show-13-years-melvins-setlists/) - Consequence.net
+- [BUTTHOLE SURFERS: Remember When Their Name Was Shocking?](https://www.spinmagazine.com/?p=665772) - Spinmagazine.com
+- [Bebe Rexha flashes her lace bra as she struts her stuff in hotpants and fishnet tights while performing at World Cup final watch party in LA](https://www.dailymail.com/tvshowbiz/article-15990097/Bebe-Rexha-struts-stuff-hotpants-fishnet-tights-performing-World-Cup-final.html) - Dailymail.com
