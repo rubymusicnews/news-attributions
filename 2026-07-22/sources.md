@@ -1,0 +1,25 @@
+# Sources for 2026-07-22 News Episode 
+- [Eminem Brings Multiple Albums Back To The Same Chart Simultaneously](https://www.forbes.com/sites/hughmcintyre/2026/07/21/eminem-brings-multiple-albums-back-to-the-same-chart-simultaneously/) - Forbes
+- [Paul McCartney stuns fans on the Magical Mystery Tour as they spot the singer FaceTiming his bandmate Ringo Starr during the Beatles themed trip](https://www.dailymail.com/tvshowbiz/article-15993775/Paul-McCartney-stuns-fans-Magical-Mystery-Tour-spot-singer-FaceTiming-bandmate-Ringo-Starr-Beatles-themed-trip.html) - Dailymail.com
+- [Beatles Fans on Liverpool Tour Bus See Paul McCartney; Wait… It Gets Better - Best Classic Bands](https://bestclassicbands.com/mccartney-starr-beatles-fans-liverpool-tour-bus-7-20-26/) - Bestclassicbands
+- [Paul McCartney Shocks Fans With Surprise Cameo on Beatles’ Magical Mystery Tour in Liverpool - Yahoo](https://www.yahoo.com/entertainment/music/articles/paul-mccartney-shocks-fans-surprise-094545048.html) - Yahoo
+- [Shaboozey Recruits Gunna, Teyana Taylor, and…Sam Elliott for ‘Outlaw Cherie Lee’ Album](http://www.rollingstone.com/music/music-country/shaboozey-outlaw-cherie-lee-album-features-gunna-kehlani-1235596578/) - Rolling Stone
+- [Shaboozey Is Blending Country and Hip-Hop. His Training Helps Him Carry the Weight of Both. - Men's Health](https://www.menshealth.com/fitness/a71667552/shaboozey-strong-workout-interview/) - Menshealth
+- [Burna Boy ranked Africa’s best-selling artiste with 14.46m equivalent album units](https://www.vanguardngr.com/2026/07/burna-boy-ranked-africas-best-selling-artiste-with-14-46m-equivalent-album-units/) - Vanguard
+- [Chloé Caillet: rocking the dancefloor](https://djmag.com/features/chloe-caillet-rocking-dancefloor) - DJ Mag
+- [Chloé Caillet details Dance Again EP, reunites with Luke Alessi for “Change” single \| The Line of Best Fit](https://www.thelineofbestfit.com/news/chloe-caillet-details-dance-again-ep-reunites-with-luke-alessi-for-change-single) - Thelineofbestfit
+- [Harry Styles cancels Brazil gig at the last minute due to 'health issues' -  a month after he collapsed on stage during record-breaking Wembley run](https://www.dailymail.com/tvshowbiz/article-15993927/Harry-Styles-cancels-Brazil-gig-minute-health-issues-month-collapsed-stage-record-breaking-Wembley-run.html) - Dailymail.com
+- [Harry Styles’ Concert in Brazil Tonight Canceled Due to Unspecified ‘Tour Illness’ - Variety](https://variety.com/2026/music/news/harry-styles-concert-in-brazil-canceled-illness-1236817219/) - Variety
+- [WONHO’s New EP ‘CORE’ Is More Than Just His Abs — It’s His Music](https://www.forbes.com/sites/laurasirikul/2026/07/21/wonhos-new-ep-core-is-more-than-just-his-abs---its-his-music/) - Forbes
+- [Guns N’ Roses Conquered the Rock World with Appetite for Destruction](https://consequence.net/2026/07/guns-n-roses-appetite-for-destruction-album-anniversary/) - Consequence.net
+- [‘Gregg Allman: The Music of My Soul:’ 10 Things We Learned from New Documentary](http://www.rollingstone.com/music/music-features/gregg-allman-the-music-of-my-soul-documentary-revelations-1235595970/) - Rolling Stone
+- [Vince Staples Shouts Out Slain Black Panther Members in Tiny Desk Performance](https://pitchfork.com/story/vince-staples-npr-tiny-desk-performance/) - Pitchfork
+- [Surfing The Tube: Vince Staples Brings Cry Baby To NPR Tiny Desk Ladytron Shops For Neil Young, Massive Attack & More; Hulu Releases Trailer For “Nirvana the Band the Show”](https://glidemagazine.com/327933/surfing-the-tube-vince-staples-brings-cry-baby-to-npr-tiny-desk-ladytron-shops-for-neil-young-massive-attack-more-hulu-releases-trailer-for-nirvana-the-band-the-show/) - Glidemagazine
+- [Vince Staples: Tiny Desk Concert - NPR](https://www.npr.org/2026/07/21/g-s1-130909/vince-staples-tiny-desk-concert) - Npr
+- [Vince Staples: Tiny Desk Concert - WRVO](https://www.wrvo.org/2026-07-21/vince-staples-tiny-desk-concert) - Wrvo
+- [Vince Staples: Tiny Desk Concert - WFAE](https://www.wfae.org/2026-07-21/vince-staples-tiny-desk-concert) - Wfae
+- [John Lydon Will Never Forgive His Rotten Bandmates](http://www.vulture.com/article/john-lydon-will-never-forgive-or-reunite-with-sex-pistols.html) - Vulture
+- [11.3m people are interested in BBNO$’s upcoming Roblox concert](http://musically.com/2026/07/21/11-3m-people-are-interested-in-bbnos-upcoming-roblox-concert/) - Music Ally
+- [Dagmar Zuniga to Tour This Fall](https://pitchfork.com/story/dagmar-zuniga-to-tour-this-fall/) - Pitchfork
+- [Hatebreed Announce New Album Fatal Paradox, Unleash “Kill Count Increase”: Stream](https://consequence.net/2026/07/hatebreed-fatal-paradox-kill-count-increase/) - Consequence.net
+- [SELF DEFENSE FAMILY share first new music in six years - rocknloadmag.com](https://rocknloadmag.com/self-defense-family-fronted-by-drug-church-vocalist-patrick-kindlon-share-first-new-music-in-six-years-reclusion-single-out-today-via-run-for-cover-records/) - Rocknloadmag
