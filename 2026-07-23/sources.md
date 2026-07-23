@@ -1,0 +1,37 @@
+# Sources for 2026-07-23 News Episode 
+- [Taylor Swift’s Path To Becoming The Most-Nominated Act At The 2027 Grammys](https://www.forbes.com/sites/hughmcintyre/2026/07/22/taylor-swifts-path-to-becoming-the-most-nominated-act-at-the-2027-grammys/) - Forbes
+- [Shania Twain: ‘People Know I’m Inclusive’](http://www.rollingstone.com/music/music-features/shania-twain-interview-new-album-personal-life-1235595902/) - Rolling Stone
+- [Shania Twain on "Little Miss Twain" - CBS News](https://www.cbsnews.com/video/shania-twain-on-little-miss-twain/) - Cbsnews
+- [On ‘Little Miss Twain,’ Shania Twain reflects on her humble beginnings and her late mother - AP News](https://apnews.com/article/shain-twain-little-miss-twain-interview-0bcf3f3c1523f53d022f2416555d2b64) - Apnews
+- [On 'Little Miss Twain,' Shania Twain reflects on her humble beginnings and her late mother - Greenwich Time](https://www.greenwichtime.com/entertainment/article/on-little-miss-twain-shania-twain-reflects-on-22355346.php) - Greenwichtime
+- [Shania Twain: Little Miss Twain review – rootsy revival strays from the dirt track to the middle of the road - The Guardian](https://www.theguardian.com/music/2026/jul/20/shania-twain-little-miss-twain-review) - Theguardian
+- [The Rolling Stones – Foreign Tongues (Bonus Track Edition) (2026)](https://exystence.net/blog/2026/07/22/the-rolling-stones-foreign-tongues-2026/) - Exystence.net
+- [Review: The Rolling Stones / Foreign Tongues - SuperDeluxeEdition](https://superdeluxeedition.com/news/review-the-rolling-stones-foreign-tongues/) - Superdeluxeedition
+- [Every Rolling Stones album ranked, from worst to best - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-07-10/every-rolling-stones-album-ranked) - Latimes
+- [‘Foreign Tongues’ is the funniest Rolling Stones album in decades - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-07-10/rolling-stones-foreign-tongues-review) - Latimes
+- [The Rolling Stones are for the young - Boise State Public Radio](https://www.boisestatepublicradio.org/music/2026-07-16/the-rolling-stones-are-for-the-young) - Boisestatepublicradio
+- [Lily Allen Documentary Will Reflect on Singer’s Life and Career From MySpace to ‘West End Girl’](http://www.rollingstone.com/music/music-news/lily-allen-documentary-west-end-girl-myspace-1235597028/) - Rolling Stone
+- [Lily Allen Career-Spanning Documentary Coming to Prime Video in 2027](https://www.rollingstone.com/music/music-news/lily-allen-documentary-west-end-girl-myspace-1235597028) - Rollingstone
+- [Lily Allen documentary coming to Amazon Prime Video, will offer "intimate portrait of her life and career"](https://www.nme.com/news/film/lily-allen-documentary-coming-to-amazon-prime-video-will-offer-intimate-portrait-of-her-life-and-career-3958413) - Nme
+- [NME](https://www.nme.com?p=%2Fdiscussions%2Fp208) - Nme
+- [Lily Allen Documentary Set at Prime Video - Variety Australia](https://au.variety.com/2026/music/news/lily-allen-documentary-prime-video-38801/) - Variety
+- [Paul Oakenfold talks trance revival, creative evolution, and his next chapter [Interview]](https://earmilk.com/2026/07/22/paul-oakenfold-talks-trance-revival-creative-evolution-and-his-next-chapter-interview/) - Earmilk.com
+- [Prime Video Sets Launch Plans For Marília Mendonça Documentary ‘Sentimento Louco’](http://deadline.com/2026/07/marilia-mendonca-sentimento-louco-documentary-prime-video-1236999254/) - Deadline
+- [Prime Video Sets Launch Plans For Marília Mendonça Documentary ‘Sentimento Louco’](https://deadline.com/2026/07/marilia-mendonca-sentimento-louco-documentary-prime-video-1236999254/) - Deadline
+- [Syd Says the Internet’s New Album Is Almost Done — and It’s ‘Super Fire’](http://www.rollingstone.com/music/music-features/syd-the-internet-new-album-1235596826/) - Rolling Stone
+- [How Syd found new life as an old soul - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-07-23/syd-beard-odd-future-internet-raphael-saadiq) - Latimes
+- [Behind The Campaign: Dry Cleaning](https://musically.com/2026/07/22/behind-the-campaign-dry-cleaning/) - Music Ally
+- [Noname Teams With DRAM for New Single](https://pitchfork.com/story/noname-teams-with-dram-for-new-single-squatter/) - Pitchfork
+- [Noname Recalls a “Squatter” Who Moved into Her House on New Song: Stream](https://consequence.net/2026/07/noname-dram-new-song-squatter/) - Consequence.net
+- [Marilyn Manson Premieres New Music Video For "Front Toward Enemy" - Announces Additional "Antichrist Superstar" 30th Anniversary Shows](http://www.metalunderground.com/news/details.cfm?newsid=161748) - Metalunderground.com
+- [Stella Lefty—Groupon Billionaire's Daughter—Scores Breakthrough Hit On Billboard Charts](https://www.forbes.com/sites/conormurray/2026/07/22/stella-lefty-groupon-billionaires-daughter-scores-breakthrough-hit-on-billboard-charts/) - Forbes
+- [Country Music’s Newest Star Is A Groupon Billionaire’s Daughter](https://www.forbes.com/sites/conormurray/2026/07/22/stella-lefty-groupon-billionaires-daughter-scores-breakthrough-hit-on-billboard-charts) - Forbes
+- [Stella Lefty's “Boston” Is Projected to Reach a New Billboard Hot 100 Peak \| RGM](https://ratingsgamemusic.com/2026/07/20/boston-billboard-hot-100-top-3) - Ratingsgamemusic
+- [A Noah Kahan copycat is surging up the Billboard Hot 100](https://www.pastemagazine.com/music/stella-lefty/a-noah-kahan-copycat-is-surging-up-the-billboard-hot-100) - Pastemagazine
+- [The Only Known Footage Of A Classic Beatles Performance Was Saved By A Doctor Who Episode](https://www.tvline.com/2217346/classic-beatles-performance-footage-saved-doctor-who-episode/) - TVLine
+- [Nigel Godrich and Dhani Harrison Form Dragonflies, Release “Slower” Single: Stream](https://consequence.net/2026/07/nigel-godrich-dhani-harrison-dragonflies-album/) - Consequence.net
+- [South Korean singer Lim Kim traces a decade of self-discovery on new album ‘Exit to Nowhere’](https://abcnews.com/Entertainment/wireStory/south-korean-singer-lim-kim-traces-decade-discovery-134983246) - Abcnews.com
+- [South Korean singer Lim Kim traces a decade of self-discovery on new album ‘Exit to Nowhere’ - Midland Reporter-Telegram](https://www.mrt.com/entertainment/article/south-korean-singer-lim-kim-traces-a-decade-of-22355404.php) - Mrt
+- [South Korean singer Lim Kim traces a decade of self-discovery on new album ‘Exit to Nowhere’ - WKMG](https://www.clickorlando.com/entertainment/2026/07/22/south-korean-singer-lim-kim-traces-a-decade-of-self-discovery-on-new-album-exit-to-nowhere/) - Clickorlando
+- [South Korean singer Lim Kim traces a decade of self-discovery on new album ‘Exit to Nowhere’ - Greenwich Time](https://www.greenwichtime.com/entertainment/article/south-korean-singer-lim-kim-traces-a-decade-of-22355404.php) - Greenwichtime
+- [South Korean singer Lim Kim traces a decade of self-discovery on new album ‘Exit to Nowhere’ - News-Times](https://www.newstimes.com/entertainment/article/south-korean-singer-lim-kim-traces-a-decade-of-22355404.php) - Newstimes
