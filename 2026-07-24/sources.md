@@ -1,0 +1,40 @@
+# Sources for 2026-07-24 News Episode 
+- [THE WEEKND BECOMES THE FIRST ARTIST IN HISTORY TO SELL OUT SIX NIGHTS AT STADE DE FRANCE STADIUM IN PARIS FOR A SINGLE TOUR](https://www.prnewswire.com/news-releases/the-weeknd-becomes-the-first-artist-in-history-to-sell-out-six-nights-at-stade-de-france-stadium-in-paris-for-a-single-tour-302833259.html) - PRNewswire
+- [Bruno Mars Nearly Scores A Historic No. 1 — But One Of K-Pop’s Biggest Stars Stops Him](https://www.forbes.com/sites/hughmcintyre/2026/07/23/bruno-mars-nearly-scores-a-historic-no-1---but-one-of-k-pops-biggest-stars-stops-him/) - Forbes
+- [Fuji Rock 2026 Livestream Schedule and Details](https://pitchfork.com/story/fuji-rock-2026-livestream-schedule-and-details/) - Pitchfork
+- [フジロック26、本日24日開幕　Amazonが無料生配信](https://k-tai.watch.impress.co.jp/docs/news/2127316.html) - Impress.co.jp
+- [Fuji Rock 2026 Livestream Schedule and Details \| Pitchfork](https://pitchfork.com/story/fuji-rock-2026-livestream-schedule-and-details) - Pitchfork
+- [Apple, Amazon Lock In Festival Streaming Rights as Platform Battle Heats Up](https://www.techtimes.com/articles/320765/20260716/apple-amazon-lock-festival-streaming-rights-platform-battle-heats.htm) - Techtimes
+- [Palms Trax shares first new single in five years, ‘Soft Trance, Hard Gossip’: Listen](https://djmag.com/news/palms-trax-shares-first-new-single-five-years-soft-trance-hard-gossip-listen) - DJ Mag
+- [Palms Trax shares first new music in five years](https://dancewax.net/2026/07/23/palms-trax-shares-first-new-music-in-five-years-soft-trance-hard-gossip) - Dancewax
+- [Die Meta-Meta-Kunst von Charli xcx macht einen völlig kirre](https://www.welt.de/kultur/pop/article6a58a6e77a35912eb9adc0de/album-music-fashion-film-die-meta-meta-kunst-von-charli-xcx-macht-einen-voellig-kirre.html) - DIE WELT
+- [Charli xcx follows Brat with her most reflective album yet](https://www.abc.net.au/news/2026-07-24/charli-xcx-music-fashion-film/106949608) - ABC News (AU)
+- [The Rebranding of Charli XCX](http://www.vulture.com/article/the-rebranding-of-charli-xcx.html) - Vulture
+- [Charli xcx Schedules a 'Conversation' About Songwriting With N.Y. Fans - Billboard](https://www.billboard.com/music/rock/charli-xcx-conversation-new-york-creative-process-1236235509/) - Billboard
+- [Not another ‘Brat Summer’: Charli xcx steps into a new, grittier era with her guitar-heavy project, ‘Music, Fashion, Film,’ out tomorrow](https://www.yahoo.com/entertainment/music/article/not-another-brat-summer-charli-xcx-steps-into-a-new-grittier-era-with-her-guitar-heavy-project-music-fashion-film-out-tomorrow-205252044.html) - Yahoo
+- [Charli XCX Unveils 'Music, Fashion, Film' Album Track List](https://www.rollingstone.com/music/music-news/charli-xcx-music-fashion-film-album-track-list-1235590369) - Rollingstone
+- [Charli XCX Brings in the Post-‘Brat’ Era With ‘Music, Fashion, Film’](https://www.hollywoodreporter.com/music/music-news/charli-xcx-releases-music-fashion-film-album-1236655613) - Hollywoodreporter
+- [Charli xcx Directs the Action in ‘Camera’ Music Video Starring Vincent Cassel - Billboard](https://ca.billboard.com/music/pop/charli-xcx-camera-video-vincent-cassel-1236299868/) - Billboard
+- [Decoding Charli XCX's new album, Music, Fashion, Film - BBC](https://www.bbc.com/news/articles/c151zp1p4qyo) - Bbc
+- [Every subtle Music, Fashion and Film reference in Charli XCX’s new album, explained - Vogue Australia](https://www.vogue.com.au/culture/features/charli-xcx-music-fashion-film/news-story/31f091cee7dbddc97ad3bc526e7103d3) - Vogue
+- [“Gallops like The Trooper and evokes Iron Maiden’s double-lead-guitar histrionics”: Mongol champions The Hu take after their hard rock heroes on long-awaited new album Hun](https://www.loudersound.com/reviews/the-hu-hun-album-review) - Louder
+- [FROM BELGIUM TO IBIZA AND BEYOND: VELO* AND TOMORROWLAND CELEBRATE SELF-EXPRESSION WITH "ECHOES OF TOMORROWLAND"](https://www.prnewswire.com/news-releases/from-belgium-to-ibiza-and-beyond-velo-and-tomorrowland-celebrate-self-expression-with-echoes-of-tomorrowland-302833157.html) - PRNewswire
+- [Jason Aldean Charts His First Radio Top 10 Decades After Becoming A Country Star](https://www.forbes.com/sites/hughmcintyre/2026/07/23/jason-aldean-charts-his-first-radio-top-10-decades-after-becoming-a-country-star/) - Forbes
+- [Jason Aldean Charts His First Radio Top 10 Decades After Becoming A Country Star](https://www.forbes.com/sites/hughmcintyre/2026/07/23/jason-aldean-charts-his-first-radio-top-10-decades-after-becoming-a-country-star) - Forbes
+- [Shreya Ghoshal to play London venue The O2’s 20th birthday concert series in 2027](https://musically.com/2026/07/23/shreya-ghoshal-to-play-london-venue-the-o2s-20th-birthday-concert-series-in-2027/) - Music Ally
+- [In anteprima mondiale a Venezia Don't look back in anger degli Oasis](https://www.ansa.it/sito/notizie/cultura/musica/2026/07/23/in-anteprima-mondiale-a-venezia-dont-look-back-in-anger-degli-oasis_d25d83c5-fae5-4f06-8553-d8d9c67ac2a9.html) - ANSA.it
+- [In anteprima mondiale a Venezia Don't look back in anger degli Oasis](https://www.ansa.it/sito/notizie/cultura/cinema/2026/07/23/in-anteprima-mondiale-a-venezia-dont-look-back-in-anger-degli-oasis_59e03aae-241b-4ce5-873d-9efedf6559d2.html) - ANSA.it
+- [Oasis Tour Documentary to Release in Imax and Movie Theaters Before Disney+ Launch - Variety](https://variety.com/2026/film/global/oasis-tour-doc-release-imax-and-movie-theaters-disney-1236741639/) - Variety
+- [Oasis Tour Documentary to Release in Imax and Movie Theatres Before Disney+ Launch - Variety Australia](https://au.variety.com/2026/film/news/oasis-tour-doc-release-imax-and-movie-theaters-disney-36376/) - Variety
+- [Murdoch and Musk in the crosshairs at Venice film festival - The Guardian](https://www.theguardian.com/film/2026/jul/23/venice-film-festival-lineup-2026-danny-boyle) - Theguardian
+- [A 4-hour Elon Musk documentary and a dark CIA comedy lead Venice Film Festival lineup - AP News](https://apnews.com/article/venice-film-festival-lineup-musk-gyllenhaal-awards-2f9851945d46b0855b51e95c29b344c4) - Apnews
+- [Ella Langley Reaches A Rare Milestone On One Of The Top Charts In America](https://www.forbes.com/sites/hughmcintyre/2026/07/23/ella-langley-reaches-a-rare-milestone-on-one-of-the-top-charts-in-america/) - Forbes
+- [Gen Z’s ‘Jolene’ Is Here](https://www.theatlantic.com/culture/2026/07/ella-langley-gen-z-popular/688027/) - The Atlantic
+- [Ella Langley Ties Miley Cyrus, Charli XCX And ‘Encanto’ - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/07/11/ella-langley-ties-miley-cyrus-charli-xcx-and-encanto/) - Forbes
+- [Ella Langley’s ‘Choosin’ Texas’ Makes More History With 14th Week at No. 1 on Billboard Hot 100 - Billboard](https://www.billboard.com/lists/ella-langley-choosin-texas-hot-100-number-one-14th-week/) - Billboard
+- [Listen to an Unvaulted John Prine Song From Archival Album Found Dogs](https://pitchfork.com/story/listen-to-an-unvaulted-john-prine-song-from-archival-album-found-dogs/) - Pitchfork
+- [The War and Treaty: Tiny Desk Concert](https://www.npr.org/2026/07/23/g-s1-132175/the-war-and-treaty-tiny-desk-concert) - NPR
+- [The War and Treaty: Tiny Desk Concert - Radio Milwaukee](https://radiomilwaukee.org/concerts/2026-07-23/the-war-and-treaty-tiny-desk-concert) - Radiomilwaukee
+- [The War and Treaty: Tiny Desk Concert - Boise State Public Radio](https://www.boisestatepublicradio.org/music/2026-07-23/the-war-and-treaty-tiny-desk-concert) - Boisestatepublicradio
+- [The War and Treaty: Tiny Desk Concert - NPR for Oregonians](https://www.klcc.org/npr-music/2026-07-23/the-war-and-treaty-tiny-desk-concert) - Klcc
+- [Gloria de Oliveira details third album, The Lying Swans](https://www.thelineofbestfit.com/news/gloria-de-oliveira-details-third-album-the-lying-swans) - Thelineofbestfit.com
