@@ -1,0 +1,40 @@
+# Sources for 2026-07-25 News Episode 
+- [Rihanna’s Dance-Pop Smash Passes One Of Her Most Sultry Hits](https://www.forbes.com/sites/hughmcintyre/2026/07/24/rihannas-dance-pop-smash-passes-one-of-her-most-sultry-hits/) - Forbes
+- [Martin Garrix, U2 ‘Fire’ Up First Collaboration](https://www.spinmagazine.com/2026/07/martin-garrix-u2-new-song/) - Spinmagazine.com
+- [Martin Garrix and U2 Release new Collaboration 'Fireflies'](https://www.edmtunes.com/2026/07/martin-garrix-and-u2-release-fireflies-after-tomorrowland-debut) - Edmtunes
+- [Watch Martin Garrix and U2 Debut Unreleased Collaboration, 'Fireflies' at Tomorrowland - EDM](https://edm.com/music-releases/watch-martin-garrix-u2-debut-unreleased-collaboration-fireflies-tomorrowland) - Edm
+- [Hear U2, Martin Garrix Team Up for Anthemic Single ‘Fireflies’](https://www.rollingstone.com/music/music-news/u2-martin-garrix-fireflies-single-1235598269) - Rollingstone
+- [Martin Garrix Debuts U2 Collab ‘Fireflies’ With The Edge at Tomorrowland in Belgium](https://www.billboard.com/music/music-news/martin-garrix-fireflies-u2-edge-tomorrowland-1236297377) - Billboard
+- [Ariana Grande Extends Her Chart Record With Another Top 10 Smash](https://www.forbes.com/sites/hughmcintyre/2026/07/24/ariana-grande-extends-her-chart-record-with-another-top-10-smash/) - Forbes
+- [Ariana Grande Extends Her Chart Record With Another Top 10 Smash](https://www.forbes.com/sites/hughmcintyre/2026/07/24/ariana-grande-extends-her-chart-record-with-another-top-10-smash) - Forbes
+- [Ariana Grande Extends Her Chart Record With Another Top 10 Smash - Yahoo News Canada](https://ca.news.yahoo.com/ariana-grande-extends-her-chart-141500734.html) - Yahoo
+- [Pabllo Vittar details her first English and Spanish-language album Lost In Lust](https://www.thelineofbestfit.com/news/pabllo-vittar-details-her-first-english-and-spanish-language-album-lost-in-lust) - Thelineofbestfit.com
+- [Nuno Bettencourt Regrets Turning Down Ozzy Osbourne Guitarist Gig: “F**k Me”](https://consequence.net/2026/07/nuno-bettencourt-ozzy-guitarist-gig-biggest-regret/) - Consequence.net
+- [Sleep Token’s 2023 LP Is Now Certified Platinum](https://www.forbes.com/sites/quentinsinger/2026/07/24/sleep-tokens-2023-lp-is-now-certified-platinum/) - Forbes
+- [SLEEP TOKEN Earns First RIAA Platinum Album Certification](https://metalinjection.net/news/sleep-token-earns-first-riaa-platinum-album-certification) - Metalinjection
+- [SLEEP TOKEN's 'Take Me Back To Eden' Album Certified Platinum In U.S. - BLABBERMOUTH.NET](https://blabbermouth.net/news/sleep-tokens-take-me-back-to-eden-album-certified-platinum-in-u-s) - Blabbermouth
+- [SLEEP TOKEN's "Take Me Back To Eden" Earns Platinum Certification In The U.S.](https://www.sonicperspectives.com/news/sleep-tokens-take-me-back-to-eden-earns-platinum-certification-in-the-u-s?amp=1) - Sonicperspectives
+- [Sleep Token's 'Take Me Back To Eden' Earns RIAA Platinum Certification](https://numetalagenda.com/news/story/sleep-tokens-take-me-back-to-eden-earns-riaa-platinum-certification) - Numetalagenda
+- [Sleep Token goes platinum with "Take Me Back To Eden"](https://chaoszine.net/sleep-token-goes-platinum-with-take-me-back-to-eden) - Chaoszine
+- [Bon Jovi Abruptly Ends 8th MSG Show - 'I’m F--king Hurting'](https://ultimateclassicrock.com/bon-jovi-ends-show-hurting/) - Ultimate Classic Rock
+- [Jon Bon Jovi abruptly ends show at Madison Square Garden](https://pagesix.com/2026/07/23/celebrity-news/jon-bon-jovi-abruptly-ends-show-at-madison-square-garden/) - Page Six
+- [Bon Jovi cuts Madison Square Garden concert short. Here's why - USA Today](https://www.usatoday.com/story/entertainment/music/2026/07/23/bon-jovi-madison-square-garden-cuts-concert-short-sinus-infection/91032519007/) - Usatoday
+- [Jon Bon Jovi abruptly ends Madison Square Garden concert - New York Daily News](https://www.nydailynews.com/2026/07/24/jon-bon-jovi-madison-square-garden-concert-ends-early/) - Nydailynews
+- [Bon Jovi abruptly ends Madison Square Garden Concert early - ABC News - Breaking News, Latest News and Videos](https://abcnews.com/GMA/Culture/bon-jovi-abruptly-ends-madison-square-garden-concert/story?id=135045571) - Abcnews
+- [Meistverkaufte Alben: Oasis überholen die Beatles](https://www.faz.net/aktuell/gesellschaft/menschen/meistverkaufte-alben-oasis-ueberholen-die-beatles-accg-201058787.html) - Faz.net
+- [Oasis overtake The Beatles in all-time UK album chart - BBC](https://www.bbc.com/news/articles/cy9wq778dvzo) - Bbc
+- [New Music Friday: The best albums out July 24](https://www.npr.org/2026/07/24/nx-s1-5902954/new-music-friday-best-albums-july-24-2026) - NPR
+- [New Music Friday: The best albums out July 24 - Louisville Public Media](https://www.lpm.org/music/2026-07-24/new-music-friday-the-best-albums-out-july-24) - Lpm
+- [Ministry Announce Final Album and Farewell Tour, Unleash Single “Burned Out”: Stream](https://consequence.net/2026/07/ministry-final-album-farewell-tour-single-burned-out/) - Consequence.net
+- [Ministry Premiere New Single & Music Video "Burned Out" From Upcoming Farewell Album "Hate To Go – Take Out Or Delivery"](http://www.metalunderground.com/news/details.cfm?newsid=161776) - Metalunderground.com
+- [Ministry Announce Final Album (Again) + 2027 Farewell Tour Dates](https://loudwire.com/ministry-hate-to-go-album-farerwell-tour/) - Loudwire
+- [EXCLUSIVE: Mick Jagger Death Fears Erupt as Rolling Stones Frontman, 82, Declares There's No Upside to Growing Old](https://radaronline.com/p/mick-jagger-growing-old-death-fears-aging/) - Radaronline.com
+- [Mick Jagger, 82, rejects the idea that aging makes you wiser: 'There's nothing good about it' - Business Insider](https://www.businessinsider.com/mick-jagger-aging-still-wants-to-tour-rolling-stones-80s-2026-7) - Businessinsider
+- [Mick Jagger doesn't want to 'lecture' fans, says his job is to make people 'have the best time' - Fox News](https://www.foxnews.com/entertainment/mick-jagger-doesnt-want-lecture-fans-says-job-make-people-best-time) - Foxnews
+- [Inside Sinéad O'Connor's Tragic Life: Singer Struggled With Mental Illness and Claims She Was Severely Abused by 'Possessed' Mother in Childhood](https://radaronline.com/p/sinead-oconnor-struggled-mental-illness-abused-by-mother-childhood/) - Radaronline.com
+- [„Amerikanische Drag-Kunst ist ziemlich außergewöhnlich und großartig“](https://www.welt.de/iconist/gesellschaft/article6a5e5e1ebda7f6883b0daad0/adam-lambert-vom-castingstar-zum-gefeierten-queen-frontmann-eine-reise-voller-herausforderungen-und-erfolge.html) - DIE WELT
+- [Adam Lambert looks back: ‘I couldn’t pass up on joining Queen – even if the fans were protective of Freddie’ - The Guardian](https://www.theguardian.com/lifeandstyle/2026/jul/19/adam-lambert-looks-back-queen-freddie-mercury) - Theguardian
+- [Shania Twain reveals she skipped Taylor Swift's wedding because she was performing on stage with her ex Harry Styles](https://www.dailymail.com/tvshowbiz/article-16002009/Shania-Twain-skipped-Taylor-Swift-wedding-Harry-Styles.html) - Dailymail.com
+- [Shania Twain missed Taylor Swift’s wedding because she was already ‘committed’ to one of the bride’s exes - Entertainment Weekly](https://ew.com/shania-twain-missed-taylor-swift-wedding-thanks-to-one-of-her-exes-12019052) - Ew
+- [Shania Twain reveals why she didn't attend Taylor Swift, Travis Kelce's wedding - USA Today](https://www.usatoday.com/story/entertainment/celebrities/2026/07/14/shania-twain-taylor-swift-travis-kelce-wedding/90914581007/) - Usatoday
+- [Shania Twain pokes fun at missing Taylor Swift and Travis Kelce’s wedding for one of the bride’s exes - Page Six](https://pagesix.com/2026/07/14/entertainment/shania-twain-pokes-fun-at-missing-taylor-swift-and-travis-kelces-wedding-for-brides-ex/) - Pagesix
