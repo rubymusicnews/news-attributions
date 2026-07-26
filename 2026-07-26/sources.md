@@ -1,0 +1,34 @@
+# Sources for 2026-07-26 News Episode 
+- [Karol G’s Viajando Por El Mundo Tropitour Is a Bold, Joyous Ode to Latina Power](http://www.rollingstone.com/music/music-latin/karol-g-viajando-por-el-mundo-tropitour-set-list-review-1235598839/) - Rolling Stone
+- [Karol G Celebrates Global Stadium Tour With Unapologetic New Song ‘Matadora’](http://www.rollingstone.com/music/music-latin/karol-g-new-song-matadora-tropitour-kickoff-1235598121/) - Rolling Stone
+- [Remembering Sick of It All’s Lou Koller, New York Hardcore’s Best Ambassador](http://www.rollingstone.com/music/music-features/sick-of-it-all-lou-koller-tribute-1235598810/) - Rolling Stone
+- [Punk rock legend Lou Koller dead at 59 after cancer battle - Page Six](https://pagesix.com/2026/07/25/celebrity-news/punk-rock-legend-lou-koller-dead-at-59-after-cancer-battle/) - Pagesix
+- [Sick Of It All singer Lou Koller dead at 59 - Louder](https://www.loudersound.com/bands-artists/sick-of-it-all-singer-lou-koller-dead-at-59) - Loudersound
+- [Lou Keller, frontman of New York hardcore band Sick of It All, dies aged 59 - The Guardian](https://www.theguardian.com/us-news/2026/jul/25/lou-keller-sick-of-it-all-dies-aged-59) - Theguardian
+- [Lou Koller, frontman for NY hardcore icons Sick of It All, dead at 59 - New York Post](https://nypost.com/2026/07/25/us-news/lou-koller-frontman-for-new-york-hardcore-icons-sick-of-it-all-dead-at-59/?utm_campaign=nypost&utm_medium=referral) - Nypost
+- [Orville Peck Reveals Suicide Attempt Before Canceling 2023 Tour](http://www.billboard.com/music/music-news/orville-peck-suicide-attempt-before-canceling-2023-tour-1236303015/) - Billboard
+- [Orville Peck reveals 2023 suicide attempt after overdose: ‘It was a big turning point for me’ - Page Six](https://pagesix.com/2026/07/24/celebrity-news/orville-peck-reveals-2023-suicide-attempt-after-overdose/) - Pagesix
+- [Orville Peck Announces New Album Mule, 2026 North American Fall Tour - Consequence of Sound](https://consequence.net/2026/07/orville-peck-new-album-mule-2026-tour-dates/) - Consequence
+- [Orville Peck Opens Up About Suicide Attempt Before Canceling 2023 Tour: ‘A Big Turning Point for Me’ - Billboard](https://ca.billboard.com/music/music-news/orville-peck-suicide-attempt-before-canceling-2023-tour-1236303015/) - Billboard
+- [Bon Iver’s Justin Vernon Performs Entire Set of Bob Dylan Covers at Eaux Claires Fest](http://www.rollingstone.com/music/music-news/bon-iver-justin-vernon-bob-dylan-covers-set-eaux-claires-1235598818/) - Rolling Stone
+- [Bon Dylan review – Justin Vernon’s Bob Dylan covers set brings magic to Wisconsin  \| Bon Iver \| The Guardian](https://www.theguardian.com/music/2026/jul/25/bon-iver-bob-dylan-wisconsin-eauxs-claire) - Theguardian
+- [Davido sets London premiere date for ‘Oriade’ album](https://punchng.com/davido-sets-london-premiere-date-for-oriade-album/) - The Punch
+- [Roxette Cancels 40th Anniversary Tour of North American Amphitheaters, Citing ‘Hugely Increased Touring Costs’](https://variety.com/2026/music/news/roxette-cancels-tour-in-north-america-touring-costs-1236820989/) - Variety
+- [Roxette Cancel North American Tour](https://exclaim.ca/music/article/roxette-cancel-north-american-tour) - Exclaim!
+- [Swedish Pop Duo Roxette Cancels 40th Anniversary North American Tour](https://deadline.com/2026/07/roxette-tour-1237003559) - Deadline
+- [Roxette cancels 40th anniversary US tour - Music News \| Music-News.com](https://www.music-news.com/news/UK/190316/Roxette-cancels-40th-anniversary-US-tour) - Music-news
+- [Roxette's North American Tour Canceled Amid High Costs and Low Demand - SSBCrack News](https://news.ssbcrack.com/roxettes-north-american-tour-canceled-amid-high-costs-and-low-demand) - Ssbcrack
+- [The Making of a Global Starr: Ayra Starr Closed Out Teen Vogue Fest 2026](https://www.teenvogue.com/story/ayra-starr-teen-vogue-fest-2026) - Teen Vogue
+- [Wham! 10 Days in China: George Michael and Andrew Ridgeley deliver a seismic culture shock](https://www.irishtimes.com/culture/film/2026/07/25/wham-10-days-in-china-george-michael-and-andrew-ridgeley-deliver-a-seismic-culture-shock/) - The Irish Times
+- [Wham! Star Andrew Ridgeley Makes Rare Public Appearance [PHOTO]](https://www.yahoo.com/entertainment/music/articles/wham-star-andrew-ridgeley-makes-150021922.html) - Yahoo
+- [Wham!'s China gamble and legacy revealed in documentary](https://www.reuters.com/video/watch/idRW008122072026RP1) - Reuters
+- [“You’re watching a lot of this film through your fingers”: We speak to director Mike Christie about bringing Wham!’s groundbreaking 1985 China trip back to life in a captivating new film \| MusicRadar](https://www.musicradar.com/artists/youre-watching-a-lot-of-this-film-through-your-fingers-we-speak-to-director-mike-christie-about-bringing-wham-s-groundbreaking-1985-china-trip-back-to-life-in-a-captivating-new-film) - Musicradar
+- ['Wham! concerts changed lives in China' - Ridgeley - BBC](https://www.bbc.com/news/articles/c78glnk524lo) - Bbc
+- [Avenged Sevenfold Premiere Full-Album Stream Of New EP "STATICA"](http://www.metalunderground.com/news/details.cfm?newsid=161783) - Metalunderground.com
+- [Bruce Springsteen is a 'bitter old man' slammed by fellow rockers for 'dissing his own country': Insiders reveal what's behind shift that turned The Boss into The BORE](https://www.dailymail.com/tvshowbiz/article-16000581/bruce-springsteen-politics-bitter-feuds.html) - Dailymail.com
+- [Journey rocker slams Bruce Springsteen as ‘annoying, bitter old man’ for political rants at concerts - New York Post](https://nypost.com/2026/07/21/us-news/journey-rocker-jonathan-cain-slams-bruce-springsteen-as-annoying-bitter-old-man/) - Nypost
+- [Jonathan Cain Says Bruce Springsteen Is an 'Annoying, Bitter Old Man' - Ultimate Classic Rock](https://ultimateclassicrock.com/jonathan-cain-bruce-springsteen-shut-up-politics/) - Ultimateclassicrock
+- [Journey Musician Melts Down at Star Being Mean to Trump - The Daily Beast](https://www.thedailybeast.com/obsessed/journey-musician-jonathan-cain-melts-down-at-bruce-springsteen-for-being-mean-to-trump/) - Thedailybeast
+- [Country star Kacey Musgraves mysteriously cancels 3 tour dates — including opening night](https://pagesix.com/2026/07/25/entertainment/kacey-musgraves-cancels-3-tour-dates-including-opening-night/) - Page Six
+- [Insomnium Premiere New Single & Music Video "Gleam In The Black" From Upcoming New Album "Netherworlds"](http://www.metalunderground.com/news/details.cfm?newsid=161785) - Metalunderground.com
+- [EXCLUSIVE: The Ultimate Afrobeats Summer Playlist, Curated by Odeal](https://www.theroot.com/exclusive-the-ultimate-afrobeats-summer-playlist-cura-2000118020) - The Root
