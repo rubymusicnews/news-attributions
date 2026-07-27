@@ -1,0 +1,30 @@
+# Sources for 2026-07-27 News Episode 
+- [Drake Blocks Future From A New No. 1 Hit On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/26/drake-blocks-future-from-a-new-no-1-hit-on-multiple-charts/) - Forbes
+- [‘I’m obsessed’ – Shakira on why she chose Burna Boy for World Cup song](https://www.vanguardngr.com/2026/07/im-obsessed-shakira-on-why-she-chose-burna-boy-for-world-cup-song/) - Vanguard
+- [10 songs to get hyped for the World Cup final - Greenwich Time](https://www.greenwichtime.com/sports/article/10-songs-to-get-hyped-for-the-world-cup-final-22349271.php) - Greenwichtime
+- [Chris Brown returns to the stage for raunchy show in Nashville hours after pleading guilty to attacking music producer in a Mayfair nightclub](https://www.dailymail.com/tvshowbiz/article-16006239/Chris-Brown-returns-stage-Nashville-pleading-guilty-attacking-music-producer.html) - Dailymail.com
+- [Singer Chris Brown pleads guilty to affray over an altercation at a London nightclub - NBC News](https://www.nbcnews.com/world/europe/singer-chris-brown-pleads-guilty-affray-altercation-london-rcna589037) - Nbcnews
+- [Singer Chris Brown pleads guilty to brawling at a London nightclub - Chicago Tribune](https://www.chicagotribune.com/2026/07/24/chris-brownbrawling-london-nightclub/) - Chicagotribune
+- [Singer Chris Brown pleads guilty over bottle attack at a London nightclub - NBC New York](https://www.nbcnewyork.com/entertainment/entertainment-news/chris-brown-pleads-guilty-bottle-attack-london-nightclub/6530054/?amp=1) - Nbcnewyork
+- [Chris Brown pleads guilty to affray over bottle attack - BBC](https://www.bbc.com/news/articles/c3w01e37v9vo) - Bbc
+- [US singer Chris Brown pleads guilty to affray over London nightclub incident - Reuters](https://www.reuters.com/world/us-singer-chris-brown-pleads-guilty-affray-assault-charges-not-going-trial-2026-07-24/) - Reuters
+- [Timmy Trumpet confirms new album featuring four tracks with singer John Martin](https://djmag.com/news/timmy-trumpet-confirms-new-album-featuring-four-tracks-singer-john-martin) - DJ Mag
+- [John Mayer Reaches New Career Peaks With His New Country Smash](https://www.forbes.com/sites/hughmcintyre/2026/07/26/john-mayer-reaches-new-career-peaks-with-his-new-country-smash/) - Forbes
+- [Nepo baby stuns Lionel Richie during American Idol audition - can YOU guess who his very famous father is?](https://www.dailymail.com/tvshowbiz/article-16006131/Nepo-baby-Lionel-Richie-American-Idol.html) - Dailymail.com
+- [“Padam Padam” Separates the Party People from the Homebodies](https://www.newyorker.com/culture/songs-of-summer/padam-padam-separates-the-party-people-from-the-homebodies) - The New Yorker
+- [Novah weighs in on phones on the dancefloor: “You can’t enjoy the music when you’re filming”](https://djmag.com/news/novah-weighs-phones-dancefloor-you-cant-enjoy-music-when-youre-filming) - DJ Mag
+- [Listen to Michael Stipe’s New Song “Hum Desiderata”](https://pitchfork.com/story/listen-to-michael-stipes-new-song-hum-desiderata/) - Pitchfork
+- [KATIE HIND: Simon Cowell told me he was FURIOUS after I pointed out his new boyband December 10 had only got to 72 in the charts. But having watched them perform, here's why they really are the new One Direction - set to conquer the world](https://www.dailymail.com/tvshowbiz/article-16005151/KATIE-HIND-Simon-Cowell-FURIOUS-boyband-December-10-One-Direction.html) - Dailymail.com
+- [December 10 celebrate highest charting British boy band debut in six years with On Your Side \| Official Charts](https://www.officialcharts.com/chart-news/december-10-on-your-side-top-10-album) - Officialcharts
+- [The Rolling Stones net 15th Number 1 album with Foreign Tongues \| Official Charts](https://www.officialcharts.com/chart-news/rolling-stones-foreign-tongues-number-1-album) - Officialcharts
+- [Simon Cowell, Cassandra Gracey & Louis Bloom toast December 10's chart success \| Talent \| Music Week](https://www.musicweek.com/talent/read/simon-cowell-cassandra-gracey-louis-bloom-toast-december-10-s-chart-success/094569) - Musicweek
+- [Simon Cowell’s New Boy Band December 10 Hits The Top 10 With Its Debut - Yahoo News UK](https://uk.news.yahoo.com/simon-cowell-boy-band-december-143000596.html) - Yahoo
+- [Simon Cowell’s New Boy Band December 10 Hits The Top 10 With Its Debut](https://www.forbes.com/sites/hughmcintyre/2026/07/22/simon-cowells-new-boy-band-december-10-hits-the-top-10-with-its-debut) - Forbes
+- [Sparks Announce First-Ever Live Album, Live on The Moon](https://consequence.net/2026/07/sparks-announce-first-ever-live-album-live-on-the-moon/) - Consequence.net
+- [Sparks Announce First-Ever Live Album, Live on The Moon](https://consequence.net/2026/07/sparks-announce-first-ever-live-album-live-on-the-moon) - Consequence
+- [Sparks announce first official live album, share "Whippings And Apologies"](https://www.brooklynvegan.com/sparks-announce-first-official-live-album-share-whippings-and-apologies) - Brooklynvegan
+- [Frank Sinatra's Least Favorite Frank Sinatra Songs](https://www.mentalfloss.com/entertainment/music/frank-sinatra-least-favorite-frank-sinatra-songs) - Mental Floss
+- [15 legendary songs their own bands walked away from (and the surprising reasons why)](https://www.classical-music.com/rock/songs-bands-dont-play) - Classical-music
+- [The notorious Cameroonian prison with its own record label](https://www.bbc.co.uk/news/articles/czxqlkrlj7no) - BBC News
+- [Jail Time Records: The notorious Cameroonian prison with its own record label - BBC](https://www.bbc.com/news/articles/czxqlkrlj7no) - Bbc
+- [Tyla addresses backlash after being accused of 'sparking a culture war' by describing herself as a 'coloured South African'](https://www.dailymail.com/tvshowbiz/article-16005947/Tyla-backlash-South-African-culture-war-coloured.html) - Dailymail.com
