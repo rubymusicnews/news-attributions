@@ -1,0 +1,61 @@
+# Sources for 2026-07-28 News Episode 
+- [Bad Bunny ‘Debí Tirar Más Fotos’ tour grossed $467.5m globally](https://musically.com/2026/07/27/bad-bunny-debi-tirar-mas-fotos-tour-grossed-467-5m-globally/) - Music Ally
+- [Bad Bunny ‘Debí Tirar Más Fotos’ tour grossed $467.5m globally - Music Ally](https://musically.com/2026/07/27/bad-bunny-debi-tirar-mas-fotos-tour-grossed-467-5m-globally) - Musically
+- [Bad Bunny's DTMF World Tour Wraps With $467 Million: By the Numbers](https://www.billboard.com/lists/bad-bunny-record-breaking-world-tour) - Billboard
+- [Bad Bunny concluye histórica gira mundial con $467 millones](https://www.billboard.com/lists/bad-bunny-concluye-historica-gira-mundial-con-467-millones) - Billboard
+- [DUE TO UNPRECEDENTED DEMAND JAŸ-Z ADDS SECOND STADIUM SHOWS IN LONDON AND LOS ANGELES](https://www.prnewswire.com/news-releases/due-to-unprecedented-demand-jay-z-adds-second-stadium-shows-in-london-and-los-angeles-302835452.html) - PRNewswire
+- [Jay-Z Announces Additional London and Los Angeles Dates for ‘Jay-Z 30’ Concert Series](https://variety.com/2026/music/news/jay-z-additional-london-los-angeles-dates-jay-z-30-series-1236821893) - Variety
+- [Bring Me The Horizon Scores Several New Hits — But Where’s The Album?](https://www.forbes.com/sites/hughmcintyre/2026/07/27/bring-me-the-horizon-scores-several-new-hits---but-wheres-the-album/) - Forbes
+- [Bring Me The Horizon Scores Several New Hits — But Where’s The Album?](https://www.forbes.com/sites/hughmcintyre/2026/07/27/bring-me-the-horizon-scores-several-new-hits---but-wheres-the-album) - Forbes
+- [Bring Me the Horizon's 'Dehumanized' No. 1 on Hot Hard Rock Songs](https://www.billboard.com/pro/bring-me-the-horizon-seventh-hot-hard-rock-songs-number-1) - Billboard
+- [Tyla Announces World Tour](https://pitchfork.com/story/tyla-announces-tour/) - Pitchfork
+- [Tyla Announces “A*POP World Tour”](https://consequence.net/2026/07/tyla-announces-apop-world-tour/) - Consequence.net
+- [Tyla Books 2026–2027 World Tour](https://exclaim.ca/music/article/tyla-books-2026-2027-world-tour) - Exclaim!
+- [Tyla announces world tour, confirms Lagos concert](https://punchng.com/?p=2200978) - The Punch
+- [Tyla Is Hitting the Road to Support New Album ‘A*Pop’: Here Are the Tour Dates - Billboard](https://ca.billboard.com/music/rb-hip-hop/tyla-a-pop-world-tour-dates-1236303497/) - Billboard
+- [Tyla Announces World Tour \| Pitchfork](https://pitchfork.com/story/tyla-announces-tour) - Pitchfork
+- [Get ready, Tygas: Tyla is coming to Johannesburg!](https://www.timeout.com/johannesburg/news/get-ready-tygas-tyla-is-coming-to-johannesburg-072726) - Timeout
+- [Tyla Announces 2026 A*POP World Tour Supporting New Album](https://thesource.com/2026/07/28/tyla-a-pop-world-tour-2026) - Thesource
+- [‘Michael’ Streaming Strategy Shifts To STARZ After Crossing $1 Billion At Box Office](https://www.forbes.com/sites/timlammers/2026/07/27/michael-streaming-strategy-shifts-to-starz-after-crossing-1-billion-at-box-office/) - Forbes
+- [‘Michael’ Movie to Stream on Starz. Here’s How to Watch](https://www.yahoo.com/entertainment/movies/articles/michael-movie-stream-starz-watch-145700355.html) - Yahoo
+- [STARZ August 2026 Movie and TV Titles Announced](https://www.vitalthrills.com/starz-august-2026) - Vitalthrills
+- ['Michael' movie to get exclusive streaming, TV debut - AOL](https://www.aol.com/articles/michael-movie-exclusive-streaming-tv-173631000.html) - Aol
+- [‘Michael’ Sets Streaming Release Date After Billion-Dollar Box Office Run - Variety](https://variety.com/2026/film/news/michael-streaming-release-date-michael-jackson-starz-1236757504/) - Variety
+- [Lionsgate’s highest grossing movie ever, the $1 billion-plus Michael Jackson biopic, ‘Michael,’ will stream on Starz beginning Aug. 10. ‘Michael’ arrives to streaming/linear after a very lengthy 108 day theatrical window after opening to $97.2M domestic, and $2 - facebook.com](https://www.facebook.com/deadline/photos/lionsgates-highest-grossing-movie-ever-the-1-billion-plus-michael-jackson-biopic/1395043485829321/) - Facebook
+- [Fred again.., LATIN MAFIA Creating Live Mixtape](https://www.spinmagazine.com/2026/07/fred-again-latin-mafia-mixtape/) - Spinmagazine.com
+- [Diiv Announce New A. G. Cook-Produced Album Via Hotline](https://pitchfork.com/story/diiv-announce-new-a-g-cook-produced-album-via-hotline/) - Pitchfork
+- [Diiv Announce New A. G. Cook-Produced Album Via Hotline \| Pitchfork](https://pitchfork.com/story/diiv-announce-new-a-g-cook-produced-album-via-hotline) - Pitchfork
+- [DIIV Announce New Album ZIRP! Produced by A. G. Cook](https://consequence.net/2026/07/diiv-new-album-zirp-a-g-cook) - Consequence
+- [DIIV announce new A. G. Cook-produced album 'ZIRP!' via cryptic hotline](https://www.nme.com/news/music/diiv-announce-new-a-g-cook-produced-album-zirp-via-cryptic-hotline-3959176) - Nme
+- [Carly Simon reveals Parkinson's disease diagnosis: 'I have not stopped living'](https://www.dailymail.com/tvshowbiz/article-16008019/Carly-Simon-Parkinsons-disease-diagnosis-youre-vain.html) - Dailymail.com
+- [Carly Simon Reveals Parkinson’s Diagnosis and Announces New Album](http://www.vulture.com/article/carly-simon-parkinsons-cancer-new-album.html) - Vulture
+- [‘You’re So Vain’ singer Carly Simon, 83, diagnosed with Parkinson’s disease](https://pagesix.com/2026/07/27/entertainment/youre-so-vain-singer-carly-simon-diagnosed-with-parkinsons-disease/) - Page Six
+- [Carly Simon Reveals Parkinson's Diagnosis](https://exclaim.ca/music/article/carly-simon-reveals-parkinson-s-diagnosis) - Exclaim!
+- [Carly Simon Was Diagnosed With Parkinson’s Disease](http://www.thecut.com/article/carly-simon-diagnosed-parkinsons.html) - The Cut
+- [Carly Simon diagnosed with Parkinson's, new album out in August](https://www.abc.net.au/news/2026-07-28/carly-simon-parkinsons-new-album/106964976) - ABC News (AU)
+- ['You're So Vain' Singer Carly Simon, 83, Announces Parkinson's Disease and Cancer Diagnosis After Years-long Absence — 'I Have Not Stopped Living'](https://radaronline.com/p/carly-simon-parkinsons-disease-cancer-diagnosis-announcement/) - Radaronline.com
+- [Carly Simon Writes Moving Letter About Parkinson’s Diagnosis](https://pitchfork.com/story/carly-simon-writes-moving-letter-about-parkinsons-diagnosis/) - Pitchfork
+- [Two-Time Grammy Winner Reveals Parkinson’s Disease And Cancer Diagnosis](https://www.huffpost.com/entry/carly-simon-parkinsons-disease-cancer-diagnosis_n_6a675a8fe4b006a1a836e33e) - HuffPost
+- [Carly Simon Shares Parkinson’s Disease & Cancer Diagnoses](https://extratv.com/2026/07/27/carly-simon-shares-parkinson-s-disease-and-cancer-diagnoses/) - Extra
+- [Who is Carly Simon? ‘You’re So Vain’ singer reveals Parkinson’s disease diagnosis. What is it, symptoms, treatment and whether there is a cure?](https://economictimes.indiatimes.com/news/international/global-trends/who-is-carly-simon-youre-so-vain-singer-reveals-parkinsons-disease-diagnosis-what-is-it-symptoms-treatment-and-whether-there-is-a-cure/articleshow/132662634.cms) - The Times of India
+- [Carly Simon Discloses Parkinson’s Disease Diagnosis, But There’s Good News …](https://www.thehollywoodgossip.com/2026/07/carly-simon-parkinsons-disease/) - The Hollywood Gossip
+- [You're So Vain singer Carly Simon reveals Parkinson's disease and skin cancer diagnoses](https://www.cbc.ca/news/entertainment/you-re-so-vain-singer-carly-simon-reveals-parkinson-s-disease-and-skin-cancer-diagnoses-9.7285960) - CBC News
+- [Carly Simon Reveals Parkinson's Diagnosis and Cancer Battle](https://www.usmagazine.com/celebrity-news/news/carly-simon-reveals-parkinsons-disease-cancer-diagnoses/) - Us Weekly
+- [Carly Simon describes first symptoms that led to ‘frightening’ Parkinson’s disease diagnosis](https://pagesix.com/2026/07/27/celebrity-news/carly-simon-describes-first-symptoms-that-led-to-parkinsons-disease-diagnosis/) - Page Six
+- [Carly Simon Reveals She’s Been Diagnosed with Parkinson’s Disease](https://www.today.com/health/carly-simon-parkinsons-diagnosis-rcna589403) - TODAY
+- [Fab Morvan Takes Back His Voice](https://www.newyorker.com/magazine/2026/08/03/fab-morvan-takes-back-his-voice) - The New Yorker
+- [Michael Jackson Blocked From Returning To No. 1 By A Pop Superstar](https://www.forbes.com/sites/hughmcintyre/2026/07/27/michael-jackson-blocked-from-returning-to-no-1-by-a-pop-superstar/) - Forbes
+- [Michael Jackson Blocked From Returning To No. 1 By A Pop Superstar](https://www.forbes.com/sites/hughmcintyre/2026/07/27/michael-jackson-blocked-from-returning-to-no-1-by-a-pop-superstar) - Forbes
+- [MJ Charts Weekly on July 25, 2026 - MJVibe](https://www.mjvibe.com/mj-charts-weekly-on-july-25-2026) - Mjvibe
+- [Bruno Mars Brings Nearly All Of His Albums Back To The Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/27/bruno-mars-brings-nearly-all-of-his-albums-back-to-the-charts/) - Forbes
+- [Bruno Mars Brings Nearly All Of His Albums Back To The Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/27/bruno-mars-brings-nearly-all-of-his-albums-back-to-the-charts) - Forbes
+- [Queen’s Budapest Concert Getting 4K Theatrical and Home Release](https://consequence.net/2026/07/queen-budapest-concert-4k-theatrical-home-release/) - Consequence.net
+- [QUEEN's Budapest Concert Celebrates 40th Anniversary With Newly Restored 4K Release - BLABBERMOUTH.NET](https://blabbermouth.net/news/queens-budapest-concert-celebrates-40th-anniversary-with-newly-restored-4k-release) - Blabbermouth
+- [Queen's Budapest Concert Getting 4K Theatrical and Home Release](https://consequence.net/2026/07/queen-budapest-concert-4k-theatrical-home-release) - Consequence
+- ["I think people will get lost in it and forget they're watching a film." Queen Budapest, the film of the first Western stadium rock show to take place behind the Iron Curtain, to screen in cinemas worldwide \| Louder](https://www.loudersound.com/bands-artists/queen-budapest-to-screen-in-cinemas-worldwide) - Loudersound
+- [Andy LaRocque Calls Exit from King Diamond a Mutual Decision](https://consequence.net/2026/07/andy-larocque-exit-king-diamond-mutual-decision/) - Consequence.net
+- [Fast Track Executes Binding Agreement with a Regional Division of a ‘Big Three’ Global Music Label to Roll Out LAUNCHPAD, a Regional Live Entertainment Platform](https://www.globenewswire.com/news-release/2026/07/27/3333513/0/en/Fast-Track-Executes-Binding-Agreement-with-a-Regional-Division-of-a-Big-Three-Global-Music-Label-to-Roll-Out-LAUNCHPAD-a-Regional-Live-Entertainment-Platform.html) - GlobeNewswire
+- [Fast Track Executes Binding Agreement with a Regional Division of a ‘Big Three’ Global Music Label to Roll Out LAUNCHPAD, a Regional Live Entertainment Platform \| Press Releases \| wboc.com](https://www.wboc.com/online_features/press_releases/fast-track-executes-binding-agreement-with-a-regional-division-of-a-big-three-global-music/article_338de652-27d0-550a-86ac-2e92eb930a66.html) - Wboc
+- [Fast Track Executes Binding Agreement with a Regional Division of a ‘Big Three’ Global Music Label to Roll Out LAUNCHPAD, a Regional Live Entertainment Platform](https://finance.yahoo.com/media-advertising/articles/fast-track-executes-binding-agreement-123000584.html) - Yahoo
+- [Fast Track Signs LAUNCHPAD Partnership, 90/10 Split \| FTRK Stock News](https://www.stocktitan.net/news/FTRK/fast-track-executes-binding-agreement-with-a-regional-division-of-a-zdd7fmpq1jye.html) - Stocktitan
+- [Fast Track Group Secures Profitable Offline Launchpad Partnership with Sony Music in Southeast Asia - TipRanks.com](https://www.tipranks.com/news/company-announcements/fast-track-group-secures-profitable-offline-launchpad-partnership-with-sony-music-in-southeast-asia) - Tipranks
