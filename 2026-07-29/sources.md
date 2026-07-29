@@ -1,0 +1,54 @@
+# Sources for 2026-07-29 News Episode 
+- [BTS’s “NORMAL” Re-Enters Billboard Hot 100 At New Peak + Hits No. 1 On Digital Song Sales Chart](http://www.soompi.com/article/1858174wpp/btss-normal-re-enters-billboard-hot-100-at-new-peak-hits-no-1-on-digital-song-sales-chart) - soompi
+- [BTS Scores New No. 1s On Multiple Charts With A Months-Old Song](https://www.forbes.com/sites/hughmcintyre/2026/07/28/bts-scores-new-no-1s-on-multiple-charts-with-a-months-old-song/) - Forbes
+- [BTS, Gracie Abrams, Ella Langley & More: Chart Highlights - Billboard](https://www.billboard.com/lists/bts-gracie-abrams-ella-langley-chart-highlights-aug-1-2026/) - Billboard
+- [Ariana Grande sues hackers for leaking and selling her unreleased music for years](https://www.cbc.ca/news/entertainment/ariana-grande-sues-hackers-leaking-music-9.7287374) - CBC News
+- [Ariana Grande Sues Hackers Over Alleged Targeting of Close Music Collaborators](http://www.rollingstone.com/music/music-news/ariana-grande-sues-hackers-unreleased-music-leak-1235599473/) - Rolling Stone
+- [Ariana Grande sues hackers who leaked music and videos](https://www.bbc.co.uk/news/articles/c1l1de9gjj6o) - BBC News
+- [Ariana Grande Is Suing Her Hackers](http://www.thecut.com/article/ariana-grande-suing-two-john-doe-hackers.html) - The Cut
+- [Ariana Grande Was Serious About Suing Over Stolen Music](http://www.vulture.com/article/ariana-grande-lawsuit-stolen-music.html) - Vulture
+- [Ariana Grande Sues 'John Does' Over Massive Leak](https://www.newser.com/story/393643/ariana-grande-sues-alleged-hackers-over-massive-leak.html) - Newser
+- [‘What we're really fighting is people scripting computers to generate thousands of songs and uploading them in batches to overwhelm, flood and replace’: Deezer's Head of Research on that industry-leading AI-filter — and why we need it now more than ever](https://www.techradar.com/audio/audio-streaming/what-were-really-fighting-is-people-scripting-computers-to-generate-thousands-of-songs-and-uploading-them-in-batches-to-overwhelm-flood-and-replace-deezers-head-of-research-on-that-industry-leading-ai-filter-and-why-we-need-it-now-more-than-ever) - TechRadar
+- [Deezer launches an AI music detector for other streaming services - The Verge](https://www.theverge.com/ai-artificial-intelligence/948153/deezer-ai-music-detector-spotify-apple) - Theverge
+- [This Free Tool Can Help Spot AI Slop in Spotify and Apple Music Playlists - Gizmodo](https://gizmodo.com/this-free-tool-can-help-spot-ai-slop-in-spotify-and-apple-music-playlists-2000770625) - Gizmodo
+- [Is AI-generated music hiding in your playlists? Deezer's new AI music detector can tell you - Business Insider](https://www.businessinsider.com/deezer-built-ai-music-detector-spotify-apple-youtube-streaming-platforms-2026-6) - Businessinsider
+- [Music streamer Deezer says more than 50% of daily uploads are AI-generated - TechCrunch](https://techcrunch.com/2026/07/21/music-streamer-deezer-says-more-than-50-of-daily-uploads-are-ai-generated/) - Techcrunch
+- [Revolution in the music world: Half of the tracks uploaded to Deezer are AI-generated - Zamin.uz](https://zamin.uz/en/technology/213623-revolution-in-the-music-world-half-of-the-tracks-uploaded-to-deezer-are-ai-generated.html) - Zamin
+- [Deezer Is Cracking Down on Fake Music and Fake Streams - CNET](https://www.cnet.com/tech/services-and-software/deezer-is-cracking-down-on-fake-music-and-fake-streams/) - Cnet
+- [Bernie Taupin Has Been Writing for Elton John for Six Decades. He’s Finally Releasing a New Solo Album](http://www.rollingstone.com/music/music-features/bernie-taupin-solo-album-elton-john-lp-1235598563/) - Rolling Stone
+- [Elton John's Songwriting Partner Bernie Taupin Announces New Solo Album 'The Sea Has No Mercy' - Stereoboard](https://www.stereoboard.com/content/view/252364/9) - Stereoboard
+- [Bernie Taupin to Release First Solo Album in Almost 40 Years](https://relix.com/news/detail/bernie-taupin-to-release-first-solo-album-in-almost-40-years) - Relix
+- [Bernie Taupin Announces First Solo Album In Nearly 40 Years](https://stereogum.com/2506486/bernie-taupin-announces-first-solo-album-in-nearly-40-years/music) - Stereogum
+- [Argentine Rockers Soda Stereo Transform Arena Concerts With A Touring Digital Frontman](https://www.forbes.com/sites/andymeek/2026/07/28/argentine-rockers-soda-stereo-transform-arena-concerts-with-a-touring-digital-frontman/) - Forbes
+- [Argentine Rockers Soda Stereo Transform Arena Concerts ...](https://www.forbes.com/sites/andymeek/2026/07/28/argentine-rockers-soda-stereo-transform-arena-concerts-with-a-touring-digital-frontman) - Forbes
+- [Pink Floyd Sends Two Classics Back To The Same Chart](https://www.forbes.com/sites/hughmcintyre/2026/07/28/pink-floyd-sends-two-classics-back-to-the-same-chart/) - Forbes
+- [Pink Floyd Sends Two Classics Back To The Same Chart](https://www.forbes.com/sites/hughmcintyre/2026/07/28/pink-floyd-sends-two-classics-back-to-the-same-chart) - Forbes
+- [Julian Casablancas Picked the Wrong Fights](http://www.vulture.com/article/the-strokes-lonely-in-the-future-diss.html) - Vulture
+- [Reality Awaits is a fascinating yet tortured delusion from The Strokes](https://www.thelineofbestfit.com/albums/the-strokes-reality-awaits-fascinating-yet-tortured-delusion) - Thelineofbestfit.com
+- [The Strokes’ ‘Reality Awaits’ Album Review: Reality Bites Hard](https://www.rollingstone.com/music/music-album-reviews/strokes-reality-awaits-review-1235597095) - Rollingstone
+- [The Strokes: Reality Awaits Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/the-strokes-reality-awaits) - Pitchfork
+- [Julian Casablancas Picked the Wrong Fights](https://www.vulture.com/article/the-strokes-lonely-in-the-future-diss.html) - Vulture
+- [Britney Spears Reaches Different Career-First Milestones](https://www.forbes.com/sites/hughmcintyre/2026/07/28/britney-spears-reaches-different-career-first-milestones/) - Forbes
+- [Britney Spears Reaches A Chart Milestone That Took Years To Hit - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/05/20/britney-spears-reaches-a-chart-milestone-that-took-years-to-hit/) - Forbes
+- [Britney Spears Reaches Different Career-First Milestones](https://www.forbes.com/sites/hughmcintyre/2026/07/28/britney-spears-reaches-different-career-first-milestones) - Forbes
+- [Lil Tecca confirmed as latest headliner for Fortnite Festival](https://musically.com/2026/07/28/lil-tecca-confirmed-as-latest-headliner-for-fortnite-festival/) - Music Ally
+- [Listen to King Gizzard & the Lizard Wizard’s New Song “Alien Metal”](https://pitchfork.com/story/listen-to-king-gizzard-and-the-lizard-wizards-new-song-alien-metal/) - Pitchfork
+- [King Gizzard and the Lizard Wizard release "Alien Metal", the title track from their upcoming EDM album](https://www.thelineofbestfit.com/news/king-gizzard-and-the-lizard-wizard-release-alien-metal-the-title-track-from-their-upcoming-edm-album) - Thelineofbestfit.com
+- [King Gizzard Announce Australian Tour, a Rave Set, and a Block Party They Curated - Billboard](https://www.billboard.com/music/concerts/king-gizzard-lizard-wizard-australia-2026-tour-1236303154/) - Billboard
+- [King Gizzard And The Lizard Wizard Share Title Track From Upcoming Album 'Alien Metal' - Stereoboard](https://www.stereoboard.com/content/view/252361/9) - Stereoboard
+- [Listen to King Gizzard & the Lizard Wizard’s New Song “Alien Metal”](https://pitchfork.com/story/listen-to-king-gizzard-and-the-lizard-wizards-new-song-alien-metal) - Pitchfork
+- [King Gizzard & the Lizard Wizard Announce New Album Alien Metal](https://consequence.net/2026/07/king-gizzard-the-lizard-wizard-new-album-alien-metal) - Consequence
+- [Spotify shares Atif Aslam stats ahead of new album’s release](https://musically.com/2026/07/28/spotify-shares-atif-aslam-stats-ahead-of-new-albums-release/) - Music Ally
+- [Spotify honours Atif Aslam with surprising streaming update before 'Subah Aye Na' release](https://jang.com.pk/en/69593-spotify-honours-atif-aslam-with-surprising-streaming-update-before-subah-aye-na-release-news) - Jang
+- [Spotify shares Atif Aslam stats ahead of new album's release](https://musically.com/2026/07/28/spotify-shares-atif-aslam-stats-ahead-of-new-albums-release) - Musically
+- [From Pakistan to the world: Spotify celebrates Atif Aslam’s enduring global impact](https://www.nation.com.pk/24-Jul-2026/pakistan-world-spotify-celebrates-atif-aslam-s-enduring-global-impact) - Nation
+- [Spotify celebrates Atif Aslam's global legacy ahead of new album release](https://www.app.com.pk/culture/spotify-celebrates-atif-aslams-global-legacy-ahead-of-new-album-release) - App
+- [Atif Aslam announces new Album ‘Subah Aaye Na’, Set for July 31 Release](https://www.urdupoint.com/en/showbiz/atif-aslam-announces-new-album-subah-aaye-2225084.html) - Urdupoint
+- [U2, Bob Geldof, Kingfishr Join Shane MacGowan Tribute](https://www.spinmagazine.com/2026/07/u2-bob-geldof-shane-macgowan-tribute/) - Spinmagazine.com
+- [U2, Bob Geldof, Kingfishr Join Shane MacGowan Tribute](https://www.yahoo.com/entertainment/music/articles/u2-bob-geldof-kingfishr-join-164500257.html) - Yahoo
+- [Kingfishr - have announced the upcoming release of their stirring new single, ‘The Sunnyside of the Street.’ taken from highly anticpated ‘20th Century Paddy - The Songs of Shane MacGowan’ album - Mc Gig Music](https://mcgigmusic.com/kingfishr-have-announced-the-upcoming-release-of-their-stirring-new-single-the-sunnyside-of-the-street-taken-from-highly-anticpated-20th-century-paddy-the-songs-o/amp) - Mcgigmusic
+- [Pearl Jam’s Jeff Ament Looks Back With ‘Forever’](https://www.spinmagazine.com/2026/07/pearl-jam-jeff-ament-book/) - Spinmagazine.com
+- [Pearl Jam’s Jeff Ament Looks Back With ‘Forever’](https://www.yahoo.com/entertainment/music/articles/pearl-jam-jeff-ament-looks-170000850.html) - Yahoo
+- [Pearl Jam’s Jeff Ament to share hundreds of unseen photos and reflect on formation of band in new book ‘Since Forever’](https://www.nme.com/news/music/pearl-jams-jeff-ament-to-share-hundreds-of-unseen-photos-and-reflect-on-formation-of-band-in-new-book-since-forever-3959494) - Nme
+- [Pearl Jam's Early Years Documented in 'Forever Now' Photography Book](https://www.rollingstone.com/music/music-news/pearl-jam-photography-book-jeff-ament-since-forever-1235600216) - Rollingstone
+- [Bruce Springsteen – Madison Square Garden, New York, NY, 05.16.26 (2026)](https://exystence.net/blog/2026/07/28/bruce-springsteen-madison-square-garden-new-york-ny-05-16-26-2026/) - Exystence.net
