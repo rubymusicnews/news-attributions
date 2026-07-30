@@ -1,0 +1,94 @@
+# Sources for 2026-07-30 News Episode 
+- [The Beatles to release unheard session recordings from ‘pivotal’ album Rubber Soul](https://www.the-independent.com/arts-entertainment/music/news/beatles-rubber-soul-recordings-demos-b3023594.html) - The-independent.com
+- [Surprise: The Beatles Have a 1965 John Lennon Song That Nobody’s Heard Before](http://www.rollingstone.com/music/music-features/beatles-john-lennon-little-girl-1235600522/) - Rolling Stone
+- [The Beatles Press Play On ‘Rubber Soul’ Reissue](https://www.spinmagazine.com/2026/07/the-beatles-rubber-soul-reissue/) - Spinmagazine.com
+- [The Beatles' Rubber Soul Gets Expanded Reissue with New Mixes and Unreleased Demos](https://consequence.net/2026/07/the-beatles-special-editions-rubber-soul) - Consequence
+- [The Beatles announce expanded reissue of 'Rubber Soul' featuring previously unreleased John Lennon demo](https://www.nme.com/news/music/the-beatles-announce-expanded-reissue-of-rubber-soul-featuring-previously-unreleased-john-lennon-demo-3959696) - Nme
+- [Rubber Soul: New Special Edition Out 2nd October](https://www.thebeatles.com/rubber-soul-new-special-edition-out-2nd-october) - Thebeatles
+- [Special edition of The Beatles’ 1965 album Rubber Soul to be released \| The Independent](https://www.independent.co.uk/bulletin/culture/the-beatles-rubber-soul-special-edition-release-b3023918.html) - Independent
+- [Unheard Beatles sessions from Rubber Soul set for release](https://www.rte.ie/entertainment/2026/0729/1585634-unheard-beatles-sessions-from-rubber-soul-set-for-release) - Rte
+- [BTS Withdraws From Grammy Consideration In Apparent Protest Over New Asian Pop Category](http://deadline.com/2026/07/bts-grammy-awards-1237010205/) - Deadline
+- [BTS say they won't submit music to the Grammy Awards](https://www.bbc.co.uk/news/articles/clyjgyd0225o) - BBC News
+- [BTS say they will not submit their music to the Grammy Awards](https://www.nbcnews.com/news/us-news/k-pop-group-bts-will-not-submit-music-grammy-awards-rcna589798) - NBC News
+- [Grammy Chief ‘Saddened to Hear’ That BTS Won’t Submit for 2027 Awards](https://variety.com/2026/music/news/grammy-chief-saddened-bts-wont-submit-for-2027-awards-1236823891/) - Variety
+- [BTS skipping Grammys in apparent protest over new Asian pop category](https://pagesix.com/2026/07/29/entertainment/bts-skipping-grammys-in-apparent-protest-over-new-asian-pop-category/) - Page Six
+- [Wollen kein Asien-Phänomen sein: BTS drohen wegen neuer Kategorie mit Grammy-Boykott](https://www.n-tv.de/leute/BTS-drohen-wegen-neuer-Kategorie-mit-Grammy-Boykott-id31139127.html) - N-tv.de
+- [“La musica non va divisa per lingua o regione”: ecco perché i BTS dicono no alla candidatura dei Grammy Awards. La protesta ha spiazzato i fan e gli addetti ai lavori](https://www.ilfattoquotidiano.it/2026/07/29/la-musica-non-va-divisa-per-lingua-o-regione-ecco-perche-i-bts-dicono-no-alla-candidatura-dei-grammy-awards-la-protesta-ha-spiazzato-i-fan-e-gli-addetti-ai-lavori/8462655/) - Ilfattoquotidiano.it
+- [Nach Kritik an neuem Preis: BTS will keine Musik bei den Grammys einreichen](https://www.tagesspiegel.de/kultur/leute-bts-will-keine-musik-bei-den-grammys-einreichen-15892229.html) - Der Tagesspiegel
+- [K-pop's BTS opt out of new Asian music Grammy consideration](https://www.dw.com/en/k-pops-bts-opt-out-of-new-asian-music-grammy-consideration/a-78164222) - DW (English)
+- [BTS Transcends](https://www.laineygossip.com/how-bts-let-recording-academy-know-they-are-no-longer-trying-to-fit-into-someone-elses-space/) - LaineyGossip
+- [Leute: BTS will keine Musik bei den Grammys einreichen](https://www.tagesspiegel.de/gesellschaft/leute-bts-will-keine-musik-bei-den-grammys-einreichen-15892229.html) - Der Tagesspiegel
+- [BTS will keine Musik bei Grammys einreichen](https://orf.at/stories/3437598/) - Orf.at
+- [HYBE Posts Record Quarter After BTS’ ‘ARIRANG’ And Ongoing World Tour](https://www.forbes.com/sites/jeffbenjamin/2026/07/28/hybe-posts-record-quarter-after-bts-arirang-and-ongoing-world-tour/) - Forbes
+- [HYBE (XKRX:352820) Q2 2026 Earnings Call Highlights: Record Revenue and Strategic Growth Amid ...](https://finance.yahoo.com/media-advertising/articles/hybe-xkrx-352820-q2-2026-150030997.html) - Yahoo
+- [BTS powers HYBE to record Q2 as ARIRANG world tour drives concert revenue boom for K-pop giant - Music Business Worldwide](https://www.musicbusinessworldwide.com/bts-arirang-powers-hybe-to-record-q2-as-concert-revenue-soars-243-yoy) - Musicbusinessworldwide
+- [BTS Triggers $998M Growth for HYBE in Just 3 Months! \| Outlook Respawn](https://respawn.outlookindia.com/pop-culture/pop-culture-news/hybe-q2-2026-earnings-bts-comeback-revenue-record) - Outlookindia
+- [HYBE Posts Record Quarter After BTS’ ‘ARIRANG’ And Ongoing World Tour](https://www.forbes.com/sites/jeffbenjamin/2026/07/28/hybe-posts-record-quarter-after-bts-arirang-and-ongoing-world-tour) - Forbes
+- [BTS Returns, and HYBE Enters the Era of Quarterly Sales Exceeding 1 Trillion Won - MK](https://www.mk.co.kr/en/hot-issues/12109429) - Mk
+- [Tommy Iommi Announces First Solo Album in 21 Years](https://pitchfork.com/story/tommy-iommi-announces-first-solo-album-in-21-years-from-the-dark/) - Pitchfork
+- [What to Know About the Singer on Tony Iommi's New Solo Album](https://ultimateclassicrock.com/who-is-jorn-lande-tony-iommi-singer/) - Ultimate Classic Rock
+- [Tony Iommi Announces New Solo Album, ‘From the Dark'](https://ksenam.com/ixp/295/p/tony-iommi-from-the-dark) - Ksenam
+- [Tony Iommi Announces New Solo Album, ‘From the Dark'](https://ultimateclassicrock.com/tony-iommi-from-the-dark) - Ultimateclassicrock
+- [BLACK SABBATH Legend TONY IOMMI Announces New Solo Album 'From The Dark' - BLABBERMOUTH.NET](https://blabbermouth.net/news/black-sabbath-legend-tony-iommi-announces-new-solo-album-from-the-dark) - Blabbermouth
+- [Black Sabbath’s Tony Iommi releases solo single World Alone, announces long-awaited album From The Dark](https://www.yahoo.com/entertainment/music/articles/black-sabbath-tony-iommi-releases-150000610.html) - Yahoo
+- [Tony Iommi Drops First Solo Album in 21 Years, Remains Open For More Live Shows](https://www.ultimate-guitar.com/news/general_music_news/tony-iommi-announces-first-solo-album-in-21-years-as-he-keeps-doors-open-for-more-live-shows-after-sabbaths-retirement-anythings-a-possibility) - Ultimate-guitar
+- [Tony Iommi Announces First Solo Album in 21 Years](https://pitchfork.com/story/tommy-iommi-announces-first-solo-album-in-21-years-from-the-dark) - Pitchfork
+- [Kavinsky, French Producer and DJ Behind ‘Drive’ Opening Song ‘Nightcall,’ Dies at 50](https://variety.com/2026/music/global/kavinsky-dead-french-dj-nightcall-drive-1236823180/) - Variety
+- [Kavinsky, French D.J. and Electronic Musician, Dies at 50](https://www.nytimes.com/2026/07/29/arts/music/kavinsky-dj-dead.html) - Nytimes
+- [Kavinsky, French electronic artist and ‘Drive’ composer, dead at 50](https://www.latimes.com/entertainment-arts/music/story/2026-07-29/kavinsky-french-electronic-artist-drive-composer-dead-at-50) - Latimes
+- [French DJ Kavinsky, Known for ‘Drive’ Soundtrack Hit ‘Nightcall’, Dies at 50](https://people.com/french-dj-kavinsky-drive-soundtrack-hit-nightcall-dead-age-50-12029371) - People
+- [NME](https://www.nme.com?p=) - Nme
+- [Kavinsky, the French artist behind Nightcall, dies aged 50 \| MusicRadar](https://www.musicradar.com/artists/kavinsky-the-french-artist-behind-nightcall-dies-aged-50) - Musicradar
+- [DJ Kavinsky Passes Away at 50: Inside His Life and Net Worth - En.tempo.co](https://en.tempo.co/read/2116059/dj-kavinsky-passes-away-at-50-inside-his-life-and-net-worth) - Tempo
+- [Nightcall artist Kavinsky dies at 50 after redefining electronic music \| The Express Tribune](https://tribune.com.pk/story/2620964/nightcall-artist-kavinsky-dies-at-50-after-redefining-electronic-music?amp=1) - Tribune
+- [Kavinsky, French DJ behind hit track ‘Nightcall,’ found dead at home in Paris](https://www.yahoo.com/entertainment/music/articles/kavinsky-french-dj-behind-hit-103830229.html) - Yahoo
+- [Kavinsky, French DJ Known for “Nightcall,” Found Dead in Paris Home](http://fr.eonline.com/news/1434480/kavinsky-french-dj-known-for-nightcall-found-dead-in-paris-home) - Eonline
+- [Tom Petty Song Returns With One Of His Oddest Collaborations](https://www.forbes.com/sites/hughmcintyre/2026/07/29/tom-petty-song-returns-with-one-of-his-oddest-collaborations/) - Forbes
+- [Tom Petty Returns With One Of His Oddest Collaborations](https://www.forbes.com/sites/hughmcintyre/2026/07/29/tom-petty-returns-with-one-of-his-oddest-collaborations/) - Forbes
+- [Tom Petty Song Returns With One Of His Oddest Collaborations](https://www.forbes.com/sites/hughmcintyre/2026/07/29/tom-petty-song-returns-with-one-of-his-oddest-collaborations) - Forbes
+- [Matt Cameron: Soundgarden’s Final Album Is Being Mixed](https://consequence.net/2026/07/soundgarden-mixing-final-album/) - Consequence.net
+- [Mixing is in progress for Soundgarden's final studio album - Chaoszine](https://chaoszine.net/mixing-is-in-progress-for-soundgardens-final-studio-album) - Chaoszine
+- [SOUNDGARDEN Begins Mixing Final Eight-Song Album: 'That's All There Is With Vocals', Says MATT CAMERON](https://blabbermouth.net/news/soundgarden-begins-mixing-final-eight-song-album-thats-all-there-is-with-vocals-says-matt-cameron) - Blabbermouth
+- [Matt Cameron: Soundgarden's Final Album Is Being Mixed](https://consequence.net/2026/07/soundgarden-mixing-final-album) - Consequence
+- [Glen Hansard, Oscar-Winning ‘Once’ Musician, Dead at 56](http://www.rollingstone.com/music/music-news/glen-hansard-once-musician-dead-obituary-1235600244/) - Rolling Stone
+- [Glen Hansard Cause of Death: ‘Once’ Star, The Frames Singer Was 56](https://www.thehollywoodgossip.com/2026/07/glen-hansard-cause-of-death-once-star-the-frames-singer-was-56/) - The Hollywood Gossip
+- [Glen Hansard's Onscreen Legacy Is One Of The Best Movies Ever Made About Music](https://www.slashfilm.com/2226304/glen-hansard-legacy-best-movie-about-music-once/) - /FILM
+- [Oscar Winning Actor Dies Tragically At Age 56](https://dailycaller.com/2026/07/29/oscar-winning-actor-glen-hansard-dies-tragically-motorcycle-crash-56-dublin) - The Daily Caller
+- [Glen Hansard, Oscar-winning Irish singer-songwriter, dies in Dublin motorcycle crash \| The Business Standard](https://www.tbsnews.net/splash/glen-hansard-oscar-winning-irish-singer-songwriter-dies-dublin-motorcycle-crash-1501391) - Tbsnews
+- [Irish musician Glen Hansard dies in motorcycle crash in Dublin \| The Herald](https://www.heraldscotland.com/news/26419694.irish-musician-glen-hansard-dies-motorcycle-crash-dublin) - Heraldscotland
+- [Glen Hansard Death Cause: Glen Hansard: The Tragic Death of an Oscar-Winning Irish Music Legend \| - The Times of India](https://timesofindia.indiatimes.com/etimes/wellness/glen-hansard-cause-of-death-how-did-the-oscar-winning-irish-singer-songwriter-pass-away/articleshow/132725210.cms) - Indiatimes
+- [Glen Hansard, Frontman of Irish Band the Frames, Dies at 56](https://www.nytimes.com/2026/07/29/obituaries/glen-hansard-dead.html) - Nytimes
+- [Glen Hansard, Irish songwriter and 'Once' star, dies at 56](https://www.npr.org/2026/07/29/g-s1-136080/glen-hansard-obituary) - Npr
+- [Glen Hansard, Irish musician who won Oscar for ‘Once,’ dies in motorcycle crash](https://apnews.com/article/glen-hansard-dies-dublin-motorcycle-crash-2df53656c036a9e39f91514d25538311) - Apnews
+- [George Michael's former best friend is sued by singer's estate after releasing secret album and unseen footage of the Wham! star](https://www.dailymail.com/news/article-16012679/George-Michaels-former-best-friend-sued-singers-estate-releasing-secret-album-unseen-footage-Wham-star.html) - Dailymail.com
+- [George Michael's ex-best friend in legal row with late star's estate over secret album after he released unseen footage](https://www.the-sun.com/entertainment/16762010/george-michael-friend-estate-row-secret-album) - The-sun
+- [George Michael’s estate sues singer’s best friend for releasing secret footage - AOL](https://www.aol.com/articles/george-michael-estate-legal-battle-054100000.html) - Aol
+- [George Michael's former best friend is sued by singer's estate after releasing secret album and unseen footage of the Wham! star \| Daily Mail Online](https://www.dailymail.com/news/article-16012679/George-Michaels-former-best-friend-sued-singers-estate-releasing-secret-album-unseen-footage-Wham-star.html?ico=comment-anchor) - Dailymail
+- [Carín León Tops 2026 Premios Juventud Noms, PJ Fest Details Unveiled](https://www.forbes.com/sites/veronicavillafane/2026/07/28/carn-len-tops-2026-premios-juventud-noms-pj-fest-details-unveiled/) - Forbes
+- [Premios Juventud takes in Europe for first time - UPI.com](https://www.upi.com/amp/Entertainment_News/2026/07/28/latam-Premios-Juventud-Europe/2041785253024) - Upi
+- [2026 Premios Juventud Date Revealed](https://www.billboard.com/music/awards/2026-premios-juventud-date-1236288201) - Billboard
+- [Instagram](https://www.instagram.com/reel/DbWKSIwRdgn) - Instagram
+- [Premios Juventud takes on Europe for first time](https://www.yahoo.com/entertainment/music/articles/premios-juventud-takes-europe-first-160426239.html) - Yahoo
+- [Premios Juventud Unveils the Most Ambitious Evolution with PJ Fest and Announces the Nominees for Its First Edition in Europe - TelevisaUnivision](https://corporate.televisaunivision.com/press/2026/07/28/premios-juventud-unveils-the-most-ambitious-evolution-with-pj-fest-and-announces-the-nominees-for-its-first-edition-in-europe) - Televisaunivision
+- [TelevisaUnivision Sets Date For ‘Premios Juventud’ To Be Held In Spain](https://www.forbes.com/sites/veronicavillafane/2026/07/06/televisaunivision-sets-date-for-premios-juventud-to-be-held-in-spain) - Forbes
+- [Blonde Redhead Unveil New Song “Blood Spilled”: Stream](https://consequence.net/2026/07/blonde-redhead-blood-spilled/) - Consequence.net
+- [Blonde Redhead Release New Song "Blood Spilled": Stream](https://consequence.net/2026/07/blonde-redhead-blood-spilled) - Consequence
+- [Blonde Redhead - "Blood Spilled"](https://stereogum.com/2506667/blonde-redhead-blood-spilled/music) - Stereogum
+- [Blonde Redhead debut new single "Blood Spilled" - Northern Transmissions](https://northerntransmissions.com/blonde-redhead-debut-new-single-blood-spilled) - Northerntransmissions
+- [20 New Songs Out Today](https://www.brooklynvegan.com/20-new-songs-out-today-90) - Brooklynvegan
+- [Bayreuth Festival opens with celebration and commemoration](https://www.dw.com/en/bayreuth-festival-opens-with-celebration-and-commemoration/a-78152152) - DW (English)
+- [Bayreuth Festival: Ceremony and commemoration](https://www.dw.com/en/bayreuth-festival-ceremony-and-commemoration/a-78152152) - DW (English)
+- [Bayreuth Festival: Ceremony and commemoration](https://amp.dw.com/en/bayreuth-festival-ceremony-and-commemoration/a-78152152) - Dw
+- [Confronting Bayreuth Festival's troubled legacy at 150](https://www.dw.com/en/150-years-of-the-bayreuth-festival-confronting-a-troubled-legacy/a-77848272) - Dw
+- [Mike Kroeger Celebrates New Nickelback Music — Interview](https://loudwire.com/nickelback-mike-kroeger-new-song-album-interview-2026/) - Loudwire
+- [Nickelback on flexing their ‘rock and roll DNA’ with upcoming album, ‘Everything Under The Sun’](https://www.audacy.com/national/music/nickelback-flex-rock-and-roll-dna-with-everything-under-the-sun) - Audacy
+- [Nickelback announces new album, ‘Everything Under the Sun’ \| Globalnews.ca](https://globalnews.ca/news/11967060/nickelback-announces-new-album-everything-under-the-sun) - Globalnews
+- [Nickelback Announce Everything Under The Sun Album With John 5 Collaboration - Noise11 Music News](https://www.noise11.com/news/nickelback-everything-under-the-sun-album-rattle-the-cage-john-5-20260715) - Noise11
+- [Mike Kroeger Celebrates New Nickelback Music — Interview](https://loudwire.com/nickelback-mike-kroeger-new-song-album-interview-2026) - Loudwire
+- [Nickelback announce new album 'Everything Under The Sun' - new single featuring John 5 out now](https://chaoszine.net/nickelback-announce-new-album-everything-under-the-sun-new-single-featuring-john-5-out-now) - Chaoszine
+- [Rachel Chinouriri Is ‘One Song Away From Crying’ and Just Weeks Away From Her New Album](http://www.rollingstone.com/music/music-news/rachel-chinouriri-new-single-album-i-think-i-spoke-too-soon-1235599351/) - Rolling Stone
+- [Rachel Chinouriri Announces Second Album ‘I Think I Spoke Too Soon’ and Shares Lead Single ‘One Song Away From Crying’ - Indie is not a genre](https://www.indieisnotagenre.com/rachel-chinouriri-announces-second-album-i-think-i-spoke-too-soon-and-shares-lead-single-one-song-away-from-crying) - Indieisnotagenre
+- [Rachel Chinouriri Is ‘One Song Away From Crying’ and Just Weeks Away From Her New Album](https://www.yahoo.com/entertainment/music/articles/rachel-chinouriri-one-song-away-174840005.html) - Yahoo
+- [Rachel Chinouriri Announces New Album 'I think I spoke too soon' \| News \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/news/rachel-chinouriri-announces-new-album-i-think-i-spoke-too-soon) - Clashmusic
+- [Rachel Chinouriri Announces New Album 'I Think I Spoke Too Soon'](https://www.rollingstone.com/music/music-news/rachel-chinouriri-new-single-album-i-think-i-spoke-too-soon-1235599351) - Rollingstone
+- [“I think I spoke too soon” • my 2nd... - Rachel Chinouriri](https://www.facebook.com/rachelchinouririmusic/posts/i-think-i-spoke-too-soon-my-2nd-album-october-16th-firstly-darlings-what-an-hono/1657026019759776) - Facebook
