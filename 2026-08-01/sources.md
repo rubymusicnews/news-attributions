@@ -1,0 +1,54 @@
+# Sources for 2026-08-01 News Episode 
+- [Ariana Grande’s petal is as dark as it is beautiful](https://www.dazeddigital.com/music/article/70742/1/ariana-grande-petal-album-review-victim-warning-signs-eternal-sunshine?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=ariana-grande-s-petal-is-as-dark-as-it-is-beautiful) - Dazed
+- [petal: The dark, disturbing beauty of Ariana Grande’s new album](https://www.dazeddigital.com/music/article/70742/1/ariana-grande-petal-album-review-victim-warning-signs-eternal-sunshine?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=petal-the-dark-disturbing-beauty-of-ariana-grande-s-new-album) - Dazed
+- [Ariana Grande’s petal Never Fully Blooms: Review](https://consequence.net/2026/07/ariana-grande-petal-album-review/) - Consequence.net
+- [Ariana Grande literally kills her critics in feral & empowering new album 'petal'](https://www.out.com/gay-music/ariana-grande-petal-review) - Out.com
+- [Fans are convinced Ariana Grande spills on Ricky Alvarez reunion in steamy ‘Petal’ song ‘Bad Thing (Bunny Hop)’](https://pagesix.com/2026/07/31/entertainment/fans-convinced-ariana-grande-spills-on-ricky-alvarez-reunion-in-petal-song-bad-thing/) - Page Six
+- [Apple Music Review: High-Quality Music, Low Frills](https://www.cnet.com/tech/services-and-software/apple-music-review-high-quality-music-low-frills/) - CNET
+- [Apple Music Review: High-Quality Music, Low Frills - CNET](https://www.cnet.com/tech/services-and-software/apple-music-review-high-quality-music-low-frills) - Cnet
+- [Apple Music Review: A Masterclass in Sleek Design With Superb Audio - Review 2026 - PCMag UK](https://uk.pcmag.com/streaming-music-services/67157/apple-music) - Pcmag
+- [8 K-Pop B-Side Tracks From 2026 You Don’t Want To Sleep On](http://www.soompi.com/article/1857353wpp/8-k-pop-b-side-tracks-from-2026-you-dont-want-to-sleep-on) - soompi
+- [Top K-Pop Albums of 2026 (So Far) \| The Bias List // K-Pop Reviews & Discussion](https://thebiaslist.com/2026/07/02/top-k-pop-albums-of-2026-so-far) - Thebiaslist
+- [Nicki Minaj Is Back On Billboard’s Albums Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/31/nicki-minaj-is-back-on-billboards-albums-charts/) - Forbes
+- [Nicki Minaj Is Back On Billboard’s Albums Charts](https://www.forbes.com/sites/hughmcintyre/2026/07/31/nicki-minaj-is-back-on-billboards-albums-charts) - Forbes
+- [Greta Van Fleet Announce New Album, Unveil Single “Saw You Stand”: Stream](https://consequence.net/2026/07/greta-van-fleet-new-album-single-saw-you-stand/) - Consequence.net
+- [4th Greta Van Fleet Album Announced, Second Single Out Now](https://loudwire.com/greta-van-fleet-palace-of-the-people-saw-you-stand/) - Loudwire
+- [New Greta Van Fleet Album, ‘Palace For The People’ Out October](https://www.udiscovermusic.com/news/greta-van-fleet-palace-for-the-people) - Udiscovermusic
+- ["The minute the four of us step into a room with the shared goal of creating, there is very little that can stop us." Greta Van Fleet announce new album Palace For The People, share emotive ballad Saw You Stand \| Louder](https://www.loudersound.com/bands-artists/greta-van-fleet-announce-palace-for-the-people-album-share-ballad-saw-you-stand) - Loudersound
+- [Greta Van Fleet Announce New Album, Unveil Single "Saw You Stand"](https://consequence.net/2026/07/greta-van-fleet-new-album-single-saw-you-stand) - Consequence
+- [Rare Behind the Scenes Photographs From the Making of Queen’s “I Want To Break Free” (1984)](https://www.vintag.es/2026/08/i-want-to-break-free.html) - Vintag.es
+- [Behind The Single Recap: The Second Voice’s “Let Me Be”](https://musically.com/2026/07/31/behind-the-single-recap-the-second-voices-let-me-be/) - Music Ally
+- [German collecting society GEMA wins its copyright ...](https://musically.com/2026/07/31/german-collecting-society-gema-wins-its-copyright-infringement-lawsuit-against-suno) - Musically
+- [Shaboozey Thinks Big on ‘The Outlaw Cherie Lee & Other Western Tales’](http://www.rollingstone.com/music/music-album-reviews/shaboozey-new-music-outlaw-cherie-lee-other-western-tales-1235599492/) - Rolling Stone
+- [Album Review: Shaboozey's New Concept Album, 'The Outlaw Cherie Lee'](https://www.rollingstone.com/music/music-album-reviews/shaboozey-new-music-outlaw-cherie-lee-other-western-tales-1235599492) - Rollingstone
+- [Shaboozey – ‘The Outlaw Cherie Lee & Other Western Tales’ review: an ambitious, cinematic tale of love and vengeance](https://www.nme.com/reviews/album/shaboozey-the-outlaw-cherie-lee-other-western-tales-review-3959389) - Nme
+- [Shaboozey swaps chart-chasing for cinematic storytelling on ambitious new concept album \| t2ONLINE](https://t2online.in/music/reviews/shaboozey-swaps-chart-chasing-for-cinematic-storytelling-on-ambitious-new-concept-album/2006928) - T2online
+- [Shaboozey Turns a Western Tale Into a Genre-Blending Album \| 97 Seven Country WGLR - The Tri-States Best Variety of Country - Lancaster, Dubuque, Galena, Platteville](https://www.wglr.com/2026/08/01/shaboozey-turns-a-western-tale-into-a-genre-blending-album) - Wglr
+- [Shaboozey debuts album 'The Outlaw Cherie Lee & Other Western Tales'](https://www.tennessean.com/story/entertainment/music/2026/07/31/shaboozey-outlaw-cherie-lee-other-western-tales-album/90693088007) - Tennessean
+- [Chrome Sparks Awakens With Khalid, Sigur Rós’ Jónsi](https://www.spinmagazine.com/2026/07/chrome-sparks-khalid-jonsi/) - Spinmagazine.com
+- [Chrome Sparks Awakens With Khalid, Sigur Rós' Jónsi - SPIN](https://www.spinmagazine.com/2026/07/chrome-sparks-khalid-jonsi) - Spinmagazine
+- [Sigur Rós' Jónsi & Khalid Team Up On Chrome Sparks "Sleeper": Listen](https://stereogum.com/2507037/chrome-sparks-sleeper-feat-khalid-jonsi/music) - Stereogum
+- [Photos: CHROME SPARKS Taps Khalid, Jónsi for New Single SLEEPER](https://www.broadwayworld.com/bwwmusic/article/Photos-CHROME-SPARKS-Taps-Khalid-Jnsi-for-New-Single-SLEEPER-20260731) - Broadwayworld
+- [14 New Songs Out Today](https://www.brooklynvegan.com/14-new-songs-out-today-63) - Brooklynvegan
+- [Massive Attack Under Investigation for Palestine Support at Singapore Concert](http://www.rollingstone.com/music/music-news/massive-attack-investigation-palestine-support-singapore-1235601492/) - Rolling Stone
+- [Massive Attack banned from Singapore after Palestinian flag at concert, Entertainment News - AsiaOne](https://www.asiaone.com/entertainment/massive-attack-banned-singapore-palestinian-flag-concert) - Asiaone
+- [Singapore bans Massive Attack for showing Palestinian flag, breaching ban on foreign emblems](https://www.theguardian.com/music/2026/aug/01/singapore-bans-massive-attack-for-showing-palestinian-flag-breaching-ban-on-foreign-emblems) - Theguardian
+- [Massive Attack Members Banned from Singapore Over Palestinian Flag [Update]](https://consequence.net/2026/07/massive-attack-singapore-investigation-palestinian-flag) - Consequence
+- [Massive Attack investigated over Palestinian flag display at Singapore concert](https://www.thenationalnews.com/arts-culture/2026/07/31/massive-attack-investigated-over-palestinian-flag-display-at-singapore-concert) - Thenationalnews
+- [Singapore bars Massive Attack band members after Palestinian flag display \| The Jerusalem Post](https://www.jpost.com/international/article-904239) - Jpost
+- [Singapore police investigate Massive Attack over Palestinian support at gig \| South China Morning Post](https://amp.scmp.com/news/asia/southeast-asia/article/3362475/singapore-police-investigate-massive-attack-over-palestinian-support-gig) - Scmp
+- [British girl band FLO 'want it all' - and they're confident they will get it](https://www.bbc.co.uk/news/articles/c8rnpxyj762o) - BBC News
+- [FLO say they 'want it all' after new album Therapy at the Club](https://www.bbc.com/news/articles/c8rnpxyj762o) - Bbc
+- [FLO Says Learning to Speak Up in the Studio Changed Everything on ‘Therapy at the Club’](https://www.billboard.com/music/rb-hip-hop/flo-therapy-at-the-club-interview-1236305630) - Billboard
+- [Listen: FLO Unlock New Single 'Remedied' Ahead of 'Therapy at the Club' Album - That Grape Juice](https://thatgrapejuice.net/2026/07/listen-flo-unlock-new-single-remedied-ahead-of-therapy-at-the-club-album) - Thatgrapejuice
+- [FLO Says Learning to Speak Up in the Studio Changed Everything on ‘Therapy at the Club’ - Billboard](https://www.billboard.com/music/rb-hip-hop/flo-therapy-at-the-club-interview-1236305630/) - Billboard
+- [flowerovlove announces debut album MINI SKIRT WARRIOR and shares “KISS KISS KISS”](https://www.thelineofbestfit.com/news/flowerovlove-announces-debut-album-mini-skirt-warrior-and-shares-kiss-kiss-kiss) - Thelineofbestfit.com
+- [flowerovlove announces debut album 'MINI SKIRT WARRIOR' with new single 'KISS KISS KISS' • News • DIY Magazine](https://diymag.com/news/flowerovlove-debut-album-mini-skirt-warrior-kiss-kiss-kiss) - Diymag
+- [flowerovlove announces debut album 'MINI SKIRT WARRIOR' and shares new single 'KISS KISS KISS' - Mixtape Madness](https://www.mixtapemadness.com/blog/videos/flowerovlove-announces-debut-album-mini-skirt-warrior-and-shares-new-single-kiss-kiss-kiss) - Mixtapemadness
+- [New Music Friday July 31: Ariana Grande, Cruz Beckham & More](https://www.sweetyhigh.com/read/new-music-friday-best-songs-july-31-2026-073126) - Sweetyhigh
+- [flowerovlove announces debut album 'MINI SKIRT WARRIOR' with new single 'KISS KISS KISS' • News • DIY Magazine](https://www.google.com/goto?url=CAESigEB7keqTU2gvK7Y5BsArYDhtcG6pHIaLp0Rc7JMhbvxYIjjhX_yU5kikCaTI-eVmCPws5Y-nBS2iFcFFZi1Ed3nqLMKnfvy5nXa5RXv6_WPa86L6ivrvrPtzZaiCZV828xYKKE0V64nX5aA_q7gU153nYLnGJzDySByKRl19l5piKtee19tvInRt_s%3D) - Google
+- [flowerovlove announces debut album MINI SKIRT WARRIOR and shares “KISS KISS KISS” \| The Line of Best Fit](https://www.google.com/goto?url=CAESrQEB7keqTQqrdJhA-w-LleuuQ4tK5hP8mOQl5XTenIf0i5NOhpB-R7qnQOrXPbv_t0HcFw8WxF1w9phVIk3tCm37XqsBTiHQEvvG3szrp5Xw4jUNYQGDrFGfXx99R2O9pmxTRrNMj9oGqPYHdzHv-1QF0zurOFoOUwrz2gE6yUc9_u9y33TJNi59E06paZzoFhCL1uA71jnuQwaJOWHQUloA2B_DQE9VvYkM_4qD3A%3D%3D) - Google
+- [Newly-Married Alesso Shares Wedding Photos, 6 Things He Needs ‘To Have and to Hold’ on Tour](http://www.rollingstone.com/product-recommendations/lifestyle/alesso-tour-essentials-favorite-products-headphones-luggage-1235568813/) - Rolling Stone
+- [Noah Kahan’s New Album Falls From No. 1 For The First Time](https://www.forbes.com/sites/hughmcintyre/2026/07/31/noah-kahans-new-album-falls-from-no-1-for-the-first-time/) - Forbes
+- [Noah Kahan’s New Album Falls From No. 1 For The First Time](https://www.forbes.com/sites/hughmcintyre/2026/07/31/noah-kahans-new-album-falls-from-no-1-for-the-first-time) - Forbes
+- [Gracie Abrams Hits No. 1 On Her First Trip To One Chart](https://www.forbes.com/sites/hughmcintyre/2026/07/31/gracie-abrams-hits-no-1-on-her-first-trip-to-one-chart) - Forbes
