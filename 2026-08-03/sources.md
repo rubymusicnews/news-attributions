@@ -1,0 +1,60 @@
+# Sources for 2026-08-03 News Episode 
+- [Rosé’s “APT.” Becomes Fastest MV Led By Female Artist To Hit 2.6 Billion Views](http://www.soompi.com/article/1859227wpp/roses-apt-becomes-fastest-mv-led-by-female-artist-to-hit-2-6-billion-views) - soompi
+- [Rosé’s “APT.” Becomes Fastest MV Led By Female Artist To Hit 2.6 Billion Views](https://www.soompi.com/article/1859227wpp/roses-apt-becomes-fastest-mv-led-by-female-artist-to-hit-2-6-billion-views) - Soompi
+- [Jadi Karya Artis Asia Tercepat, MV “APT.” Milik Rose BLACKPINK dan Bruno Mars Tembus 2,6 Miliar Views di YouTube](https://kpopchart.net/idol-celeb/91616976304/jadi-karya-artis-asia-tercepat-mv-apt-milik-rose-blackpink-dan-bruno-mars-tembus-26-miliar-views-di-youtube-5c2dd291216) - Kpopchart
+- [This is how BLACKPINK’s Rosé’s “APT” music video is leading the YouTube views](https://www.musicmundial.com/en/this-is-how-blackpinks-roses-apt-music-video-is-leading-the-youtube-views) - Musicmundial
+- [bell06 on TikTok](https://www.tiktok.com/@bellexince19xx/video/7668656106725559572) - Tiktok
+- [Ariana Grande Taking a ‘Step Back’ When Tour Ends, Rep Says](http://www.rollingstone.com/music/music-news/ariana-grande-step-back-tour-ends-rep-1235602318/) - Rolling Stone
+- [Ariana Grande Is ‘Taking a Step Back’ From Public Life](http://www.vulture.com/article/ariana-grande-stepping-back-health-speculation.html) - Vulture
+- [Ariana Grande Says She’s ‘Taking A Step Back From Visibility’](https://www.huffpost.com/entry/ariana-grande-tour-break-body-concerns_n_6a6f9de8e4b06d9e86a373a4) - HuffPost
+- [Ariana Grande quits West End role as she plans to step back from the spotlight amid 'ongoing public scrutiny' over her appearance](https://www.dailymail.com/tvshowbiz/article-16023431/Ariana-Grande-quits-West-End-role-plans-step-spotlight-amid-ongoing-public-scrutiny.html) - Dailymail.com
+- [Ariana Grande to 'Step Back From Visibility' After Tour Amid Weight Scrutiny](https://www.usmagazine.com/celebrity-news/news/ariana-grande-to-step-back-from-public-amid-scrutiny-rep/) - Us Weekly
+- [Ariana Grande to 'Step Back From Visibility' Amid 'Public Scrutiny'](http://www.hollywoodreporter.com/music/music-news/ariana-grande-step-back-from-visibility-public-scrutiny-1236661834/) - Hollywood Reporter
+- [BTS Return to MetLife Stadium for Full ARIRANG Show: Best Moments](http://www.billboard.com/lists/bts-arirang-tour-new-york-metlife-stadium-best-moments/) - Billboard
+- [BTS Return to MetLife Stadium With a Full ARIRANG World Tour Show: 15 Best Moments](https://www.yahoo.com/entertainment/music/articles/bts-return-metlife-stadium-full-145518648.html) - Yahoo
+- [BTS Return to MetLife Stadium With a Full ARIRANG World Tour Show: 15 Best Moments](https://www.billboard.com/lists/bts-arirang-tour-new-york-metlife-stadium-best-moments) - Billboard
+- [Sabrina Carpenter’s Breakout Album Brings Her To A Chart Milestone](https://www.forbes.com/sites/hughmcintyre/2026/08/02/sabrina-carpenters-breakout-album-brings-her-to-a-chart-milestone/) - Forbes
+- [Sabrina Carpenter’s Breakout Album Brings Her To A Chart Milestone](https://www.forbes.com/sites/hughmcintyre/2026/08/02/sabrina-carpenters-breakout-album-brings-her-to-a-chart-milestone) - Forbes
+- [Jennie Misses Out On Making K-Pop History By One Space](https://www.forbes.com/sites/hughmcintyre/2026/08/02/jennie-misses-out-on-making-k-pop-history-by-one-space/) - Forbes
+- [Jennie Misses Out On Making K-Pop History By One Space](https://www.forbes.com/sites/hughmcintyre/2026/08/02/jennie-misses-out-on-making-k-pop-history-by-one-space) - Forbes
+- [Jennie Misses Out On Making K-Pop History By One Space](https://www.yahoo.com/entertainment/music/articles/jennie-misses-making-k-pop-180000740.html) - Yahoo
+- [Jennie Passes Her Blackpink Bandmate Rosé’s Radio Record](https://www.forbes.com/sites/hughmcintyre/2026/07/05/jennie-passes-her-blackpink-bandmate-ross-radio-record) - Forbes
+- [Tony Iommi Reflects on Life Without Ozzy + Black Sabbath’s Legacy](https://loudwire.com/tony-iommi-reflects-on-life-without-ozzy-black-sabbath-legacy/) - Loudwire
+- [Tony Iommi Reflects on Life Without Ozzy + Black Sabbath’s Legacy](https://loudwire.com/tony-iommi-reflects-on-life-without-ozzy-black-sabbath-legacy) - Loudwire
+- [Ozzy Osbourne’s Black Sabbath bandmate Tony Iommi says he watches ‘dear friend’ on YouTube one year after death \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/tony-iommi-ozzy-osbourne-tribute-black-sabbath-b3019592.html) - Independent
+- [Black Sabbath Share Messages on Anniversary of Ozzy's Death](https://loudwire.com/black-sabbath-tribute-ozzy-death-anniversary) - Loudwire
+- [Boy George splits from music label manager over pro-Israel song: ‘We are done’](https://www.the-independent.com/arts-entertainment/music/news/boy-george-israel-song-music-label-b3025962.html) - The-independent.com
+- [Boy George parts ways with manager over pro-Israel song 'We Will Dance Again'](https://www.israelnationalnews.com/news/431100) - Israelnationalnews.com
+- [Boy George Exits Jesus Christ Superstar Amid Backlash Over AI Pro-Israel Song](https://stereogum.com/2506902/boy-george-exits-jesus-christ-superstar-amid-backlash-over-ai-pro-israel-song/news) - Stereogum
+- [Boy George splits from music label manager over pro-Israel song: ‘We are done’ \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/boy-george-israel-song-music-label-b3025962.html) - Independent
+- [Boy George fires record label manager over pro-Israel song dispute \| The National](https://www.thenationalnews.com/arts-culture/music-stage/2026/08/02/boy-george-israel-song-palestine) - Thenationalnews
+- [Boy George Pulls Out of West End Jesus Christ Superstar After Controversial Song Release](https://playbill.com/article/boy-george-pulls-out-of-west-end-jesus-christ-superstar-after-controversial-song-release) - Playbill
+- [Boy George Drops Out of Jesus Christ Superstar Days After Releasing Pro-Israel Song](https://consequence.net/2026/07/boy-george-pulled-from-jesus-christ-superstar) - Consequence
+- [Boy George Exits 'Jesus Christ Superstar' Amid Pro-Israel Song ...](https://www.newsweek.com/entertainment/boy-george-israel-song-jesus-christ-superstar-controversy-12267231) - Newsweek
+- [Trueno, Milo J, and J Noa Fire Up Summerstage](http://www.rollingstone.com/music/music-pictures/trueno-milo-j-j-noa-summerstage-photos-1235602262/) - Rolling Stone
+- [Trueno & Milo J Close LAMC 2026 & More Uplifting ...](https://www.billboard.com/music/latin/trueno-milo-j-close-lamc-2026-new-york-summerstage-1236307580) - Billboard
+- [Trueno, Milo J, and J Noa Fire Up Summerstage](https://www.rollingstone.com/music/music-pictures/trueno-milo-j-j-noa-summerstage-photos-1235602262) - Rollingstone
+- [Trueno + Milo J + J Noa \| Afropop Worldwide](https://www.afropop.org/events/trueno-milo-j-j-noa) - Afropop
+- [LAMC 2026 at SummerStage: Trueno + Milo J + J Noa \| Afropop Worldwide](https://www.afropop.org/events/lamc-2026-at-summerstage-trueno-milo-j-j-noa) - Afropop
+- [Morgan Wallen Dominates One Chart As Several Of His Hits Return](https://www.forbes.com/sites/hughmcintyre/2026/08/02/morgan-wallen-dominates-one-chart-as-several-of-his-hits-return/) - Forbes
+- [Morgan Wallen Dominates One Chart As Several Of His Hits Return](https://www.forbes.com/sites/hughmcintyre/2026/08/02/morgan-wallen-dominates-one-chart-as-several-of-his-hits-return) - Forbes
+- [Australian band headlines Ukraine’s biggest music festival \| 7.30](https://biztoc.com/x/416ea0dfa966c478) - Biztoc.com
+- [Australian band breathe. performs at Kyiv’s Atlas Festival](https://ozarab.media/australian-band-breathe-performs-at-kyivs-atlas-festival) - Ozarab
+- [Australian band breathe. have made it big in Ukraine, what they saw shocked them - ABC News](https://www.abc.net.au/news/2026-08-01/sydney-band-breathe-take-part-in-kyivs-atlas-music-festival/106966900) - Abc
+- [Australian band headlines Ukraine’s biggest music festival \| 7.30](https://www.youtube.com/watch?v=LW5umcnFJow) - Youtube
+- [VIDEO: Australian band breathe. perform in Kyiv.](https://www.abc.net.au/news/2026-07-29/australian-band-breathe-on-performing-in-ukraine/106973230) - Abc
+- [Ed's Sheeran-ville Mark II takes shape: Star's converted former piggery into 'countryside Abbey Road' recording studios with man cave, bar, gym, pool table and bowling alley... now he wants to transform the outbuildings](https://www.dailymail.com/news/article-16002591/Ed-Sheeran-ville-Mark-II-converted-former-piggery-countryside-Abbey-Road-recording-studios.html) - Dailymail.com
+- [I’m in my 50s and I still love boy bands – women like me are filling arenas for the idols we grew up with](https://cnalifestyle.channelnewsasia.com/women/midlife-boy-band-fan-concerts-586596) - CNA
+- [‘Super Freak’: The Story Behind Rick James’ Punk-Funk Hit](https://freerepublic.com/focus/f-chat/4390256/posts) - Freerepublic.com
+- [Rick James' Best-Selling 'Super Freak' Released 45 Years Ago](https://www.yahoo.com/entertainment/music/articles/rick-james-best-selling-super-023226540.html) - Yahoo
+- [PBTC: Music Culture Songs on Instagram: "Rick James’ 1981 hit “Super Freak” featured backing vocals from members of The Temptations and later became the foundation for MC Hammer’s 1990 smash “U Can’t Touch This.” Although “Super Freak” only reached No. 16 on the Billboard Hot 100, its famous bassline became one of the most recognizable in music history."](https://www.instagram.com/reel/DbRgsxpB3b_) - Instagram
+- [Modest Mouse guitarist dropped from tour amid accusations of sending inappropriate messages to a minor](https://www.the-independent.com/arts-entertainment/music/news/modest-mouse-tour-guitarist-simon-oconnor-b3026123.html) - The-independent.com
+- [Modest Mouse Replaces Guitarist Simon O’Connor Amid Allegations Of DMing Minor](http://deadline.com/2026/08/modest-mouse-replaces-guitarist-allegations-dm-minor-1237015496/) - Deadline
+- [Modest Mouse boots guitarist Simon O’Connor from tour after allegations he sent inappropriate messages to teen fan](https://pagesix.com/2026/08/02/entertainment/modest-mouse-boots-guitarist-simon-oconnor-from-tour-after-allegations-he-sent-inappropriate-messages-to-minor/) - Page Six
+- [See the inappropriate messages Modest Mouse guitarist Simon O’Connor sent to underage fan](https://pagesix.com/2026/08/02/celebrity-news/see-the-inappropriate-messages-modest-mouse-guitarist-simon-oconnor-sent-to-underage-fan/) - Page Six
+- [Modest Mouse boots guitarist Simon O’Connor from tour after allegations he sent inappropriate messages to minor](https://pagesix.com/2026/08/02/entertainment/modest-mouse-boots-guitarist-simon-oconnor-from-tour-after-allegations-he-sent-inappropriate-messages-to-minor) - Pagesix
+- [Modest Mouse Drops Guitarist Simon O’Connor from Tour After Inappropriate Message Allegations](https://people.com/modest-mouse-drops-guitarist-from-tour-after-inappropriate-message-allegations-12032396) - People
+- [Modest Mouse guitarist Simon O'Connor responds to allegations of sending inappropriate messages to a minor](https://www.nme.com/news/music/modest-mouse-guitarist-simon-oconnor-responds-to-allegations-of-sending-inappropriate-messages-to-a-minor-3959385) - Nme
+- [Modest Mouse Replaces Guitarist Simon O'Connor with Seth Jabour Amid Controversy](https://www.yahoo.com/entertainment/music/articles/modest-mouse-replaces-guitarist-simon-133055605.html) - Yahoo
+- [Modest Mouse Announce Simon O’Connor Will Not Be Joining Band On Tour Following Allegations Of Sending Inappropriate Messages To Minor - mxdwn Music](https://music.mxdwn.com/2026/07/31/news/modest-mouse-announce-simon-oconnor-will-not-be-joining-band-on-tour-following-allegations-of-sending-inappropriate-messages-to-minor) - Mxdwn
+- [Modest Mouse replacing guitarist Simon O'Connor on tour following allegation of inappropriate messages to minor](https://www.brooklynvegan.com/modest-mouse-replacing-guitarist-simon-oconnor-on-tour-following-allegation-of-inappropriate-messages-to-minor) - Brooklynvegan
