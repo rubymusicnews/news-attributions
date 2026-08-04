@@ -1,0 +1,57 @@
+# Sources for 2026-08-04 News Episode 
+- [Did an AI Music App Just Snitch on the Song of the Summer?](https://www.wired.com/story/ai-music-app-treblo-just-snitched-on-rubberz-song-of-the-summer/) - Wired
+- [Fenix Flexin Responds To Medasin's Viral Breakdown Claiming “Rubberz” Is “Fully” AI-Generated](https://stereogum.com/2506925/fenix-flexin-responds-to-viral-breakdown-claiming-rubberz-is-fully-ai-generated/news) - Stereogum
+- [Did an AI Music App Just Snitch on the Song of the Summer?](https://www.wired.com/story/ai-music-app-treblo-just-snitched-on-rubberz-song-of-the-summer) - Wired
+- [Is This Song of the Summer Actually Made With AI? This Artist Certainly Thinks So](https://www.vice.com/en/article/is-this-song-of-the-summer-actually-made-with-ai-this-artist-certainly-thinks-so) - Vice
+- [Fenix Flexin's "RUBBERZ" Allegedly Exposed As AI-Generated](https://www.hotnewhiphop.com/1004206-fenix-flexin-rubberz-exposed-ai-generated) - Hotnewhiphop
+- [Tyga Accused Of Using AI On New Album "$TARFACE"](https://www.hotnewhiphop.com/1004424-tyga-accused-using-ai-new-album-starface) - Hotnewhiphop
+- [Megadeth Announce Spring 2027 UK/European Leg of Farewell Tour](https://consequence.net/2026/08/megadeth-uk-european-leg-farewell-tour/) - Consequence.net
+- [MEGADETH Announces March/April 2027 European Tour With BLACK LABEL SOCIETY And TESTAMENT - BLABBERMOUTH.NET](https://blabbermouth.net/news/megadeth-announces-march-april-2027-european-tour-with-black-label-society-and-testament) - Blabbermouth
+- [Megadeth reveals European and UK tour in 2027 - Chaoszine](https://chaoszine.net/megadeth-reveals-european-and-uk-tour-in-2027) - Chaoszine
+- [Megadeth, BLS & Testament announce 2027 European tour \| NextMosh](https://nextmosh.com/megadeth-reveal-2027-european-farewell-tour-w-black-label-society-testament) - Nextmosh
+- [Megadeth Announce Spring 2027 UK/European Leg of Farewell Tour](https://consequence.net/2026/08/megadeth-uk-european-leg-farewell-tour) - Consequence
+- [Megadeth announce European tour with Black Label Society and Testament - Lambgoat](https://lambgoat.com/news/54147/megadeth-announce-european-tour-with-black-label-society-and-testament) - Lambgoat
+- [Megadeth Announce 2027 UK And European Dates For Breakout: Hibernation Of The Nations Tour - Stereoboard](https://www.stereoboard.com/content/view/252423/9) - Stereoboard
+- [R.E.M. Earns Its First Hit On One Billboard Chart](https://www.forbes.com/sites/hughmcintyre/2026/08/03/rem-earns-its-first-hit-on-one-billboard-chart/) - Forbes
+- [R.E.M. Earns Its First Hit On One Billboard Chart](https://www.forbes.com/sites/hughmcintyre/2026/08/03/rem-earns-its-first-hit-on-one-billboard-chart) - Forbes
+- [Phil Collins Reveals He Nearly Died 2 Years Ago: 'People Were Coming To Say Goodbye'](https://www.huffpost.com/entry/phil-collins-nearly-died-2024-health-crisis_n_6a70b051e4b0346d9be8200f) - HuffPost
+- [Phil Collins Says Alcoholic Relapse Left Him on Life Support](https://www.thehollywoodgossip.com/2026/08/phil-collins-says-alcoholic-relapse-left-him-on-life-support/) - The Hollywood Gossip
+- [Phil Collins Reveals He Nearly Died in 2024 After Drinking Caused His Organs to Shut Down](https://consequence.net/2026/08/phil-collins-opens-up-on-2024-health-crisis-that-left-him-on-life-support) - Consequence
+- [Phil Collins reveals that he nearly died in 2024: “My kidneys were packing up, my organs were just seizing up. People were coming to say goodbye” \| Louder](https://www.loudersound.com/bands-artists/interviews/phil-collins-nearly-died-in-2024) - Loudersound
+- [Phil Collins reveals alcohol addiction left him on life support in 2024: "People were coming to say goodbye"](https://www.nme.com/news/music/phil-collins-reveals-alcohol-addiction-left-him-on-life-support-in-2024-people-were-coming-to-say-goodbye-3960347) - Nme
+- [Phil Collins Details His Organs “Seizing Up” During Alcohol Addiction](https://www.yahoo.com/entertainment/celebrity/articles/phil-collins-details-organs-seizing-122705868.html) - Yahoo
+- [Phil Collins Says He Nearly Died From Alcohol Abuse](https://deadline.com/2026/08/phil-collins-nearly-died-alcoholism-1237015610) - Deadline
+- [Michael Jackson’s Current No. 1 Has Outlasted His Other Leaders — Combined](https://www.forbes.com/sites/hughmcintyre/2026/08/03/michael-jacksons-current-no-1-has-outlasted-his-other-leaders---combined/) - Forbes
+- [Michael Jackson’s ‘Billie Jean’ Is Blocking ‘Chicago’ from Billboard's Top Spot](https://www.complex.com/music/a/bernadette-giacomazzo/michael-jackson-chicago-billboard-charts-billie-jean) - Complex
+- [Michael Jackson Blocks Himself From A New No. 1 Hit — Again](https://www.forbes.com/sites/hughmcintyre/2026/07/31/michael-jackson-blocks-himself-from-a-new-no-1-hit---again) - Forbes
+- [Drake Appears To Be Back In the Studio, Fans Predict ‘Scary Hours 4’](https://hiphopwired.com/3061132/drake-scary-hours-4/) - Hip-Hop Wired
+- [Drake Back In the Studio, Fans Predict ‘Scary Hours 4’](https://hiphopwired.com/3061132/drake-scary-hours-4) - Hiphopwired
+- [Drake Spotted Recording New Music](https://www.hotnewhiphop.com/1004493-drake-recording-new-music) - Hotnewhiphop
+- [Drake Sparks New Music Rumors With Fresh Studio Photos](https://inmusicblog.com/rap/drake-new-music-home-studio-photos-2026) - Inmusicblog
+- [Olivia Dean 'turns down Glastonbury 2027 as Harry Styles is tipped to make his headline debut after she was linked to the singer two years ago'](https://www.dailymail.com/tvshowbiz/article-16026089/Olivia-Dean-Glastonbury-2027-Harry-Styles-headline.html) - Dailymail.com
+- [Olivia Dean turns down Glastonbury headline slot to focus on making new music - AOL](https://www.aol.co.uk/articles/olivia-dean-turns-down-glastonbury-083918000.html) - Aol
+- [Rick Ross Hits A New Chart Low With His Latest Album](https://www.forbes.com/sites/hughmcintyre/2026/08/03/rick-ross-hits-a-new-chart-low-with-his-latest-album/) - Forbes
+- [Rick Ross' "Set In Stone" Debuts at No. 39 on the Billboard 200 With 19K First Week \| RGM](https://ratingsgamemusic.com/2026/07/28/rick-ross-set-in-stone-is-projected-to-debut-outside-the-billboard-200-top-20) - Ratingsgamemusic
+- [Rick Ross Hits A New Chart Low With His Latest Album](https://www.forbes.com/sites/hughmcintyre/2026/08/03/rick-ross-hits-a-new-chart-low-with-his-latest-album) - Forbes
+- [Rick Ross' Final First-Week Sales For 'Set In Stone' Are In](https://www.hotnewhiphop.com/1003767-rick-ross-first-week-sales-set-in-stone) - Hotnewhiphop
+- [Organizers Cancel Yours Always Festival With Benson Boone and Sombr Without Explanation](http://www.rollingstone.com/music/music-news/yours-always-festival-benson-boone-sombr-cancelled-1235602447/) - Rolling Stone
+- [New Utah festival headlined by Benson Boone, Sombr suddenly canceled](https://www.ksl.com/article/51605335/new-utah-festival-headlined-by-benson-boone-sombr-suddenly-canceled) - Ksl
+- [SLC music festival organizers mysteriously cancel event, vanish without notice](https://www.fox13now.com/news/local-news/salt-lake-city/salt-lake-city-music-festival-organizers-mysteriously-cancel-event-vanish-without-notice) - Fox13now
+- [Yours Always Music Festival In Salt Lake City Canceled](https://stereogum.com/2507129/organizers-cancel-new-fest-headlined-by-benson-boone-sombr/news) - Stereogum
+- [Yours Always Music Festival Cancels 2026 Iteration Headlined by Sombr & Benson Boone - mxdwn Music](https://music.mxdwn.com/2026/08/03/news/yours-always-music-festival-cancels-2026-iteration-headlined-by-sombr-benson-boone) - Mxdwn
+- [Organizers Cancel Yours Always Festival With Benson Boone and Sombr Without Explanation](https://www.rollingstone.com/music/music-news/yours-always-festival-benson-boone-sombr-cancelled-1235602447) - Rollingstone
+- [5 Acts to Catch at ARC Music Festival 2026](https://dancingastronaut.com/2026/08/5-acts-to-catch-at-arc-music-festival-2026/) - Dancing Astronaut
+- [5 Acts to Catch at ARC Music Festival 2026 - Dancing Astronaut](https://dancingastronaut.com/2026/08/5-acts-to-catch-at-arc-music-festival-2026) - Dancingastronaut
+- [The Bruce Springsteen Song That Reportedly Almost Went to Elvis Presley](https://www.mentalfloss.com/entertainment/music/bruce-springsteen-song-for-elvis-presley) - Mental Floss
+- [The Bruce Springsteen Song That Reportedly Almost Went to Elvis Presley](https://www.yahoo.com/entertainment/music/articles/bruce-springsteen-song-reportedly-almost-200003752.html) - Yahoo
+- [In 1977, Bruce Springsteen Wrote This Song — 2 Years Later The Pointer Sisters Made It A Billboard Hit](https://www.grunge.com/2224009/bruce-springsteen-wrote-fire-pointer-sisters-billboard-hit) - Grunge
+- [Pitchfork Music Festival London adds DIIV, Panda Bear & Sonic Boom, Nirosta Steel to 2026 programme](https://www.thelineofbestfit.com/news/pitchfork-music-festival-london-adds-diiv-panda-bear-sonic-boom-nirosta-steel-to-2026-programme) - Thelineofbestfit.com
+- [Pitchfork Festival London Adds More Names for 2026 \| Pitchfork](https://pitchfork.com/story/pitchfork-festival-london-adds-more-names-for-2026) - Pitchfork
+- [Pitchfork Music Festival London adds Panda Bear & Sonic Boom, Thaiboy Digital · News ⟋ RA](https://ra.co/news/85711) - Ra
+- [Pitchfork Music Festival London announces second wave of names for the exciting 2026 edition - Mixtape Madness](https://www.mixtapemadness.com/blog/news/pitchfork-music-festival-london-announces-second-wave-of-names-for-the-exciting-2026-edition) - Mixtapemadness
+- [Angine de Poitrine Are Conquering Dance Floors Thanks to deadmau5's Remix](https://exclaim.ca/music/article/angine-de-poitrine-are-conquering-dance-floors-thanks-to-deadmau5-s-remix) - Exclaim!
+- [Who Are Angine de Poitrine And Why Are They EVERYWHERE? Here You Go.](https://www.thatericalper.com/2026/08/01/who-are-angine-de-poitrine-and-why-are-they-everywhere-here-you-go) - Thatericalper
+- [EXCLUSIVE: Guns N' Roses Fans 'Thrilled' as Slash Confirms New Music Plans](https://radaronline.com/p/guns-n-roses-slash-confirms-new-music-plans/) - Radaronline.com
+- [Slash Confirms New Guns N' Roses Music Plans - Leaving Fans Allegedly 'Thrilled' - Yahoo Style Canada](https://ca.style.yahoo.com/slash-confirms-guns-n-roses-222925509.html) - Yahoo
+- [Guns N' Roses star Slash reveals new album plans - Music News \| Music-News.com](https://www.music-news.com/news/UK/190460/Guns-N-Roses-star-Slash-reveals-new-album-plans) - Music-news
+- [Slash reveals the release date for the upcoming album by his project featuring Myles Kennedy & The Conspirators](https://chaoszine.net/slash-reveals-the-release-date-for-the-upcoming-album-by-his-project-featuring-myles-kennedy-the-conspirators) - Chaoszine
