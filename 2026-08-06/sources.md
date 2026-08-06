@@ -1,0 +1,69 @@
+# Sources for 2026-08-06 News Episode 
+- [Phoebe Bridgers Makes Up for Lost Time on Her Long-Awaited New Album](http://www.rollingstone.com/music/music-album-reviews/phoebe-bridgers-new-album-review-lost-weekend-1235589661/) - Rolling Stone
+- [On Lost Weekend, Phoebe Bridgers wrestles with it all – even the broken engagement to Paul Mescal](https://www.the-independent.com/arts-entertainment/music/news/phoebe-bridgers-lost-weekend-review-paul-mescal-b3027316.html) - The-independent.com
+- [Is That Cameron Winter on Phoebe Bridgers’ New Album?](http://www.rollingstone.com/music/music-news/phoebe-bridgers-cameron-winter-lost-weekend-1235600345/) - Rolling Stone
+- [Phoebe Bridgers – 'Lost Weekend' review: a breathtaking portrait of love and grief \| The Forty-Five](https://thefortyfive.com/opinion/reviews/phoebe-bridgers-lost-weekend-review) - Thefortyfive
+- [Phoebe Bridgers ‘Lost Weekend’ album review:](https://www.rollingstone.co.uk/music/phoebe-bridgers-lost-weekend-album-review-63345) - Rollingstone
+- [Music Review: ‘Lost Weekend’ is Phoebe Bridgers' evocative sonic collage](https://www.thetelegraph.com/entertainment/article/music-review-lost-weekend-is-phoebe-22375519.php) - Thetelegraph
+- [Phoebe Bridgers: Lost Weekend review – long-awaited return is a thrilling, daring study in dislocation](https://www.theguardian.com/music/2026/aug/05/phoebe-bridgers-lost-weekend-review-long-awaited-return-is-a-thrilling-daring-study-in-dislocation) - Theguardian
+- [Phoebe Bridgers Album Review: 'Lost Weekend'](https://www.rollingstone.com/music/music-album-reviews/phoebe-bridgers-new-album-review-lost-weekend-1235589661) - Rollingstone
+- [Taking John Cage’s “As SLow aS Possible” Into A Whole Other Dimension](https://apnews.com/article/john-cage-organ-project-halberstadt-organ-aslsp-938b5a1d0bc3d8d0dec5cb19accd00a6) - Associated Press
+- [Organ set to play the world’s slowest concert, playing one composition until 2640](https://nypost.com/2026/08/05/world-news/this-german-organ-set-to-play-the-worlds-slowest-concert-playing-one-composition-until-2640/) - New York Post
+- [Organ will play one composition until 2640, redefining how slowly music can be played](https://abcnews.com/Entertainment/wireStory/organ-play-composition-2640-redefining-slowly-music-played-135376532) - Abcnews.com
+- [Crux](https://cruxnow.com/church-in-europe/2026/08/this-cathedral-organ-will-play-one-composition-until-2640) - Cruxnow
+- [This organ will play one composition until 2640. It's redefining how slowly music can be played](https://www.myjournalcourier.com/entertainment/article/this-organ-will-play-one-composition-until-2640-22374779.php) - Myjournalcourier
+- [Organ will play one composition until 2640, redefining how slowly music can be played - ABC News](https://www.google.com/goto?url=CAESqAEB7keqTVixxYAT4jCeKw9FL3MIgVMyvTsc24wQXZ5qFlM4v8qT9dbQYwJ60tSwPaVRpDytGQzdh-zoSWz_laD70FPRWOPfLQPhwQxCtvy19NViuvzah47fyTrFVusDnBwFg4hIbGG3RLJErV0Az9CCZKRGlcgzkL2WGKzLaAFAwOua-g_msAmfS_E9kmMuSl1W5y7qtkBZr4N9mcL0XsU6qST4QAiM0n0%3D) - Google
+- [This organ will play one composition until 2640. It's redefining how slowly music can be played \| Entertainment \| reflector.com](https://www.reflector.com/features/entertainment/this-organ-will-play-one-composition-until-2640-its-redefining-how-slowly-music-can-be/article_29ee4e25-4e2b-5926-bee2-5fec732eb4ff.html) - Reflector
+- [Cypress Hill’s B-Real Talks Celebrating Cultural Pride and Spirituality on ‘Dios Bendiga’ LP](http://www.rollingstone.com/music/music-latin/cypress-hill-talks-cultural-pride-spirituality-dios-bendiga-1235603764/) - Rolling Stone
+- [Cypress Hill Talks Celebrating Cultural Pride on 'Dios Bendiga' Album](https://www.rollingstone.com/music/music-latin/cypress-hill-talks-cultural-pride-spirituality-dios-bendiga-1235603764) - Rollingstone
+- [Cypress Hill Drops 'Dios Bendiga,' First Spanish-Language LP: Interview](https://www.billboard.com/music/latin/cypress-hill-dios-bendiga-latin-rap-spanish-album-interview-1236302580) - Billboard
+- [CYPRESS HILL RELEASES HIGHLY ANTICIPATED DEBUT SPANISH-LANGUAGE ALBUM DIOS BENDIGA TODAY \| Cypress Hill \| Official Website](https://cypresshill.com/2026/07/24/cypress-hill-releases-highly-anticipated-debut-spanish-language-album-dios-bendiga-today) - Cypresshill
+- [Cypress Hill Releases Debut Spanish-Language Album 'Dios Bendiga'](https://www.broadwayworld.com/bwwmusic/article/Cypress-Hill-Releases-Debut-Spanish-Language-Album-Dios-Bendiga-20260724) - Broadwayworld
+- [Cypress Hill Talks Celebrating Cultural Pride on 'Dios Bendiga' Album](https://www.google.com/goto?url=CAESrgEB7keqTd2ceyUfps28i6r-ZFGq3k1AJmQTZJWRzeWgqFNoDVUBqYdLvhx4Afkauze6WmsmarHqSGGNkf7SvupqGlm_0Po4THVWZRimHQR-GA42bP_YbiGyN-JRH11skVxM-mEFiLNwDYx3DMwQ1cFDJE-xm51vDzVOo5pPy0onrkogstTvtl9tzOS507uM1nFJ--5G58qGgGZM2QKfyME1jI5OrNejx4R2rgFrbdw%3D) - Google
+- [Cypress Hill release debut Spanish-language album, 'Dios ...](https://djmag.com/news/cypress-hill-release-debut-spanish-language-album-dios-bendiga-listen) - Djmag
+- [The Price of Music: streaming fraud – how does it work and who’s doing it?](https://musically.com/2026/08/05/the-price-of-music-streaming-fraud-how-does-it-work-and-whos-doing-it/) - Music Ally
+- [Spotify removes 75 million AI songs to stop streaming royalty scams](https://iol.co.za/entertainment/music/2026-07-19-spotify-removes-75-million-ai-songs-to-stop-streaming-royalty-scams) - Iol
+- [D4vd's Apple Music page reportedly hacked amid murder charges](https://www.bbc.com/news/articles/cwyenzw2l4lo) - Bbc
+- [The Price of Music: streaming fraud – how does it work and who’s doing it? - Music Ally](https://musically.com/2026/08/05/the-price-of-music-streaming-fraud-how-does-it-work-and-whos-doing-it) - Musically
+- [AI Music Tops 50% of Daily Uploads on Deezer](https://newsroom-deezer.com/2026/07/ai-music-exceeds-50-percent-daily-uploads-deezer) - Newsroom-deezer
+- [AI Streaming Fraud Sentencing Tomorrow: Bot Network Stole $8M From All Artists](https://www.techtimes.com/articles/321763/20260728/ai-streaming-fraud-sentencing-tomorrow-bot-network-stole-8m-all-artists.htm) - Techtimes
+- [Behind the Campaign: Raye – ‘This Music May Contain Hope’](https://musically.com/2026/08/05/behind-the-campaign-raye-music-may-contain-hope/) - Music Ally
+- [Behind the Campaign: Raye – 'This Music May Contain Hope' - Music Ally](https://musically.com/2026/08/05/behind-the-campaign-raye-music-may-contain-hope) - Musically
+- [Roundtable: A Review of RAYE’s ‘THIS MUSIC MAY CONTAIN HOPE.’ - Atwood Magazine](https://atwoodmagazine.com/rmch-raye-this-music-may-contain-hope-album-review-roundtable-feature) - Atwoodmagazine
+- [SM Announces Comeback Lineup For Remainder Of 2026](http://www.soompi.com/article/1860159wpp/sm-announces-comeback-lineup-for-remainder-of-2026) - soompi
+- [SM Entertainment Reveals Epic Comeback Lineup for the Remainder of 2026!](https://technosports.co.in/sm-entertainment-reveals-epic-comeback) - Technosports
+- [SM Entertainment Announces 2026 Comeback Schedule for Taeyeon, NCT, Red Velvet & More - KbizoOm](https://kbizoom.com/sm-entertainment-2026-comeback-schedule) - Kbizoom
+- [SM Entertainment unveils second-half lineup - The Korea Herald](https://www.koreaherald.com/article/10832193) - Koreaherald
+- [NCT 127 To Release New Album Blingy Ahead of World Tour \| Outlook Respawn](https://respawn.outlookindia.com/pop-culture/pop-culture-news/nct-127-blingy-comeback-2026-sm-entertainment-contract-renewal-world-tour) - Outlookindia
+- [SM "Hyo-ri-soo, Taeyeon, NCT to return in second half..Active activities anticipated" [Star Issue]](https://www.starnewskorea.com/en/music/2026/08/05/2026080514240981299) - Starnewskorea
+- [Braxton Keith Is Leading Country’s New Class of Twang](http://www.rollingstone.com/music/music-country/braxton-keith-post-malone-stagecoach-interview-1235603684/) - Rolling Stone
+- [Braxton Keith Talks Singing With Post Malone at Stagecoach](https://www.rollingstone.com/music/music-country/braxton-keith-post-malone-stagecoach-interview-1235603684) - Rollingstone
+- [Shut Up—The Next Rihanna Album Is ‘Cooking’](https://www.jezebel.com/shut-up-the-next-rihanna-album-is-cooking) - Jezebel
+- [Rihanna Is ‘in the Studio Right Now’ & She’s ‘Cooking,’ Teases A$AP Rocky \| Billboard Canada](https://ca.billboard.com/music/rb-hip-hop/rihanna-in-the-studio-asap-rocky-reveals-1236309524) - Billboard
+- [Rihanna working on new music, says A$AP Rocky](https://www.bbc.com/news/articles/c4gwvvw9k1xo) - Bbc
+- [Rihanna 'cooking' new music in studio, confirms A$AP Rocky](https://www.thenews.com.pk/latest/1411384-rihanna-cooking-new-music-in-studio-confirms-aap-rocky) - Thenews
+- [Rihanna’s 9th Album, 'R9' -  What We Know So Far](https://www.google.com/goto?url=CAESkQEB7keqTVZP49hzn9jdQEuvb8AAaDgPTYVwV2uNqGuk3Fo63Zp7n2NtZB1jqwmJYB6hOW1KdvimlZmFbd9tEn3hLYez0CXg_1POByIg7MmsE95XWjGha9cfk7TlSD8T7fUQUPFjMC3fGeCXvN6OSAfJ0Il2Qs6NcBFWJBFXfrl0H40279qEqn2JEYkhrI3ZSeO2) - Google
+- [Rihanna’s ninth album has been teased yet again… but fans don’t believe it](https://www.independent.co.uk/arts-entertainment/music/news/rihanna-r9-album-release-date-asap-rocky-b3028447.html) - Independent
+- [Joan Baez: Dancing Queen](https://www.spinmagazine.com/2026/08/joan-baez-dancing-queen/) - Spinmagazine.com
+- [Joan Baez: Dancing Queen](https://www.yahoo.com/entertainment/music/articles/joan-baez-dancing-queen-130000018.html) - Yahoo
+- [Joan Baez: Dancing Queen - SPIN](https://www.spinmagazine.com/2026/08/joan-baez-dancing-queen) - Spinmagazine
+- [Joan Baez returns to Alameda’s ‘The Soiled Dove’ circus spectacle](https://www.sfchronicle.com/entertainment/theater/article/joan-baez-soiled-dove-22358185.php) - Sfchronicle
+- [Wes Borland Relishes Limp Bizkit’s “Bizarre” Resurgence After Years of Backlash](https://consequence.net/2026/08/wes-borland-limp-bizkit-resurgence-interview/) - Consequence.net
+- [Wes Borland Relishes Limp Bizkit’s “Bizarre” Resurgence After Years of Backlash](https://consequence.net/2026/08/wes-borland-limp-bizkit-resurgence-interview) - Consequence
+- [Limp Bizkit guitarist Wes Borland... - Digital Noise Mag](https://www.facebook.com/digitalnoisemag/posts/limp-bizkit-guitarist-wes-borland-recently-addressed-the-groups-unexpected-surge/1705520734913925) - Facebook
+- [Limp Bizkit keeps the fun times ‘Rollin” with festival headlining sets – 105.7 The Point](https://www.1057thepoint.com/music-news/limp-bizkit-keeps-the-fun-times-rollin-with-festival-headlining-sets) - 1057thepoint
+- [Smoke, storms and Heavy Metal: Inside Inkcarceration 2026 - WOUB Public Media](https://woub.org/2026/07/27/smoke-storms-and-heavy-metal-inside-inkcarceration-2026) - Woub
+- [Weezer’s “C.E.O.” Is A Wry Anthem For Aging Rock Bands](https://www.spinmagazine.com/2026/08/weezers-ceo-video-tour/) - Spinmagazine.com
+- [Weezer Previews Self-Titled 'Gold Album,' Out Aug. 21 Ahead of Tour - Rock Cellar Magazine](https://rockcellarmagazine.com/weezer-gold-album-new-album-listen-preview-tour-2026/) - Rockcellarmagazine
+- [WEEZER Announces 2027 International Tour Dates, Shares New Single “C.E.O.” - Icon Vs. Icon](https://www.iconvsicon.com/2026/08/05/weezer-2027-tour-dates-ceo-new-album/amp) - Iconvsicon
+- [Weezer Announces New Dates for ‘The Gathering’ World Tour](https://www.yahoo.com/entertainment/music/articles/weezer-announces-dates-gathering-world-233424906.html) - Yahoo
+- [Sleep Announce New Album Hemispheres, Unveil Single “The Morrisist”: Stream](https://consequence.net/2026/08/sleep-new-album-hemispheres-single-the-morrisist/) - Consequence.net
+- [Sleep Announce New Album Hempispheres, Unveil Single “The Morrisist”: Stream](https://consequence.net/2026/08/sleep-new-album-hempispheres-single-the-morrisist/) - Consequence.net
+- [Sleep kündigen neues Album "Hempispheres" an](https://www.visions.de/news/sleep-neues-album-hempispheres-song-the-morrisist/) - Visions.de
+- [Sleep announce new album, Hemispheres - Treble](https://www.treblezine.com/sleep-announce-new-album-hemispheres) - Treblezine
+- [SLEEP Announces 'Hemispheres', First Album In Eight Years - BLABBERMOUTH.NET](https://blabbermouth.net/news/sleep-announces-hemispheres-first-album-in-eight-years) - Blabbermouth
+- [Sleep Announce New Album Hempispheres, Unveil Single "The Morrisist"](https://consequence.net/2026/08/sleep-new-album-hempispheres-single-the-morrisist) - Consequence
+- [Sleep announce new album Hempispheres](https://northerntransmissions.com/sleep-announce-new-album-hempispheres) - Northerntransmissions
+- [Stella Lefty and the Rise of Nepo-Baby Musicians and “Industry Plants”](https://www.newyorker.com/culture/infinite-scroll/stella-lefty-and-the-rise-of-nepo-baby-musicians-and-industry-plants) - The New Yorker
+- [Why People Think Stella Lefty Is an 'Industry Plant'](https://www.rollingstone.com/music/music-country/stella-lefty-industry-plant-accusations-1235590954) - Rollingstone
+- [Why Doesn't Stella Lefty's "Boston" Feel Like an Organic Hit Song? - Where Is The Buzz \| Breaking News, Entertainment, Exclusive Interviews & Morero](https://whereisthebuzz.com/why-doesnt-stella-leftys-boston-feel-like-an-organic-hit-song) - Whereisthebuzz
