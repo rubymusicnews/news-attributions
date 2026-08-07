@@ -1,0 +1,71 @@
+# Sources for 2026-08-07 News Episode 
+- [The Avalanches Announce New Album No Bad Memories](https://pitchfork.com/story/the-avalanches-announce-new-album-no-bad-memories/) - Pitchfork
+- [Not ‘Bad’: The Avalanches Announce New Album](https://www.spinmagazine.com/2026/08/avalanches-new-album/) - Spinmagazine.com
+- [The Avalanches Announce Fourth Album No Bad Memories - Noise11 Music News](https://www.noise11.com/news/the-avalanches-announce-fourth-album-no-bad-memories-20260807) - Noise11
+- [The Avalanches Announce New Album No Bad Memories](https://pitchfork.com/story/the-avalanches-announce-new-album-no-bad-memories) - Pitchfork
+- [The Avalanches reveal new 31-track album, No Bad Memories · News ⟋ RA](https://ra.co/news/85745) - Ra
+- [Not 'Bad': The Avalanches Announce New Album - SPIN](https://www.spinmagazine.com/2026/08/avalanches-new-album) - Spinmagazine
+- [The Avalanches Announce New Album No Bad Memories: Hear "Can’t Get Over Losing You" (Feat. Portraits Of Tracy)](https://www.google.com/goto?url=CAESxAEB7keqTYf0Jv0PhFvXhYiRCLgZTuqhG6BnkB3k-wrb9Y_1yf0dXloMXt1424A9Hb4r4bAHF01EQuy8nAFdahYjdfZD1s_XzL02Ue1LCE9FGpcOQnFxwPGTH0GwPs-_tUEDauXex7wSwBHkwiAAtClvn3axjNQbQNYrpPEqM-Z7s5WQDItwpcLLwjA8UxCmuMhM3OCyMh123t60E52V4Oz7WMr_pXswvFPUahpqCXR5-JTRU5S0MHbXc1jBneNIsi_gizFa) - Google
+- [Lauryn Hill and Wyclef ‘in an amazing place’ as fans hope for new Fugees album after 30 years](https://www.bbc.co.uk/news/articles/cdew6jxjw3do) - BBC News
+- [Lauryn Hill and Wyclef ‘in an amazing place’ as fans hope for new Fugees album after 30 years](https://www.bbc.com/news/articles/cdew6jxjw3do) - Bbc
+- [Lauryn Hill and Wyclef promise new music: "Absolutely"](https://faroutmagazine.co.uk/lauryn-hill-wyclef-absolutely-making-new-music-together) - Faroutmagazine
+- [Lauryn Hill launches Diaspora Calling festival in London ahead of Fugees reunion - The Lagos Review](https://thelagosreview.ng/lauryn-hill-launches-diaspora-calling-festival-in-london-ahead-of-fugees-reunion) - Thelagosreview
+- [Fugees reunion: Lauryn Hill, Wyclef Jean hint at new music after 30 years - P.M. News](https://pmnewsnigeria.com/2026/08/07/fugees-reunion-lauryn-hill-wyclef-jean-hint-at-new-music-after-30-years) - Pmnewsnigeria
+- [See Chris Stapleton Join Guns N’ Roses for ‘Knockin’ on Heaven’s Door’ in Toronto](http://www.rollingstone.com/music/music-news/chris-stapleton-guns-n-roses-knockin-on-heavens-door-toronto-1235604568/) - Rolling Stone
+- [Watch: GUNS N' ROSES Joined By CHRIS STAPLETON For 'Knockin' On Heaven's Door' Performance In Toronto - BLABBERMOUTH.NET](https://blabbermouth.net/news/watch-guns-n-roses-joined-by-chris-stapleton-for-knockin-on-heavens-door-performance-in-toronto) - Blabbermouth
+- [See Chris Stapleton Join Guns N’ Roses for ‘Knockin’ on Heaven’s Door’ in Toronto](https://www.rollingstone.com/music/music-news/chris-stapleton-guns-n-roses-knockin-on-heavens-door-toronto-1235604568) - Rollingstone
+- [Chris Stapleton Joins Guns N’ Roses for Surprise Cover of a Bob Dylan Hit at Band’s Toronto Show](https://www.billboard.com/music/rock/chris-stapleton-guns-n-roses-knockin-on-heavens-door-1236310493) - Billboard
+- [Chris Stapleton Joins Guns N' Roses at Toronto Concert](https://au.rollingstone.com/music/music-news/chris-stapleton-guns-n-roses-knockin-on-heavens-door-toronto-99423) - Rollingstone
+- [Watch: Chris Stapleton Covers Dylan with Guns N’ Roses](https://jambands.com/news/2026/08/06/watch-chris-stapleton-covers-dylan-with-guns-n-roses) - Jambands
+- [Rock icon Joan Jett, 67, forced to cancel tour after suffering mysterious 'injury'](https://www.dailymail.com/tvshowbiz/article-16035067/rock-icon-joan-jett-cancels-tour-injury.html) - Dailymail.com
+- [Joan Jett Announces Show Cancellations Following Surgery](https://963kklz.com/2026/08/06/joan-jett-announces-show-cancellations-following-surgery) - 963kklz
+- [Joan Jett cancels tour dates due to "healing process" after surgery](https://www.nme.com/news/music/joan-jett-cancels-tour-dates-due-to-healing-process-after-surgery-3961198) - Nme
+- [Joan Jett cancels concerts due to scary injury, surgery](https://pagesix.com/2026/08/06/celebrity-news/joan-jett-cancels-concerts-due-to-scary-injury-surgery) - Pagesix
+- [Iconic US rocker Joan Jett forced to cancel tour due to mystery injury after undergoing secret surgery](https://www.the-sun.com/entertainment/16805023/joan-jett-cancels-tour-injury-surgery) - The-sun
+- [Joan Jett Cancels September Tour Dates Following Emergency Spinal Surgery \| Streamline](https://streamlinefeed.co.ke/news/joan-jett-cancels-september-tour-dates-following-emergency-spinal-surgery) - Streamlinefeed
+- [The Weeknd credits Kavinsky with inspiring ‘Blinding Lights’ and ‘Save Your Tears’](https://djmag.com/news/weeknd-credits-kavinsky-inspiring-blinding-lights-and-save-your-tears) - DJ Mag
+- [The Weeknd credits Kavinsky with inspiring ‘Blinding Lights’ and ‘Save Your Tears’ \| DJ Mag](https://www.google.com/goto?url=CAESlAEB7keqTY-9hfX0DiGoWe6kgF-waVe6lTSMPMg8wtniJ36dkojdkRV-mWoNNY4HLsPnuvI1FKCc5V-ABURlOQ1ApOr8ul6UN_XG58ZTIO_njIt_1U87AWoQOT-F_eN5UePrfstlU4FJ-cpRDIkimrXvqkNHb-6cT_JGiiq1oSrP1mcV_Ye-G1oDXS1NVIujWY74fZSs) - Google
+- [The Weeknd Says Kavinsky Inspired Hits Like 'Blinding Lights' and 'Save Your Tears' - EDM](https://edm.com/news/the-weeknd-says-kavinsky-inspired-blinding-lights-save-your-tears) - Edm
+- [Instagram](https://www.instagram.com/p/DbqvCB6Jxw5) - Instagram
+- [EXCLUSIVE: Shania Twain Opens Up on Tragedy That Nearly Ended Her Career](https://radaronline.com/p/shania-twain-tragedy-nearly-ended-career/) - Radaronline.com
+- [On 'Little Miss Twain,' Shania Twain reflects on her humble beginnings and her late mother](https://www.yahoo.com/entertainment/music/articles/little-miss-twain-shania-twain-130242582.html) - Yahoo
+- [Shania Twain Talks Taylor Swift, Harry Styles and New Album](https://www.billboard.com/music/country/shania-twain-talks-taylor-swift-new-album-fallon-1236301256) - Billboard
+- [Shania Twain Shares Details on Growing Up in a 'Very Violent' Home, Says Her Parents 'Fought a Lot' - AOL](https://www.aol.com/articles/shania-twain-shares-details-growing-190706000.html) - Aol
+- [Shania Twain opens up about ‘very violent’ upbringing in abusive home: ‘Those walls would shake’ - AOL](https://www.aol.com/articles/shania-twain-opens-very-violent-022945000.html) - Aol
+- [Watch Hilary Duff Perform ‘The Anthem’ With Good Charlotte at Madison Square Garden](http://www.rollingstone.com/music/music-news/hilary-duff-good-charlotte-the-anthem-performance-msg-1235604450/) - Rolling Stone
+- [Hilary Duff Reminded Me That We Don't Have to Leave Our Teenage Selves Behind](https://www.teenvogue.com/story/hilary-duff-reminded-me-we-dont-have-to-leave-our-teenage-selves-behind) - Teen Vogue
+- [Hilary Duff stuns fans as she REUNITES with ex-boyfriend Joel Madden on stage... after revealing her surprise friendship with his now-wife Nicole Richie](https://www.dailymail.com/tvshowbiz/article-16033953/Hilary-Duff-reunites-ex-Joel-Madden-concert.html) - Dailymail.com
+- [Hilary Duff Brings Out Ex Boyfriend Joel Madden & Good Charlotte for 'The Anthem' Surprise Performance at Madison Square Garden Show! \| Just Jared - Celebrity News and Gossip \| Entertainment](https://www.justjared.com/2026/08/06/hilary-duff-brings-out-ex-boyfriend-joel-madden-good-charlotte-for-the-anthem-surprise-performance-at-madison-square-garden-show) - Justjared
+- [Watch Hilary Duff Perform 'The Anthem' With Good Charlotte at MSG](https://www.rollingstone.com/music/music-news/hilary-duff-good-charlotte-the-anthem-performance-msg-1235604450) - Rollingstone
+- [Hilary Duff, Good Charlotte surprise at MSG concert – See tour setlist](https://www.usatoday.com/story/entertainment/music/2026/08/06/hilary-duff-tour-setlist-2026-concert/91184679007) - Usatoday
+- [Robbie Williams impegnato in un concerto in Danimarca](https://www.ansa.it/sito/photogallery/people/2026/08/06/robbie-williams-impegnato-in-un-concerto-in-danimarca_d5dc73d9-cc01-4bf4-93b4-1c93d7b6fc36.html) - ANSA.it
+- [Robbie Williams impegnato in un concerto in Danimarca](https://www.ansa.it/sito/photogallery/primopiano/2026/08/06/robbie-williams-impegnato-in-un-concerto-in-danimarca_207da2cb-dc2b-473d-9295-63aedbb0ac5d.html) - ANSA.it
+- [Denmark Robbie Williams \| World \| guardonline.com](https://www.guardonline.com/news/world/denmark-robbie-williams/image_e523812e-d078-5283-b539-485eb0cffec6.html) - Guardonline
+- [Instagram](https://www.instagram.com/p/DbsZVdhF0M9) - Instagram
+- [Hot take: It’s time we paid DJs less money](https://www.dazeddigital.com/music/article/70763/1/hot-take-time-we-paid-dj-less-money-fred-again-music-venues-clubs?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=hot-take-it-s-time-we-paid-djs-less-money) - Dazed
+- [Britney Spears’ music video director details moment singer received Justin Timberlake breakup text on set](https://pagesix.com/2026/08/06/celebrity-news/britney-spears-music-video-director-details-moment-singer-received-justin-timberlake-breakup-text-on-set/) - Page Six
+- [Britney Spears got breakup text while filming video, director says - cleveland.com](https://www.cleveland.com/entertainment/2026/08/pop-star-received-breakup-text-while-filming-iconic-video-director-says.html) - Cleveland
+- [Britney Spears' music video director details moment singer received Justin Timberlake breakup text on set](https://pagesix.com/2026/08/06/celebrity-news/britney-spears-music-video-director-details-moment-singer-received-justin-timberlake-breakup-text-on-set) - Pagesix
+- [Britney Spears video director details moment she got breakup text from Justin Timberlake](https://ew.com/britney-spears-video-director-details-moment-she-got-breakup-text-from-justin-timberlake-12035468) - Ew
+- [Britney Spears music video director details moment she got breakup text from Justin Timberlake while filming ‘Overprotected’ - Yahoo News UK](https://uk.news.yahoo.com/britney-spears-music-video-director-061003638.html) - Yahoo
+- [Britney Spears music video director details moment she got breakup text from Justin Timberlake while filming ‘Overprotected’ - Yahoo News Malaysia](https://malaysia.news.yahoo.com/britney-spears-music-video-director-061003638.html) - Yahoo
+- [Live Nation's former Asia Pacific President joins Triangle Group, following a US$15 million capital raise](https://www.prnewswire.com/news-releases/live-nations-former-asia-pacific-president-joins-triangle-group-following-a-us15-million-capital-raise-302843752.html) - PRNewswire
+- [Live Nation's former Asia Pacific President joins Triangle Group, following a US$15 million capital raise](https://www.thehindubusinessline.com/brandhub/pr-release/live-nations-former-asia-pacific-president-joins-triangle-group-following-a-us-15-million-capital-raise/article71311930.ece) - BusinessLine
+- [Triangle Group Raises $15M As Former Live Nation APAC President Roger Field Joins Leadership – famemagazine.co.uk](https://www.famemagazine.co.uk/triangle-group-raises-15m-as-former-live-nation-apac-president-roger-field-joins-leadership) - Famemagazine
+- [Live Nation Asia-Pacific Veteran Joins Triangle](https://www.ticketnews.com/2026/08/live-nation-asia-pacific-veteran-joins-triangle) - Ticketnews
+- [[PRNewswire] Triangle Group Hires Live Nation Veteran \| Yonhap News Agency](https://en.yna.co.kr/view/RPR20260806001800353?section=press-release%2Findex) - Yna
+- [Singapore touring and concert firm Triangle raises $15M ...](https://www.musicbusinessworldwide.com/singapore-touring-and-concert-firm-triangle-raises-15m-as-former-live-nation-apac-president-roger-field-joins-leadership-team) - Musicbusinessworldwide
+- [Live Music Industry News](https://www.hypebot.com/live-music-industry-news-20) - Hypebot
+- [Nikki Sixx Addresses Motley Crue's Use of Backing Tracks Live](https://loudwire.com/nikki-sixx-motley-crue-backing-tracks/) - Loudwire
+- [Nikki Sixx Admits to Mötley Crüe Using Backing Tracks During Live Shows - American Songwriter](https://americansongwriter.com/nikki-sixx-admits-to-motley-crue-using-backing-tracks-during-live-shows) - Americansongwriter
+- [Mötley Crüe's Nikki Sixx Responds to Backing Track Claims](https://consequence.net/2026/08/nikki-sixx-motley-crue-backing-tracks-live) - Consequence
+- [Kiasmos – II Reworked (2026)](https://exystence.net/blog/2026/08/07/kiasmos-ii-reworked-2026/) - Exystence.net
+- [Kiasmos (Olafur Arnalds & Janus Rasmussen) II - Reworked 2LP 透明盤 – THT唱片](https://www.thtrecords.com/collections/feature-on-homepage/products/kiasmos-olafur-arnalds-janus-rasmussen-ii-reworked-2lp-%E9%80%8F%E6%98%8E%E7%9B%A4) - Thtrecords
+- [Erased Tapes - Kiasmos II Reworked is out digitally next...](https://www.facebook.com/erasedtapes/posts/kiasmos-ii-reworked-is-out-digitally-next-week-ahead-of-its-release-were-invitin/1658899242903771) - Facebook
+- [Kiasmos - II Reworked - Album, acquista - SENTIREASCOLTARE](https://www.google.com/goto?url=CAEScwHuR6pNByLg59RZ6ollNu10WdFKmtJlUznLM8idmDITESsmZBiWHY5e-E1ItBSQD8bpMfNFgyfq0am7O0gS71y_7_31kg0b85dWB-j00aptRrGzOvn5PqrpGI9RSCtw4DiG3ChTtdlWOfrS4Q6OBKbdzPg%3D) - Google
+- [Kiasmos - II Reworked - Album, acquista - SENTIREASCOLTARE](https://www.sentireascoltare.com/album/kiasmos-ii-reworked) - Sentireascoltare
+- [Pentatonix Announce 2026 “Christmas in the City Tour”](https://consequence.net/2026/08/pentatonix-2026-christmas-in-the-city-tour/) - Consequence.net
+- [Pentatonix to Bring Massive 2026 Christmas in the City Tour to Fiserv Forum on Nov. 14 » Urban Milwaukee](https://urbanmilwaukee.com/pressrelease/pentatonix-to-bring-massive-2026-christmas-in-the-city-tour-to-fiserv-forum-on-nov-14) - Urbanmilwaukee
+- [Singing group Pentatonix returns to Casper on upcoming Christmas tour](https://oilcity.news/general/2026/08/06/singing-group-pentatonix-returns-to-casper-on-upcoming-christmas-tour) - Oilcity
+- [Pentatonix Announce 2026 "Christmas in the City Tour" Dates](https://consequence.net/2026/08/pentatonix-2026-christmas-in-the-city-tour) - Consequence
+- [Pentatonix bringing Christmas in the City Tour to Lincoln this fall](https://www.1011now.com/2026/08/06/pentatonix-bringing-christmas-city-tour-lincoln-this-fall) - 1011now
