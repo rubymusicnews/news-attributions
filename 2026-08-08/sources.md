@@ -1,0 +1,84 @@
+# Sources for 2026-08-08 News Episode 
+- [Karol G Feels It All on the Vulnerable ‘No Me Arrepiento de Sentir Tanto’](http://www.rollingstone.com/music/music-album-reviews/karol-g-no-me-arrepiento-de-sentir-album-review-1235604209/) - Rolling Stone
+- [Universal Music Canada](https://www.universalmusic.ca/2026/08/07/karol-g-embraces-the-power-of-feeling-everything-on-her-newalbum-no-me-arrepiento-de-sentir-tanto) - Universalmusic
+- [Karol G 'No Me Arrepiento de Sentir Tanto' Album Review](https://www.rollingstone.com/music/music-album-reviews/karol-g-no-me-arrepiento-de-sentir-album-review-1235604209) - Rollingstone
+- [Karol G’s ‘No Me Arrepiento de Sentir Tanto’ Album: All 14 Tracks Ranked](https://www.billboard.com/lists/karol-g-no-me-arrepiento-de-sentir-tanto-all-tracks-ranked) - Billboard
+- [Karol G: 'No Me Arrepiento de Sentir Tanto' Interview and Song Meaning](https://www.rollingstone.com/music/music-latin/karol-g-o-me-arrepiento-de-sentir-tanto-interview-meaning-1235604867) - Rollingstone
+- [Did You Catch These Easter Eggs in Karol G’s ‘No Me Arrepiento de Sentir Tanto’?](https://remezcla.com/music/did-you-catch-these-easter-eggs-in-karol-gs-no-me-arrepiento-de-sentir-tanto) - Remezcla
+- [2027 D Awards To Be Held In Paris, Making It 1st K-Pop Awards Ceremony To Take Place In Europe](http://www.soompi.com/article/1860780wpp/2027-d-awards-to-be-held-in-paris-making-it-1st-k-pop-awards-ceremony-to-take-place-in-europe) - soompi
+- [2027 D Awards To Be Held In Paris, Making It 1st K-Pop Awards Ceremony To Take Place In Europe \| Soompi](https://www.soompi.com/article/1860780wpp/2027-d-awards-to-be-held-in-paris-making-it-1st-k-pop-awards-ceremony-to-take-place-in-europe) - Soompi
+- [The Awards will be held in Europe for the first time at the K-pop Awards.The AWARDS will be held on .. - MK](https://www.mk.co.kr/en/entertain/12120767) - Mk
+- [D awards à paris le 15 et 16 janvier 2027 à ... - Instagram](https://www.instagram.com/reel/Dbv9Ha0xSGB) - Instagram
+- [William Orbit dead aged 69: Music producer famed for working with Madonna, Blur, U2 and All Saints passes away as fans pay tribute](https://www.dailymail.com/tvshowbiz/article-16036421/William-Orbit-dead-aged-69-Music-producer-famed-working-Madonna-Blur-U2-Saints-passes-away-fans-pay-tribute.html) - Dailymail.com
+- [Madonna and Blur producer William Orbit dies aged 69](https://www.bbc.co.uk/news/articles/cp9ej0el7veo) - BBC News
+- [William Orbit, Madonna and Blur Producer, Dead at 69](https://consequence.net/2026/08/william-orbit-dead/) - Consequence.net
+- [William Orbit, legendary British producer, dies aged 69](https://djmag.com/news/william-orbit-legendary-british-producer-dies-aged-69) - DJ Mag
+- [Madonna and Blur producer William Orbit dies aged 69](https://www.abc.net.au/news/2026-08-08/william-orbit-award-winning-producer-to-pop-greats-dies-aged-69/107012340) - ABC News (AU)
+- [Sam Smith on Their New Album, “Hazel Eyes”](https://www.newyorker.com/podcast/the-new-yorker-radio-hour/sam-smith-on-their-new-album-hazel-eyes) - The New Yorker
+- [Sam Smith Opens Up About Engagement, New Musical Direction - The New York Times](https://www.nytimes.com/2026/07/28/arts/music/sam-smith-hazel-eyes-new-album.html) - Nytimes
+- [Sam Smith confirms engagement to Christian Cowan](https://www.yahoo.com/entertainment/celebrity/articles/sam-smith-confirms-engagement-christian-044322228.html) - Yahoo
+- [Sam Smith Confirms Engagement to Designer Christian Cowan](https://extratv.com/2026/07/29/sam-smith-confirms-engagement-to-designer-christian-cowan) - Extratv
+- [Sam Smith Confirms Christian Cowan Engagement as New Album ‘Hazel Eyes’ Tells Their Love Story](https://www.yahoo.com/entertainment/music/articles/sam-smith-confirms-christian-cowan-181526509.html) - Yahoo
+- [Meet HYBE's New Girl Group 'TUIDE' With Pre-Debut Video](https://www.forbes.com/sites/laurasirikul/2026/08/07/meet-hybes-new-girl-group-tuide-with-pre-debut-video/) - Forbes
+- [HYBE’s “TUIDE” vs JYP’s “OURBIRTHDAY”…Same Code, Different Winning Moves [HT Focus] \| Hanteo News](https://www.hanteonews.com/en/article/93447) - Hanteonews
+- [HYBE's new girl group Tuide to debut Aug. 24 with EP 'Tune & Play'](https://www.koreatimes.co.kr/entertainment/k-pop/20260803/hybes-new-girl-group-tuide-to-debut-aug-24-with-ep-tune-play) - Koreatimes
+- [HYBE names new girl group TUIDE, set to debut under its ABD label this year - Music Business Worldwide](https://www.musicbusinessworldwide.com/hybe-names-new-girl-group-tuide-set-to-debut-under-its-abd-label-this-year) - Musicbusinessworldwide
+- [After ILLIT, NewJeans fans find new group to target? TUIDE faces 'plagiarism' allegations even before debut](https://poprant.indiatimes.com/asian-dramas-kpop/after-illit-newjeans-fans-find-new-group-to-target-tuide-faces-plagiarism-allegations-even-before-debut/articleshow/132836493.html) - Indiatimes
+- [Ikuti Jejak Sang Kakak, Adik Jihyo TWICE Bakal Debut di Girl Group Baru HYBE : Okezone Celebrity](https://celebrity.okezone.com/read/2026/08/04/205/3234187/ikuti-jejak-sang-kakak-adik-jihyo-twice-bakal-debut-di-girl-group-baru-hybe) - Okezone
+- [HYBE introduces TUIDE with the EP Tune & Play, debuting in late August 2026](https://www.musicmundial.com/en/hybe-introduces-tuide-with-the-ep-tune-play-debuting-in-late-august-2026) - Musicmundial
+- [HYBE unveils new girl group TUIDE; global septet to debut with first EP TUNE & PLAY on August 24](https://www.firstpost.com/lifestyle/hybe-unveils-new-girl-group-tuide-septet-to-debut-with-first-ep-tune-play-on-august-24-14035875.html) - Firstpost
+- [Marketing round-up: Green Day TV; Ariana Grande gets seedy; $100bn in TikTok shop merch](https://musically.com/2026/08/07/marketing-round-up-green-day-tv-ariana-grande-gets-seedy-100bn-in-tiktok-shop-merch/) - Music Ally
+- [Marketing round-up: Green Day TV; Ariana Grande gets seedy; $100bn in TikTok shop merch](https://musically.com/2026/08/07/marketing-round-up-green-day-tv-ariana-grande-gets-seedy-100bn-in-tiktok-shop-merch) - Musically
+- [Green Day Launch 24/7 YouTube Stream Green Day TV](https://consequence.net/2026/08/green-day-tv-youtube-stream) - Consequence
+- [Green Day Launches 24/7 YouTube Channel With Videos, Live Performances](https://www.google.com/goto?url=CAESpwEB7keqTRvr5H2zUVR3RxStCkSfX-jBk0D5zRZc4CiBPLRr8kohoGi8-K6saNYOZ201iEvkCZ_t4HgczZF7OFbWqU5vL7OKCxP753fjDgMI9HIZD-1Gq92CMBcz1xW38u53JfkEBxdLuDk7VR3F-gMkafHx7jzvHQabCo47Yqlbya1YJolIiF9TZs-j6ynEPkgjwLghGJwX9KxV-WfgZdiBFMub-m0TQw%3D%3D) - Google
+- [Daft Punk’s Thomas Bangalter Calls Out AI As a Shortcut In Creating Music](https://consequence.net/2026/08/thomas-bangalter-on-ai/) - Consequence.net
+- [Thomas Bangalter of Daft Punk Calls Out AI As A Shortcut In Creating Music](https://consequence.net/2026/08/thomas-bangalter-on-ai) - Consequence
+- [Daft Punk's Thomas Bangalter slams using AI to create music is “a way to bypass the creative process”](https://www.nme.com/news/music/daft-punks-thomas-bangalter-slams-using-ai-to-create-music-is-a-way-to-bypass-the-creative-process-3961385) - Nme
+- [Thomas Bangalter says he is "not interested" in AI music tools](https://weraveyou.com/2026/08/thomas-bangalter-not-interested-ai-music) - Weraveyou
+- [Daft Punk's Thomas Bangalter says he's "not interested" in AI - Mixmag.net](https://mixmag.net/read/daft-punk-thomas-bangalter-not-interested-ai-artificial-intelligence-news) - Mixmag
+- [Anthrax Unleash Punchy Banger “Everybody’s Got a Plan”: Stream](https://consequence.net/2026/08/anthrax-new-song-everybodys-got-a-plan/) - Consequence.net
+- [Anthrax Unleash Punchy Banger “Everyone’s Got a Plan”: Stream](https://consequence.net/2026/08/anthrax-new-song-everyones-got-a-plan/) - Consequence.net
+- [ANTHRAX Release New Single “Everybody’s Got A Plan”; Official Music Video Streaming](https://bravewords.com/news/anthrax-release-new-single-everybodys-got-a-plan-official-music-video-streaming) - Bravewords
+- [ANTHRAX Shares Music Video For 'Everybody's Got A Plan' From Upcoming 'Cursum Perficio' Album - BLABBERMOUTH.NET](https://blabbermouth.net/news/anthrax-shares-music-video-for-everybodys-got-a-plan-from-upcoming-cursum-perficio-album) - Blabbermouth
+- [Anthrax release new single with video "Everybody's Got A Plan" and announce special signing session - Chaoszine](https://chaoszine.net/anthrax-release-new-single-with-video-everybodys-got-a-plan-and-announce-special-signing-session) - Chaoszine
+- [Hear ANTHRAX throw haymakers on new song ...](https://www.revolvermag.com/premiere/anthrax-premiere-new-song-everybodys-got-a-plan) - Revolvermag
+- [Anthrax Unleash Punchy Banger “Everybody’s Got a Plan”: Stream](https://consequence.net/2026/08/anthrax-new-song-everybodys-got-a-plan) - Consequence
+- [Neil Young Announces New Album with The Chrome Hearts, Second Song, Shares 11.5-Minute Title Track: Stream](https://consequence.net/2026/08/neil-young-second-song-chrome-hearts/) - Consequence.net
+- [Neil Young Blends Old, New On ‘Second Song’](https://www.spinmagazine.com/2026/08/neil-young-second-song-album/) - Spinmagazine.com
+- [Rock Cellar Magazine  - Neil Young + The Chrome Hearts Debut “Second Song,” New Album Out Sept. 18](https://rockcellarmagazine.com/neil-young-the-chrome-hearts-second-song-new-album-preview-listen) - Rockcellarmagazine
+- [Neil Young Releases Wistful, 11-Minute Title Track From New Album ‘Second Song’](https://www.rollingstone.com/music/music-news/neil-young-title-track-second-song-1235605130) - Rollingstone
+- [Neil Young & The Chrome Hearts Announce New Album ::antiMusic.com](https://www.antimusic.com/news/26/r0807neil_young___the_chrome_hearts_announce_new_album.shtml) - Antimusic
+- [Neil Young Announces New Album with The Chrome Hearts, Second Song, Shares 11.5-Minute Title Track: Stream](https://consequence.net/2026/08/neil-young-second-song-chrome-hearts) - Consequence
+- [Neil Young announces new album with the Chrome Hearts, shares soothing title track 'Second Song'](https://www.nme.com/news/music/neil-young-announces-new-album-with-the-chrome-hearts-shares-soothing-title-track-second-song-3961418) - Nme
+- [KATSEYE Down To Four As Leader Sophia Laforteza Announces Hiatus](https://www.forbes.com/sites/hannahabraham/2026/08/07/katseye-down-to-four-as-leader-sophia-laforteza-announces-hiatus/) - Forbes
+- [Katseye’s Sophia Laforteza Announces “Mental Health” Break From Popular Girl Group](http://deadline.com/2026/08/sophia-laforteza-katseye-mental-health-break-1237028830/) - Deadline
+- [Another Katseye Member Is Taking a Break](http://www.thecut.com/article/sophia-of-katseye-is-taking-a-break.html) - The Cut
+- [Sophia Laforteza Announces Temporary Hiatus From KATSEYE 6 Months After Manon Bannerman](https://www.cosmopolitan.com/entertainment/celebs/a73377389/sophia-laforteza-temporary-hiatus-katseye/) - Cosmopolitan.com
+- [Katseye Fans Left Heartbroken as Sophia Laforteza Takes a Hiatus \| PhilNews](https://philnews.ph/2026/08/08/katseye-fans-left-heartbroken-as-sophia-laforteza-takes-a-hiatus) - Philnews
+- [KATSEYE star Sophia Laforteza announces hiatus from the group for 'mental health' treatment just months after Manon's departure \| Daily Mail Online](https://www.dailymail.com/tvshowbiz/article-16037311/KATSEYE-Sophia-Laforteza-hiatus-mental-health-Manon-Bannerman.html) - Dailymail
+- [Katseye singer Sophia Laforteza steps away from group over mental health - BBC News](https://www.bbc.co.uk/news/articles/c4g305dz0y9o) - Bbc
+- [Sophia Laforteza Taking Break From KATSEYE for Mental Health](https://www.eonline.com/news/1434798/sophia-laforteza-taking-break-from-katseye-for-mental-health) - Eonline
+- [Katseye leader Sophia Laforteza taking mental health break](https://ew.com/katseye-sophia-laforteza-taking-mental-health-break-12036888) - Ew
+- [50 Years Ago Today: Bruce Springsteen Capped Off a Legendary Theater Residency in New Jersey](http://www.rollingstone.com/music/music-features/50-years-ago-bruce-springsteen-residency-new-jersey-1235604546/) - Rolling Stone
+- [50 Years Ago Today: Bruce Springsteen Capped Off a Legendary Theater Residency in New Jersey](https://www.rollingstone.com/music/music-features/50-years-ago-bruce-springsteen-residency-new-jersey-1235604546) - Rollingstone
+- [Rolling Stone - Bruce Springsteen was forced back onto the...](https://www.facebook.com/RollingStone/posts/bruce-springsteen-was-forced-back-onto-the-road-in-1976-when-a-lawsuit-kept-him-/1409448101043252) - Facebook
+- [Kiss Reaches A New Career High As A Band](https://www.forbes.com/sites/hughmcintyre/2026/08/07/kiss-reaches-a-new-career-high-as-a-band/) - Forbes
+- [Kiss Reaches A New Career High As A Band](https://www.forbes.com/sites/hughmcintyre/2026/08/07/kiss-reaches-a-new-career-high-as-a-band) - Forbes
+- [KISS Reaches A New Career High In The UK](https://bravewords.com/news/kiss-reaches-a-new-career-high-in-the-uk) - Bravewords
+- [KISS Reaches A New Career High In The UK](https://www.google.com/goto?url=CAESfQHuR6pNPkN65oZPQwN7YTlBzfhRwrXEbtRR0LWm_BtlJHYTwtixfIFzFw66tXiS-2ISuzeZaIKHR-GOtZWi8UZJhE7Ex5Hi7vniGiPE6214szdtAsXFjk3A98Jjolns4d6K8lJlOKcyzAvSSMtW-0rAQzqojODGzcZZRuk9) - Google
+- [Kiss Reaches A New Career High As A Band](https://www.google.com/goto?url=CAESlgEB7keqTUuh6bMmtc81GMKU6MkTNMMJJiPLfeqyagBFCT0PrgsLY3Rb-_-3x3tEeH7wqEFsMsCE_W5MVXQuJjW2tJ3OttOeffltf1IqxMMpkM_y3D3lU9kl3zptFoVxEsVJ-9MUWNWsNLYfBP3l9ZgGfdA4EoxnhXzVAqZwz7RLH9v8eGH86GoylVZTB0fr6woFo0RZutE%3D) - Google
+- [SB19 On New Single ‘Lawless’ And Making Their Lollapalooza Debut](https://www.forbes.com/sites/jimryan1/2026/08/06/sb19-on-new-single-lawless-and-making-their-lollapalooza-debut/) - Forbes
+- [SB19 Lollapalooza Debut, "LAWLESS" Interview \| Hypebeast](https://hypebeast.com/2026/8/sb19-lollapalooza-debut-new-single-lawless-interview) - Hypebeast
+- [SB19, Sombr, Wet Leg And Empire Of The Sun Kick Off Lollapalooza 2026](https://www.forbes.com/sites/jimryan1/2026/07/31/sb19-sombr-wet-leg-and-empire-of-the-sun-kick-off-lollapalooza-2026) - Forbes
+- [Lollapalooza opens for 2026: 'Go big or go home'](https://www.chicagotribune.com/2026/07/30/lollapalooza-day-1-thursday-grant-park) - Chicagotribune
+- [Lollapalooza Kicks Off With Heat, John Summit, Lorde And A Ferris Wheel](https://blockclubchicago.org/2026/07/31/lollapalooza-kicks-off-with-heat-john-summit-lorde-and-a-ferris-wheel) - Blockclubchicago
+- [SB19 On New Single ‘Lawless’ And Making Their Lollapalooza Debut](https://www.forbes.com/sites/jimryan1/2026/08/06/sb19-on-new-single-lawless-and-making-their-lollapalooza-debut) - Forbes
+- [SB19 Debut Newest Single "LAWLESS" On Lollapalooza 2026](https://billboardphilippines.com/music/news/sb19-lawless-lollapalooza-2026) - Billboardphilippines
+- ['Kings of P-pop' SB19 mark milestone-filled year with Live Nation Philippines following historic Lollapalooza stage - Latest Chika](https://latestchika.com/just-in/2026/08/05/121851/kings-of-p-pop-sb19-mark-milestone-filled-year-with-live-nation-philippines-following-historic-lollapalooza-stage) - Latestchika
+- [Play that funky AI-generated music](https://economictimes.indiatimes.com/opinion/et-editorial/play-that-funky-ai-generated-music/articleshow/133041506.cms) - The Times of India
+- [Play that funky AI-generated music - The Economic Times](https://m.economictimes.com/opinion/et-editorial/play-that-funky-ai-generated-music/amp_articleshow/133041506.cms) - Economictimes
+- [Labels United on Chart Eligibility for AI Music, Divided on Which AI Qualifies](https://www.techtimes.com/articles/322175/20260730/labels-united-chart-eligibility-ai-music-divided-which-ai-qualifies.htm) - Techtimes
+- [AI Bots Stole My Music](https://www.phillymag.com/news/2026/07/10/ai-music-streaming-spotify-bots) - Phillymag
+- [Generative AI – Intellectual property cases and policy tracker](https://www.mishcon.com/generative-ai-intellectual-property-cases-and-policy-tracker) - Mishcon
+- [Thousands of independent musicians join lawsuits against AI companies \| WPLN News](https://wpln.org/post/thousands-of-independent-musicians-join-lawsuits-against-ai-companies) - Wpln
+- [Majors And Indies Unite For Global AI Music Chart Standards - CelebrityAccess](https://celebrityaccess.com/2026/07/30/majors-and-indies-unite-for-global-ai-music-chart-standards) - Celebrityaccess
