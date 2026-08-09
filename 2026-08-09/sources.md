@@ -1,0 +1,57 @@
+# Sources for 2026-08-09 News Episode 
+- [BLACKPINK's 10 Biggest Achievements From a Decade That Redefined K-Pop Girl Groups Worldwide](https://www.ibtimes.com.au/blackpink-decade-record-breaking-achievements-1873767) - Ibtimes.com.au
+- [The group BLACKPINK celebrated its 10th anniversary. Since its debut in 2016, it has established its.. - MK](https://www.mk.co.kr/en/society/12121702) - Mk
+- [BLACKPINK Celebrates Decade of Record-Breaking K-Pop Dominance](https://www.chosun.com/english/travel-food-en/2026/08/08/76NLSHVAGNHIPHZKPRVQRWIUBM) - Chosun
+- [BLACKPINK marks 10th anniversary with National Museum heritage collection - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20260807/blackpink-marks-10th-anniversary-with-national-museum-heritage-collection) - Koreatimes
+- [YG HQ Hit by Vandalism Attempt Amid BLACKPINK Event Backlash \| Outlook Respawn](https://respawn.outlookindia.com/pop-culture/pop-culture-news/blackpink-10th-anniversary-event-yg-entertainment-controversy) - Outlookindia
+- [Nirvana’s Signature Smash Reaches A New Chart Peak](https://www.forbes.com/sites/hughmcintyre/2026/08/08/nirvanas-signature-smash-reaches-a-new-chart-peak/) - Forbes
+- [Nirvana’s Signature Smash Reaches A New Chart Peak](https://www.forbes.com/sites/hughmcintyre/2026/08/08/nirvanas-signature-smash-reaches-a-new-chart-peak) - Forbes
+- [“We’re Going For It”: JPop Duo YOASOBI On Grammy Aspirations And Being Main Characters](https://www.forbes.com/sites/hannahabraham/2026/08/08/were-going-for-it-jpop-duo-yoasobi-on-grammy-aspirations-and-being-main-characters/) - Forbes
+- [“We’re Going For It”: YOASOBI On Grammy Aims, New Album And World Tour](https://www.forbes.com/sites/hannahabraham/2026/08/08/were-going-for-it-jpop-duo-yoasobi-on-grammy-aspirations-and-being-main-characters) - Forbes
+- [“We’re Going For It”: YOASOBI On Grammy Aims, New Album And World Tour](https://www.google.com/goto?url=CAESwgEB7keqTUBT4Ah5mPQCWopyTtdd2QAczC9OHQCJ2YI1qzpdr97ih87AF8KPP508Zphh9lI1bnDcvKKJ4tiJ9d_wzKooF7hgJmvhDrdDMCElTTgG17uE_6IP8y91ID7pC8cQvw2vcZz04ILQFTnUCcgm5yZr281kqnsUe55HmUiTsARPsi0BMMkJK_htPJmis8vNU9iL92lIyR2nT5qBamTFi5g3ISgMJVqLlJoljz5oB2uAOEEtMAdh7AncKc8U4-IcUg%3D%3D) - Google
+- [Which K-Pop Act Could Benefit Most From BTS's Boycott of the 2027 Grammy Awards This Coming Award Season](https://www.ibtimes.com.au/bts-withdraws-grammys-best-asian-pop-category-1873739) - Ibtimes.com.au
+- [If Not BTS At The Grammys, Then Who? K-Pop Contenders For The Grammys](https://www.forbes.com/sites/hannahabraham/2026/07/30/if-not-bts-at-the-grammys-then-who-6-k-pop-contenders-for-the-asian-pop-category) - Forbes
+- [BTS won't submit music for 2027 Grammy Awards consideration - ABC7 Los Angeles](https://abc7.com/story/bts-submit-music-2027-grammy-awards-consideration/19596923) - Abc7
+- [BTS withdraw from Grammys, a month after Asian pop prize introduced](https://www.bbc.com/news/articles/clyjgyd0225o) - Bbc
+- [Grammys CEO Harvey Mason jr. says he is ‘saddened’ by BTS decision to skip the 2027 awards – and defends the new Asian pop category - Music Business Worldwide](https://www.musicbusinessworldwide.com/grammys-ceo-harvey-mason-jr-says-he-is-saddened-by-bts-decision-to-skip-the-2027-awards-and-defends-the-new-asian-pop-category) - Musicbusinessworldwide
+- [Grammys defend new Asian pop category after BTS boycott - The Korea Herald](https://www.koreaherald.com/article/10825686) - Koreaherald
+- [Recording Academy CEO reacts to BTS skipping 2027 Grammy Awards consideration](https://abcnews.com/GMA/Culture/bts-submit-music-2027-grammy-awards-consideration/story?id=135189396) - Abcnews
+- [13 Essential Hip-Hop Songs For 808 Day](http://www.rollingstone.com/music/music-lists/essential-hip-hop-songs-for-808-day-1235605500/) - Rolling Stone
+- [13 Essential Hip-Hop Songs To Stream On 808 Day](https://www.vibe.com/lists/808-day-essential-hip-hop-songs) - Vibe
+- [13 Essential Hip-Hop Songs for 808 Day](https://www.rollingstone.com/music/music-lists/essential-hip-hop-songs-for-808-day-1235605500) - Rollingstone
+- [Afrika Bambaataa \| Hip-Hop, Songs, Planet Rock, Zulu Nation, & Biography \| Britannica](https://www.britannica.com/biography/Afrika-Bambaataa) - Britannica
+- [L.A. Jazz Festival, Which Was Supposed to Feature John Legend, Janelle Monáe and Hundreds More, Canceled at the Last Minute](https://variety.com/2026/music/news/l-a-jazz-festival-canceled-john-legend-janelle-monae-1236830665/) - Variety
+- [LA’s massive new music festival canceled before it starts as organizers axe events](https://nypost.com/2026/08/07/us-news/la-jazz-festival-postponed-hours-before-start-time/) - New York Post
+- [Major permitting hurdles force sudden shutdown of inaugural LA Jazz Festival - The Pride LA](https://thepridela.com/2026/08/la-jazz-festival-canceled-over-municipal-permitting-costs) - Thepridela
+- [It’s Raining Panties with Charli XCX](http://www.vulture.com/article/charli-xcx-outside-lands.html) - Vulture
+- [Charli xcx headlines opening night at Outside Lands with era-bridging set - Daily Bruin](https://dailybruin.com/2026/08/08/charli-xcx-headlines-opening-night-at-outside-lands-with-era-bridging-set) - Dailybruin
+- [It’s Raining Panties at Charli XCX’s Outside Lands Show](https://www.vulture.com/article/charli-xcx-outside-lands.html) - Vulture
+- [Charli xcx Made Panties Rain From the Sky at Outside Lands](https://www.kqed.org/arts/13992518/outside-lands-charli-xcx-panties-glorilla-wet-leg) - Kqed
+- [Charli XCX's fiery Outside Lands debut ends in a rumination on death](https://www.sfgate.com/sf-culture/article/outside-lands-charli-xcx-22380190.php) - Sfgate
+- [K-pop's global wave inspires Chile's next pop stars](https://www.npr.org/2026/08/08/nx-s1-5899791/k-pop-chile-bts) - NPR
+- [How K-pop is creating a new generation of Chilean pop stars : NPR](https://www.npr.org/transcripts/nx-s1-5899791) - Npr
+- [A wave of K-pop-inspired pop groups is on the rise in Chile](https://ua.news/en/world/u-chili-zrostaie-khvilia-popgurtiv-natkhnennikh-k-pop) - Ua
+- [Is Phil Collins A Swiftie? Music Icon Says Taylor Swift ‘Deserves’ To Be ‘Hugest Thing In The World’](https://www.today.com/popculture/music/phil-collins-taylor-swift-bbc-radio-tracks-of-my-years-rcna591521) - TODAY
+- [Taylor Swift’s ‘White Horse’ makes Phil Collins' list of the songs that have soundtracked his life \| ABC Audio Digital Syndication](https://digital.abcaudio.com/news/taylor-swifts-white-horse-makes-phil-collins-list-songs-have-soundtracked-his-life) - Abcaudio
+- [Phil Collins Says Taylor Swift ‘Really Deserves’ Being the ‘Hugest Thing in the World’](https://people.com/phil-collins-says-taylor-swift-really-deserves-success-12033316) - People
+- [Phil Collins praises Taylor Swift and says she 'really deserves' huge success](https://www.mirror.co.uk/3am/celebrity-news/phil-collins-praises-taylor-swift-37502931) - Mirror
+- [Phil Collins praises Taylor Swift and the song of hers that left him with a ‘soft spot’](https://www.aol.com/articles/phil-collins-praises-taylor-swift-191143000.html) - Aol
+- [Phil Collins Praises Taylor Swift's Stunning Performance of 'White Horse' at Hall of Fame Event](https://www.aol.com/articles/phil-collins-praises-taylor-swifts-143338000.html) - Aol
+- [Fuerza Regida Closes U.S. Stadium Tour With 50 Cent at Citi Field](http://www.billboard.com/music/latin/fuerza-regida-citi-field-50-cent-bobby-shmurda-new-york-1236312217/) - Billboard
+- [Fuerza Regida: Artist Guide and NYC Shows](https://www.newyorklatinculture.com/fuerza-regida) - Newyorklatinculture
+- [Fuerza Regida Closes U.S. Stadium Tour With 50 Cent at Citi Field](https://www.billboard.com/music/latin/fuerza-regida-citi-field-50-cent-bobby-shmurda-new-york-1236312217) - Billboard
+- [Fuerza Regida Ends Historic Stadium Tour With J Balvin, 50 Cent](https://www.rollingstone.com/music/music-latin/fuerza-regida-final-show-this-is-our-dream-tour-1235605952) - Rollingstone
+- [Watch 50 Cent Make Surprise Appearance at Chris Brown and Usher's New York Show](https://www.complex.com/music/a/treyalston/50-cent-metlife-stadium-citi-field-new-york-usher-chris-brown-watch) - Complex
+- [Fuerza Regida Wraps Stadium Tour at New York’s Citi Field Alongside 50 Cent, Bobby Shmurda, J Balvin & More](https://www.yahoo.com/entertainment/music/articles/fuerza-regida-brings-50-cent-162147861.html) - Yahoo
+- [Metal legends Sepultura are bowing out in style as they steal the show at Bloodstock 2026](https://www.loudersound.com/bands-artists/music-festivals/metal-legends-sepultura-are-bowing-out-in-style-as-they-steal-the-show-at-bloodstock-2026) - Louder
+- [Where Is Macy Gray Now? The ‘I Try’ Singer Is Still Full Of Surprises](https://www.forbes.com/sites/davidhochman/2026/08/08/where-is-macy-gray-now-the-i-try-singer-is-still-full-of-surprises/) - Forbes
+- [‘My vocals should have a cape’: Macy Gray’s encore in the city that started it all](https://beat.com.au/my-vocals-should-have-a-cape-macy-grays-encore-in-the-city-that-started-it-all) - Beat
+- [Where Is Macy Gray Now? The 'I Try' Singer Is Still Full Of Surprises](https://www.forbes.com/sites/davidhochman/2026/08/08/where-is-macy-gray-now-the-i-try-singer-is-still-full-of-surprises) - Forbes
+- ['90s rock icon from Hole and Smashing Pumpkins returns to the spotlight 33 years after launching her music career... see her now](https://www.dailymail.com/tvshowbiz/article-16029151/melissa-auf-der-maur-hole-now.html) - Dailymail.com
+- [Corgan reunites with Melissa Auf Der Maur at Lollapalooza \| Guitar World](https://www.guitarworld.com/artists/concerts-gigs-tours/the-smashing-pumpkins-melissa-auf-der-maur-olivia-rodrigo-yungblud-lollapalooza-2026) - Guitarworld
+- [Morrissey cancels Las Vegas residency just a week before the shows kick off due to 'unforeseen logistical challenges'](https://www.dailymail.com/tvshowbiz/article-16038173/Morrissey-cancels-Las-Vegas-residency-unforeseen-logistical-challenges.html) - Dailymail.com
+- [Morrissey Cancels Next Week's Vegas Residency](https://stereogum.com/2507691/foreseen-circumstances-morrissey-cancels-next-weeks-vegas-residency/news) - Stereogum
+- [Morrissey cancels Las Vegas residency due to “unforeseen ...](https://www.nme.com/news/music/morrissey-cancels-las-vegas-residency-due-to-unforeseen-logistical-challenges-a-week-before-the-first-show-3961448) - Nme
+- [Morrissey Cancels Las Vegas Residency Due to ‘Unforeseen Logistical Challenges’](https://www.rollingstone.com/music/music-news/morrissey-cancels-las-vegas-residency-logistical-challenges-1235605869) - Rollingstone
+- [Morrissey cancels Las Vegas residency months after claiming lack of sleep left him in a 'catatonic state'](https://pagesix.com/2026/08/08/entertainment/morrissey-cancels-las-vegas-residency-months-after-claiming-lack-of-sleep-left-him-in-a-catatonic-state) - Pagesix
+- [Morrissey Cancels Entire Las Vegas Residency One Week ...](https://www.tmz.com/2026/08/08/morrissey-cancels-las-vegas-residency) - Tmz
