@@ -1,0 +1,60 @@
+# Sources for 2026-08-11 News Episode 
+- [Jeongyeon Becomes First Member To Leave JYP: What This Means For TWICE](https://www.forbes.com/sites/hannahabraham/2026/08/10/jeongyeon-becomes-first-member-to-leave-jyp-what-this-means-for-twice/) - Forbes
+- [TWICE's Jeongyeon leaves JYP to pursue acting career - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20260810/twices-jeongyeon-leaves-jyp-to-pursue-acting-career) - Koreatimes
+- [TWICE Jeongyeon leaves JYP Entertainment after 11 years](https://uz.kursiv.media/en/2026-08-10/twice-star-jeongyeon-leaves-jyp-after-11-years-to-pursue-acting-career/amp) - Kursiv
+- [TWICE Jeongyeon announces departure from JYP Entertainment 11 years after debut](https://tribune.com.pk/story/2623062/twice-jeongyeon-announces-departure-from-jyp-entertainment-after-11-years-after-debut) - Tribune
+- [Twice's Jeongyeon leaves JYP Entertainment after 11 years \| Khaleej Times](https://www.khaleejtimes.com/entertainment/twices-jeongyeon-leaves-jyp-entertainment-after-11-years?amp=1) - Khaleejtimes
+- [Jeongyeon Leaves JYP: What This Means For TWICE](https://www.forbes.com/sites/hannahabraham/2026/08/10/jeongyeon-becomes-first-member-to-leave-jyp-what-this-means-for-twice) - Forbes
+- [BTS Fans Send A Beloved Non-Single Back To The Charts — And A New Peak](https://www.forbes.com/sites/hughmcintyre/2026/08/10/bts-fans-send-a-beloved-non-single-back-to-the-charts---and-a-new-peak/) - Forbes
+- [BTS Fans Send A Beloved Non-Single Back To The Charts — And A New Peak](https://www.forbes.com/sites/hughmcintyre/2026/08/10/bts-fans-send-a-beloved-non-single-back-to-the-charts---and-a-new-peak) - Forbes
+- [aespa on Lollapalooza, Lemonade, and the reality of K-pop idoldom](https://www.thefader.com/2026/08/10/aespa-lollapalooza-lemonade-favorite-music-interview) - The FADER
+- [Ella Langley's 'Choosin' Texas' Earns 17th Week At No. 1—Surpasses This Mariah Carey Smash](https://www.forbes.com/sites/conormurray/2026/08/10/ella-langleys-choosin-texas-earns-17th-week-at-no-1-surpasses-this-mariah-carey-smash/) - Forbes
+- [Ella Langley joins music royalty with 'insane' milestone for 'Choosin' Texas'](https://pagesix.com/2026/07/22/entertainment/ella-langley-joins-music-royalty-with-insane-milestone-for-choosin-texas) - Pagesix
+- [Ella Langley’s ‘Choosin’ Texas’ makes Billboard Hot 100 history - The Washington Post](https://www.washingtonpost.com/entertainment/music/2026/07/28/ella-langleys-choosin-texas-makes-billboard-hot-100-history) - Washingtonpost
+- [Morgan Wallen blocks Ella Langley from making streaming chart history](https://tribune.com.pk/story/2622975/morgan-wallen-blocks-ella-langley-from-making-streaming-chart-history) - Tribune
+- [Ella Langley’s ‘Choosin’ Texas’ Makes More History With 14th Week at No. 1 on Billboard Hot 100](https://www.billboard.com/lists/ella-langley-choosin-texas-hot-100-number-one-14th-week) - Billboard
+- [Drake’s Latest Blockbuster Ties As One Of His Longest-Charting No. 1s](https://www.forbes.com/sites/hughmcintyre/2026/08/10/drakes-latest-blockbuster-ties-as-one-of-his-longest-charting-no-1s/) - Forbes
+- [Drake’s Latest Blockbuster Ties As One Of His Longest-Charting No. 1s](https://www.forbes.com/sites/hughmcintyre/2026/08/10/drakes-latest-blockbuster-ties-as-one-of-his-longest-charting-no-1s) - Forbes
+- [Drake Replaces Future At No. 1 One Week After Future Replaced Drake](https://www.forbes.com/sites/hughmcintyre/2026/07/31/drake-replaces-future-at-no-1-one-week-after-future-replaced-drake) - Forbes
+- [Drake Breaks Another of His Own Chart Records With ‘Iceman’ - 24Hip-Hop](https://24hip-hop.com/drake-breaks-another-of-his-own-chart-records-with-iceman) - 24hip-hop
+- [Madonna Ties A Historic Record As She Scores A New No. 1](https://www.forbes.com/sites/hughmcintyre/2026/08/10/madonna-ties-a-historic-record-as-she-scores-a-new-no-1/) - Forbes
+- [Madonna's 'Love Sensation' From 'Confessions II' No. 1 on Dance Airplay](https://www.billboard.com/music/chart-beat/madonna-love-sensation-confessions-ii-number-1-dance-airplay-1236307269) - Billboard
+- [Madonna Ties A Historic Record As She Scores A New No. 1](https://www.forbes.com/sites/hughmcintyre/2026/08/10/madonna-ties-a-historic-record-as-she-scores-a-new-no-1) - Forbes
+- [Katseye Hits The Top 10 For The First Time On One Of Billboard’s Biggest Charts](https://www.forbes.com/sites/hughmcintyre/2026/08/10/katseye-hits-the-top-10-for-the-first-time-on-one-of-billboards-biggest-charts/) - Forbes
+- [KATSEYE's 'Animal' Reaches 8th on Spotify Global](https://www.chosun.com/english/kpop-culture-en/2026/08/08/VKARFBD6UZEY5ONYUCCOXXAPXQ) - Chosun
+- [KATSEYE Enters Hot 100 at No. 24, Career High](https://www.chosun.com/english/kpop-culture-en/2026/08/05/7ECFEMVIORH67NJIZNNNDBZVS4) - Chosun
+- [Katseye Hits The Top 10 For The First Time On One Of Billboard’s Biggest Charts](https://www.forbes.com/sites/hughmcintyre/2026/08/10/katseye-hits-the-top-10-for-the-first-time-on-one-of-billboards-biggest-charts) - Forbes
+- [KATSEYE skyrocket up the charts despite TWO members ditching the group \| Daily Mail Online](https://www.dailymail.com/tvshowbiz/article-16042989/Katseye-skyrocket-charts-despite-two-members-ditching-group.html?ns_mchannel=rss&ns_campaign=1490&ito=1490) - Dailymail
+- [Bruce Dickinson Says Upcoming Solo Album Recorded at Dave Grohl’s Studio Is “Heavy as S**t”](https://consequence.net/2026/08/bruce-dickinson-upcoming-solo-album-heavy/) - Consequence.net
+- [Bruce Dickinson Reveals Details About His Upcoming Solo Album Set for 2027](https://www.yahoo.com/entertainment/music/articles/bruce-dickinson-reveals-details-upcoming-165646956.html) - Yahoo
+- [Bruce Dickinson Says Upcoming Solo Album Recorded at Dave Grohl's Studio Is "Heavy as S**t"](https://consequence.net/2026/08/bruce-dickinson-upcoming-solo-album-heavy) - Consequence
+- [BRUCE DICKINSON Says His New Solo Album Will Be 'Heavy As S***' - BLABBERMOUTH.NET](https://blabbermouth.net/news/bruce-dickinson-says-his-new-solo-album-will-be-heavy-as-s) - Blabbermouth
+- [Bruce Dickinson doesn’t slow down – his next albums is going to be heavier than ever!](https://chaoszine.net/bruce-dickinson-doesnt-slow-down-his-next-albums-is-going-to-be-heavier-than-ever) - Chaoszine
+- [Judas Priest get an almighty homecoming as they close out Bloodstock Festival 2026](https://www.loudersound.com/bands-artists/music-festivals/judas-priest-bloodstock-2026-review) - Louder
+- [Tyga and Fenix Flexin are not beating the AI allegations](https://www.thefader.com/2026/08/10/tyga-fenix-flexin-artists-using-ai) - The FADER
+- [Tyga Admits to Using AI on New ‘$tarface’ Album: ‘It’s No Different Than When Auto-Tune Came Out’](https://www.yahoo.com/entertainment/music/articles/tyga-admits-using-ai-tarface-225421748.html) - Yahoo
+- [Fenix Flexin and Tyga Both Admit to Using AI to Create Their Recent Material │ Exclaim!](https://exclaim.ca/music/article/fenix-flexin-and-tyga-both-admit-to-using-ai-to-create-their-recent-material) - Exclaim
+- [Tyga Admits to Using AI on New Album, Calls it 'No Different' Than Auto-Tune](https://www.complex.com/music/a/jaelaniturnerwilliams/tyga-suno-suno-ai-album) - Complex
+- [Rising singer Kamal on 'scary' moment he hit up Dave for debut album](https://www.bbc.co.uk/news/articles/c78gv32mpd9o) - BBC News
+- [Kamal on making music for 'real ones' and Dave collaboration](http://www.bbc.com/news/articles/c78gv32mpd9o) - Bbc
+- [Rising singer Kamal on 'scary' moment he hit up Dave for debut album - AOL](https://www.aol.com/articles/rising-singer-kamal-scary-moment-110650000.html) - Aol
+- [Kamal on making music for 'real ones' and Dave collaboration](https://www.google.com/goto?url=CAESZQHuR6pNfPwDzI-w9KcGa9grKC7eO5XQdmvlHQvkjSZlbiv4uFwo5wAguj6EqvFj7NSToARI_rHBQkD36vwEOHO_XTVrPyEOrP9Z9-Zejja1fz4GX30tD5U4Sz3a7h0f3FmOD3Wf) - Google
+- [Spätsommer 1976: 50 Jahre Bowie in Berlin: Er kam zum Cleanwerden](https://www.tagesspiegel.de/gesellschaft/spatsommer-1976-50-jahre-bowie-in-berlin-er-kam-zum-cleanwerden-15930229.html) - Der Tagesspiegel
+- [Spätsommer 1976: 50 Jahre Bowie in Berlin: Er kam zum Cleanwerden](https://www.zeit.de/news/2026-08/10/50-jahre-bowie-in-berlin-er-kam-zum-cleanwerden) - Die Zeit
+- [Mythen über Heroin und „Heroes“: Vor 50 Jahren kam David Bowie nach Berlin – um clean zu werden](https://www.tagesspiegel.de/berlin/mythen-uber-heroin-und-heroes-vor-50-jahren-kam-david-bowie-nach-berlin--um-clean-zu-werden-15930229.html) - Der Tagesspiegel
+- [Instagram](https://www.instagram.com/p/Dbo4bONM0Oe) - Instagram
+- [David Bowie - Berlin Tribute Shows Keep His Live Legacy Alive](https://www.ad-hoc-news.de/unterhaltung/musik/david-bowie-berlin-tribute-shows-keep-his-live-legacy-alive/69878316) - Ad-hoc-news
+- [Iceage Announce North American Tour](https://pitchfork.com/story/iceage-announce-north-american-tour/) - Pitchfork
+- [Iceage Announce Spring 2027 North American Tour](https://consequence.net/2026/08/iceage-announce-2027-north-american-tour/) - Consequence.net
+- [Iceage Announce Spring 2027 North American Tour - Glide Magazine](https://glidemagazine.com/328870/iceage-announce-spring-2027-north-american-tour) - Glidemagazine
+- [Iceage Announce North American Spring Tour for 2027](https://consequence.net/2026/08/iceage-announce-2027-north-american-tour) - Consequence
+- [Iceage announce new 2026 Tour Dates - Northern Transmissions](https://northerntransmissions.com/iceage-announce-new-2026-tour-dates) - Northerntransmissions
+- [Iceage Announce North American Tour](https://pitchfork.com/story/iceage-announce-north-american-tour) - Pitchfork
+- [Iceage Announce North American Tour \| Pitchfork](https://www.google.com/goto?url=CAESeAHuR6pNe2DHE0ccd0ztAOIxYsOcL_sVzUynqheWtu2HeW8_zXbm-t4eZNOZrAcYzngC4aWy2rPmT0p6Wyo6i1LJp6OClQVIT8pUhWGuL8E9TA9myb8UFX-bPcgD0BRdfqkXdjWvUzovJeBvzwaIPKhXUizVVvLCRA%3D%3D) - Google
+- [Iceage Map Out 2027 North American Tour │ Exclaim!](https://exclaim.ca/concertcentral/article/iceage-map-out-2027-north-american-tour) - Exclaim
+- [Iceage announce North American tour](https://www.treblezine.com/iceage-announce-north-american-tour) - Treblezine
+- [The Chicks Expand ‘Long Way’ Ahead Of Anniversary Tour](https://www.spinmagazine.com/2026/08/the-chicks-taking-the-long-way-expanded/) - Spinmagazine.com
+- [The Ever-Defiant Chicks Announce 'Taking the Long Way' Reissue](https://www.rollingstone.com/music/music-country/the-chicks-taking-the-long-way-reissue-1235605736) - Rollingstone
+- [The Chicks Announce ‘Taking the Long Way’ Reissue, Additional Tour Dates](https://people.com/the-chicks-announce-taking-the-long-way-reissue-additional-tour-dates-12037789) - People
+- [The Chicks Announce ‘Taking the Long Way’ 20th Anniversary Reissue Featuring Demos, Bonus Tracks](https://www.billboard.com/music/country/the-chicks-taking-the-long-way-20th-anniversary-reissue-demos-1236312452) - Billboard
+- [The Chicks Announce Additional ‘Taking the Long Way’ Anniversary Tour Dates, Expanded Album - Pollstar News](https://news.pollstar.com/2026/08/10/the-chicks-announce-additional-taking-the-long-way-anniversary-tour-dates-expanded-album) - Pollstar
