@@ -1,0 +1,70 @@
+# Sources for 2026-08-13 News Episode 
+- [EX.808 Tiësto](https://shows.acast.com/raexchange/episodes/ex808-tiesto) - Acast.com
+- [EX.808 Tiësto](https://soundcloud.com/resident-advisor/ex-808-tiesto) - Soundcloud.com
+- [EX.808 Tiësto ⟋ RA Exchange](https://ra.co/exchange/848) - Ra
+- [Tiësto - Wikipedia](https://en.wikipedia.org/wiki/Ti%C3%ABsto) - Wikipedia
+- [Queen’s Roger Taylor Debuts Romantic Single ‘I See You Now’](http://www.rollingstone.com/music/music-news/queen-roger-taylor-i-see-you-now-single-music-video-1235607307/) - Rolling Stone
+- [QUEEN's ROGER TAYLOR Shares 'I See You Now' Single From Upcoming Solo Album 'Violence Insane In A Beautiful World' - BLABBERMOUTH.NET](https://blabbermouth.net/news/queens-roger-taylor-shares-i-see-you-now-single-from-upcoming-solo-album-violence-insane-in-a-beautiful-world) - Blabbermouth
+- [QUEEN's ROGER TAYLOR Releases New Single "I See You Now"; Official Music Video Streaming](https://bravewords.com/news/queens-roger-taylor-releases-new-single-i-see-you-now-official-music-video-streaming) - Bravewords
+- [Roger Taylor Releases I See You Now From New Album Violence Insane In A Beautiful World - Noise11 Music News](https://www.noise11.com/news/roger-taylor-i-see-you-now-violence-insane-in-a-beautiful-world-20260813) - Noise11
+- [Queen’s Roger Taylor Debuts Romantic Single ‘I See You Now’](https://www.rollingstone.com/music/music-news/queen-roger-taylor-i-see-you-now-single-music-video-1235607307) - Rollingstone
+- [Queen’s Brian May outraged by AI-generated image of Freddie Mercury: ‘You must stop it now’](https://www.the-independent.com/arts-entertainment/music/news/brian-may-queen-ai-freddie-mercury-instagram-b3031793.html) - The-independent.com
+- [Queen’s Brian May outraged by AI-generated image of Freddie Mercury: ‘You must stop it now’ \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/brian-may-queen-ai-freddie-mercury-instagram-b3031793.html) - Independent
+- [Brian May Creates AI-Generated Image of Queen and Wonders If ‘We Actually Don’t Need’ It](https://people.com/brian-may-ai-generated-image-queen-wonders-dont-need-it-12058502) - People
+- [Queen’s Brian May outraged by AI version of album cover and tells UK PM Andy Burnham: ‘You must stop it now’  \| Euronews](https://www.euronews.com/culture/2026/08/12/queens-brian-may-outraged-by-ai-version-of-album-cover-and-tells-uk-pm-andy-burnham-you-mu) - Euronews
+- [Queen’s Brian May outraged by AI-generated image of Freddie Mercury: ‘You must stop it now’ - Yahoo News UK](https://uk.news.yahoo.com/queen-brian-may-outraged-ai-122557013.html) - Yahoo
+- [Brian May proves “We actually don’t need AI” with appallingly bad Meta attempt at Queen album cover: “So this is the kind of intelligence that will soon be ruling the world?”](https://www.guitarplayer.com/music/brian-may-proves-we-actually-dont-need-ai-with-appallingly-bad-meta-attempt-at-queen-album-cover-so-this-is-the-kind-of-intelligence-that-will-soon-be-ruling-the-world) - Guitarplayer
+- [Amidst AI-Music War, Suno Finds Another Industry Partner in BMG](http://www.rollingstone.com/music/music-features/ai-war-suno-music-industry-partner-bmg-1235607385/) - Rolling Stone
+- [Amidst AI-Music War, Suno Finds Another Industry Partner in BMG](https://www.rollingstone.com/music/music-features/ai-war-suno-music-industry-partner-bmg-1235607385) - Rollingstone
+- [AI Music Generator Suno Inks Major Music Label Licensing Deal](https://www.forbes.com/sites/cathyolson/2026/08/12/ai-music-generator-suno-inks-latest-music-label-licensing-deal) - Forbes
+- [Metallica’s “Black Album” Took Them from Metal Heroes to Multiplatinum Rock Giants](https://consequence.net/2026/08/metallica-black-album-anniversary/) - Consequence.net
+- [35 Years Ago Today: Metallica Releases ‘The Black Album’](https://therockrevival.com/rock-news/35-years-ago-today-metallica-releases-the-black-album) - Therockrevival
+- [The Making of Metallica's Black Album - Vintage King](https://vintageking.com/blog/metallica-the-black-album) - Vintageking
+- [35 Years Ago, Metallica Changed Metal Forever with a Classic Album](https://collider.com/metallica-black-album-changed-metal-forever) - Collider
+- [Ritchie Blackmore Set to Play With Deep Purple After 33 Year-Estrangement](http://www.rollingstone.com/music/music-news/ritchie-blackmore-deep-purple-33-years-1235607480/) - Rolling Stone
+- [Ritchie Blackmore To Perform with Deep Purple for First Time in 33 Years](https://consequence.net/2026/08/ritchie-blackmore-deep-purple-reunion/) - Consequence.net
+- [Ritchie Blackmore's Surprise Decision to Reunite With Deep Purple](https://ultimateclassicrock.com/ritchie-blackmore-deep-purple-reunion/) - Ultimate Classic Rock
+- [WATCH: Ritchie Blackmore Reunites with Deep Purple for “Smoke on the Water” in New York](https://therockrevival.com/rock-news/watch-ritchie-blackmore-reunites-with-deep-purple-for-smoke-on-the-water-in-new-york) - Therockrevival
+- [Ritchie Blackmore Reunites With Deep Purple After 33 Years - Noise11 Music News](https://www.noise11.com/news/ritchie-blackmore-deep-purple-reunion-jones-beach-2026-20260813) - Noise11
+- [Ritchie Blackmore to reunite with Deep Purple after 30 years](https://www.guitarworld.com/artists/guitarists/ritchie-blackmore-set-to-perform-with-deep-purple-for-the-first-time-in-over-30-years) - Guitarworld
+- [Inside Ritchie Blackmore's Surprise Decision to Reunite With Deep Purple](https://ultimateclassicrock.com/ritchie-blackmore-deep-purple-reunion) - Ultimateclassicrock
+- [Ritchie Blackmore Set to Play With Deep Purple After 33 Year-Estrangement](https://www.rollingstone.com/music/music-news/ritchie-blackmore-deep-purple-33-years-1235607480) - Rollingstone
+- [Ayra Starr on her secret relationship and teasing Stevie Wonder](https://www.bbc.co.uk/news/articles/c4gdxywn7y4o) - BBC News
+- [Ayra Starr on her secret relationship and teasing Stevie Wonder - AOL](https://www.aol.com/articles/ayra-starr-her-secret-relationship-231953000.html) - Aol
+- [Zayn Malik announces new song with Ayra Starr - Daily Times](https://dailytimes.com.pk/1534960/zayn-malik-announces-new-song-with-ayra-starr) - Dailytimes
+- [Why Starr Girl Could Be Ayra Starr’s Most Important Album Yet \| YNaija](https://ynaija.com/why-starr-girl-could-be-ayra-starrs-most-important-album-yet) - Ynaija
+- [Spotify to label AI-generated artists](https://www.rte.ie/entertainment/2026/0812/1587619-spotify-to-label-ai-generated-artists/) - RTE
+- [Spotify will badge AI artist profiles, and keep them out of your recommendations](https://thenextweb.com/news/spotify-ai-persona-badge-recommendations) - Thenextweb
+- [Spotify to slap 'AI Persona' badges on AI-generated artist profiles](https://www.reuters.com/business/spotify-slap-ai-persona-badges-ai-generated-artist-profiles-2026-08-11) - Reuters
+- [Spotify to label AI artists with new ‘AI Persona’ badge – and keep their music out of recommendations by default](https://www.musicbusinessworldwide.com/spotifys-ai-persona-label-ai-generated-artists-and-keeps-them-out-of-recommendations-by-default) - Musicbusinessworldwide
+- [Spotify to begin labeling AI-generated artists with new badge - Lambgoat](https://lambgoat.com/news/54270/spotify-to-begin-labeling-ai-generated-artists-with-new-badge) - Lambgoat
+- [Spotify Labels AI-Generated Artists, Hides Recommendations](https://www.hypebot.com/spotify-labels-ai-generated-artists-hides-recommendations) - Hypebot
+- [Spotify Will Label AI Music Acts and Cut Them From Its Algorithm - Startup Fortune](https://startupfortune.com/spotify-will-label-ai-music-acts-and-cut-them-from-its-algorithm) - Startupfortune
+- [Marc Anthony, Chayanne and more to play benefit concert for Venezuela and Colombia earthquake relief](https://abcnews.com/Entertainment/wireStory/marc-anthony-chayanne-play-benefit-concert-venezuela-colombia-135591721) - Abcnews.com
+- [Marc Anthony, Chayanne and more to play benefit concert for Venezuela and Colombia earthquake relief \| National News \| goskagit.com](http://www.goskagit.com/news/nation/marc-anthony-chayanne-and-more-to-play-benefit-concert-for-venezuela-and-colombia-earthquake-relief/article_1505f947-3bf4-51d7-91d0-9327d13613da.html) - Goskagit
+- [Marc Anthony, Chayanne and more to play benefit concert for Venezuela and Colombia earthquake relief](https://www.bigrapidsnews.com/entertainment/article/marc-anthony-chayanne-and-more-to-play-benefit-22385759.php) - Bigrapidsnews
+- [Kathleen Hanna and Ad-Rock Cover Justin Bieber’s “Let Me Love You” for ICE OUT Benefit Album: Stream](https://consequence.net/2026/08/kathleen-hanna-ad-rock-justin-bieber-cover-ice-out-album/) - Consequence.net
+- [Kathleen Hanna, Ad-Rock, Tom Morello, More Tapped for 'Contra-ICE Vol. 1: ICE OUT' Benefit Album](https://www.rollingstone.com/music/music-news/kathleen-hanna-ad-rock-tom-morello-ice-1235606749) - Rollingstone
+- [Kathleen Hanna, Ad-Rock, Fishbone, Tom Morello and more on anti-ICE benefit compilation - Treble](https://www.treblezine.com/kathleen-hanna-ad-rock-fishbone-tom-morello-and-more-on-anti-ice-benefit-compilation) - Treblezine
+- [Kathleen Hanna, Ad-Rock Share Justin Bieber Cover from ICE OUT Benefit Album](https://consequence.net/2026/08/kathleen-hanna-ad-rock-justin-bieber-cover-ice-out-album) - Consequence
+- [Check out Kathleen Hanna and Ad-Rock's breezy cover of Justin Bieber’s 'Let Me Love You' for ICE OUT benefit album](https://www.nme.com/news/music/check-out-kathleen-hanna-and-ad-rocks-breezy-cover-of-justin-biebers-let-me-love-you-for-ice-out-benefit-album-3962260) - Nme
+- [Jennie’s ‘Less Than A Lover’ Video Villa Is Open For Airbnb Bookings](https://www.forbes.com/sites/jeffbenjamin/2026/08/12/jennies-less-than-a-lover-video-villa-is-open-for-airbnb-bookings/) - Forbes
+- [Jennie's 'Less Than A Lover' Video Villa Open For Airbnb Bookings](https://www.forbes.com/sites/jeffbenjamin/2026/08/12/jennies-less-than-a-lover-video-villa-is-open-for-airbnb-bookings) - Forbes
+- [You can now rent the villa from Jennie's ‘Less Than a Lover’ MV on Airbnb • PhilSTAR Life](https://philstarlife.com/living/658303-airbnb-villa-jennie-less-than-a-lover-mv) - Philstarlife
+- [Steve Lacy Lines Up North American Tour](https://pitchfork.com/story/steve-lacy-details-oh-yeah-tour/) - Pitchfork
+- [Steve Lacy Maps Out Fall North American Tour](https://exclaim.ca/music/article/steve-lacy-maps-out-fall-north-american-tour) - Exclaim!
+- [Steve Lacy Lines Up North American Tour \| Pitchfork](https://pitchfork.com/story/steve-lacy-details-oh-yeah-tour) - Pitchfork
+- [Steve Lacy Announces 2026 "Oh yeah?" North American Tour](https://consequence.net/2026/08/steve-lacy-2026-oh-yeah-north-american-tour) - Consequence
+- [Steve Lacy Announces 'Oh Yeah' North American Tour Dates for 2026](https://www.rollingstone.com/music/music-news/steve-lacy-oh-yeah-north-american-tour-dates-1235607338) - Rollingstone
+- [Steve Lacy Announces ‘Oh Yeah?’ Fall Tour Dates](https://variety.com/2026/music/news/steve-lacy-oh-yeah-fall-2026-tour-dates-1236832982) - Variety
+- [Godflesh’s New Song ‘Living/Ending’ Will Pummel You to Oblivion](http://www.rollingstone.com/music/music-news/godflesh-decay-living-ending-new-song-album-1235607366/) - Rolling Stone
+- [Crown Magnetar Premiere New Single & Music Video "Shut Up And Bleed" From Upcoming New Album "The Hollowing Of Godflesh"](http://www.metalunderground.com/news/details.cfm?newsid=161872) - Metalunderground.com
+- [Godflesh Announce New Album 'Decay': Hear "Living/Ending"](https://stereogum.com/2508027/godflesh-announce-new-album-decay-hear-living-ending/music) - Stereogum
+- [Godflesh Preview Penultimate Album With Pummeling Song 'Living/Ending'](https://www.rollingstone.com/music/music-news/godflesh-decay-living-ending-new-song-album-1235607366) - Rollingstone
+- [Godflesh Announce Their Penultimate Studio Album "Decay", Stream "Living/Ending" - Theprp.com](https://www.theprp.com/2026/08/12/news/godflesh-announce-their-penultimate-studio-album-decay-stream-living-ending) - Theprp
+- [Godflesh reveal new album ‘Decay’ post “Living/Ending” \| NextMosh](https://nextmosh.com/godflesh-announce-new-album-decay-share-living-ending) - Nextmosh
+- [Godflesh Shares New Song “Living/Ending” and Announces New Album Decay For September 2026 Release - mxdwn Music](https://music.mxdwn.com/2026/08/12/news/godflesh-shares-new-song-living-ending-and-announces-new-album-decay-for-september-2026-release) - Mxdwn
+- [Godflesh announce penultimate album, Decay](https://www.treblezine.com/godflesh-announce-penultimate-album-decay) - Treblezine
+- [Awkward moment K-pop stars freeze on stage over cue card mishap during live broadcast](https://www.dailymail.com/tvshowbiz/article-16043059/gayo-daejeon-sion-sungchan-mistake.html) - Dailymail.com
+- [Awkward moment K-pop stars freeze on stage over cue card mishap during live broadcast](https://www.dailymail.com/tvshowbiz/article-16043059/amp/gayo-daejeon-sion-sungchan-mistake.html) - Dailymail
+- ['SBS Gayo Daejeon' Abruptly Halted During Live Broadcast, Production Staff Rush Onto Stage: "Are They Smiling Even After Making Mistakes?" - KbizoOm](https://kbizoom.com/2026-sbs-gayo-daejeon-live-broadcast-incident-mc-script-mishap) - Kbizoom
