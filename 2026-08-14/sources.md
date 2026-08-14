@@ -1,0 +1,57 @@
+# Sources for 2026-08-14 News Episode 
+- [Queen Ties Linkin Park As Multiple Generation-Defining Hits Return](https://www.forbes.com/sites/hughmcintyre/2026/08/13/queen-ties-linkin-park-as-multiple-generation-defining-hits-return/) - Forbes
+- [Queen Ties Linkin Park As Multiple Generation-Defining Hits Return](https://www.forbes.com/sites/hughmcintyre/2026/08/13/queen-ties-linkin-park-as-multiple-generation-defining-hits-return) - Forbes
+- [TikTok’s ‘Music on Stage’ returns with August artist auditions](https://musically.com/2026/08/13/tiktoks-music-on-stage-returns-with-august-artist-auditions/) - Music Ally
+- [TikTok's 'Music on Stage' Emerging Artist Discovery is Back in 2026](https://www.digitalmusicnews.com/2026/08/13/tiktok-music-on-stage-returns-2026) - Digitalmusicnews
+- [TikTok’s ‘Music on Stage’ returns with August artist auditions - Music Ally](https://musically.com/2026/08/13/tiktoks-music-on-stage-returns-with-august-artist-auditions) - Musically
+- [TikTok LIVE announces return of Music On Stage global music programme \| Digital \| Music Week](https://www.musicweek.com/digital/read/tiktok-live-announces-return-of-music-on-stage-global-music-programme/094721) - Musicweek
+- [TikTok LIVE's Music on Stage returns for 2026 to discover the next generation of global music stars - Newsroom \| TikTok](https://newsroom.tiktok.com/tiktok-lives-music-on-stage-returns-for-2026-to-discover-the-next-generation-of-global-music-stars?lang=en-GB) - Tiktok
+- [Samsung TV Plus To Live-Stream KCON LA 2026 for Global K-pop Fans at Home](https://news.samsung.com/global/samsung-tv-plus-to-live-stream-kcon-la-2026-for-global-k-pop-fans-at-home) - Samsung.com
+- [K-pop music and fan festival KCON LA 2026 will stream live on Samsung TVs - SamMobile](https://www.sammobile.com/news/samsung-tv-live-stream-k-pop-music-concert-free) - Sammobile
+- [Samsung TV Plus Reveals Exciting KCON LA 2026 Live Stream for Indian K-Pop Fans - Techgenyz](https://techgenyz.com/samsung-tv-plus-kcon-la-2026-live-stream-india) - Techgenyz
+- [You can watch KCON LA 2026 live for free on Samsung TV Plus](https://www.sammyfans.com/2026/08/12/you-can-watch-kcon-la-2026-live-for-free-on-samsung-tv-plus) - Sammyfans
+- [U2 Makes History With A New Top 10 Smash](https://www.forbes.com/sites/hughmcintyre/2026/08/13/u2-makes-history-with-a-new-top-10-smash/) - Forbes
+- [U2 Makes History With A New Top 10 Smash](https://www.forbes.com/sites/hughmcintyre/2026/08/13/u2-makes-history-with-a-new-top-10-smash) - Forbes
+- [Nearly half of K-pop acts disappear within three years, study finds](https://www.koreajoongangdaily.com/entertainment/nearly-half-of-kpop-acts-disappear-within-three-years-study-finds/12806840) - Koreajoongangdaily.com
+- [Nearly half of K-pop acts disband in 3 years — Study Reveals Only 3.5% Break Even](https://en.koreadaily.com/nearly-half-of-kpop-acts-disband-in-3-years-study) - Koreadaily
+- [Fewer than 4 in 100 K-pop groups ever sell 300,000 of an album: study](https://www.koreatimes.co.kr/entertainment/k-pop/20260813/fewer-than-4-in-100-k-pop-groups-ever-sell-300000-of-an-album-study) - Koreatimes
+- [Rush Delivers A Poignant Look Back As Terrific Reunion Run Continues](https://www.forbes.com/sites/jimryan1/2026/08/13/rush-delivers-a-poignant-look-back-as-terrific-reunion-run-continues/) - Forbes
+- [Rush Delivers A Poignant Look Back As Terrific Reunion Run Continues](https://www.forbes.com/sites/jimryan1/2026/08/13/rush-delivers-a-poignant-look-back-as-terrific-reunion-run-continues) - Forbes
+- [Review: Rush, featuring explosive drummer Anika Nilles, turns reunion tour into joyful celebration of life - Chicago Sun-Times](https://chicago.suntimes.com/music/2026/07/17/review-rush-chicago-2026-tour-united-center-geddy-lee-alex-lifeson-anika-nilles-neil-peart) - Suntimes
+- [Ms. Lauryn Hill and Fugees' bandmate Wyclef Jean to headline Global Citizen Festival](https://abcnews.com/Entertainment/wireStory/ms-lauryn-hill-fugees-bandmate-wyclef-jean-headline-135607107) - Abcnews.com
+- [Fugees' Lauryn Hill, Wyclef Jean set tops 2026 Global Citizen Festival](https://www.usatoday.com/story/entertainment/music/2026/08/13/global-citizen-festival-2026-lineup-fugees/91274617007) - Usatoday
+- [2026 Global Citizen Festival: Lauryn Hill, Wyclef Jean, Lainey Wilson](https://www.rollingstone.com/music/music-news/2026-global-citizen-festival-lineup-1235607497) - Rollingstone
+- [Global Citizen 2026 headliners: Lauren Hill, Wyclef Jean and more – NBC10 Philadelphia](https://www.nbcphiladelphia.com/entertainment/entertainment-news/global-citizen-festival-2026-lauryn-hill-wyclef-jean/4447512) - Nbcphiladelphia
+- [Ms. Lauryn Hill, Lenny Kravitz on the lineup for Global Citizen Festival](https://ny1.com/nyc/all-boroughs/news/2026/08/13/ms--lauryn-hill--lenny-kravitz-on-the-lineup-for-global-citizen-festival) - Ny1
+- [Lauryn Hill, Shaboozey, Lainey Wilson Set To Perform At 2026 Global Citizen Festival - Pollstar News](https://news.pollstar.com/2026/08/13/lauryn-hill-shaboozey-lainey-wilson-set-to-perform-at-2026-global-citizen-festival) - Pollstar
+- [Westside Cowboy Want You to Feel Like a Kid Again. And Ditch Your Phone](http://www.rollingstone.com/music/music-features/westside-cowboy-uk-rock-band-interview-1235607545/) - Rolling Stone
+- [Westside Cowboy Want You to Feel Like a Kid Again. And Ditch Your Phone](https://www.yahoo.com/entertainment/music/articles/westside-cowboy-want-feel-kid-140000773.html) - Yahoo
+- [Westside Cowboy: Interview With the U.K. Rock Band](https://www.rollingstone.com/music/music-features/westside-cowboy-uk-rock-band-interview-1235607545) - Rollingstone
+- [Rolling Stone - Westside Cowboy, the Manchester, U.K. rock...](https://www.facebook.com/RollingStone/posts/westside-cowboy-the-manchester-uk-rock-band-who-have-toured-with-geese-tell-us-a/1414611993860196) - Facebook
+- [Westside Cowboy release new single "Dobro" — LiveWire Music](https://www.livewiremusic.org/home/westsidecowboy06082026) - Livewiremusic
+- [A Perfect Album for a Frustrating Decade](https://www.theatlantic.com/culture/2026/08/phoebe-bridgers-lost-weekend-review/688268/) - The Atlantic
+- [Phoebe Bridgers – Lost Weekend (2026)](https://exystence.net/blog/2026/08/13/phoebe-bridgers-lost-weekend-2026/) - Exystence.net
+- [A Perfect Album for a Frustrating Decade](https://www.theatlantic.com/culture/2026/08/phoebe-bridgers-lost-weekend-review/688268) - Theatlantic
+- [Phoebe Bridgers 'Lost Weekend' Review: Loved Ones Lost and Found](https://www.slantmagazine.com/music/phoebe-bridgers-lost-weekend-album-review) - Slantmagazine
+- [Rapper NBA YoungBoy reveals he’s leaving the US permanently and living in South Korea](https://www.the-independent.com/arts-entertainment/music/news/nba-young-boy-moving-south-korea-b3032429.html) - The-independent.com
+- [Rapper NBA YoungBoy reveals he’s leaving the US permanently and living in South Korea \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/nba-young-boy-moving-south-korea-b3032429.html) - Independent
+- [NBA YoungBoy South Korea – 'never' returning to US, plans retirement](https://www.usatoday.com/story/entertainment/celebrities/2026/08/13/nba-youngboy-south-korea-interview/91283885007) - Usatoday
+- [Why NBA YoungBoy Left America for a New Life in South Korea and Confirmed He Has No Plans To Return \| IBTimes UK](https://www.ibtimes.co.uk/nba-youngboy-new-life-south-korea-1813955) - Ibtimes
+- [NBA YoungBoy, now in Korea, talks heart condition future albums - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-08-12/nba-youngboy-heart-condition-open-thoughts-podcast-funny-marco-south-korea) - Latimes
+- [The Collaboration Between Michael Jackson and Guns N’ Roses Guitarist Slash in the 1990s](https://www.vintag.es/2026/08/michael-jackson-slash.html) - Vintag.es
+- [Bring Me The Horizon’s Oli Sykes & Spiritbox’s Courtney LaPlante Join Grabbitz For New Valorant Champions Anthem](http://www.metalunderground.com/news/details.cfm?newsid=161882) - Metalunderground.com
+- [Bring Me The Horizon’s Oli Sykes and Spiritbox’s Courtney LaPlante team up for ‘Valorant’ anthem](https://www.nme.com/news/gaming-news/bring-me-the-horizon-oli-sykes-spiritbox-courtney-laplante-valorant-anthem-3962157) - Nme
+- [Oli Sykes, Courtney LaPlante and Grabbitz Unite for VALORANT Champions
+ – Knotfest](https://knotfest.com/blogs/news/oli-sykes-courtney-laplante-and-grabbitz-unite-for-valorant-champions-tour-anthem) - Knotfest
+- [Bring Me The Horizon & Spiritbox Stars Combine with Grabbitz for Valorant Champions Shanghai Anthem](https://insider-gaming.com/valorant-champions-shanghai-anthem) - Insider-gaming
+- [Head in the Clouds 2026 Captured KATSEYE — and an Industry — in Flux](https://consequence.net/2026/08/head-in-the-clouds-katseye-xg-review/) - Consequence.net
+- [KATSEYE Down To Four As Leader Sophia Laforteza Announces Hiatus](https://www.forbes.com/sites/hannahabraham/2026/08/07/katseye-down-to-four-as-leader-sophia-laforteza-announces-hiatus) - Forbes
+- [[RECAP] 2026 Head in the Clouds LA Draws Thousands of Fans with KATSEYE, XG, and More - K-Pop Concerts](https://kpopconcerts.com/event-recaps/recap-head-in-the-clouds-la-2026-draws-thousands-of-fans-with-katseye-xg-and-more) - Kpopconcerts
+- [Xdinary Heroes Cancels “Summer Sonic 2026” Appearances Following Gun-il’s Departure](http://www.soompi.com/article/1862737wpp/xdinary-heroes-cancels-summer-sonic-2026-appearances-following-gun-ils-departure) - soompi
+- [Xdinary Heroes' Gunil leaves band and JYP Entertainment after fan insult allegations](https://www.koreajoongangdaily.com/entertainment/xdinary-heroes-gunil-leaves-band-following-fan-insult-allegations/12823864) - Koreajoongangdaily
+- [Xdinary Heroes Leader Gun-il Abruptly Leaves Group, JYP Contract Terminated... Reason Kept Confidential \| The Sportschosun](https://www.sportschosun.com/en/celebrity/2026-08-13/202608130100079350004921) - Sportschosun
+- [Xdinary Heroes cancels Summer Sonic 2026 shows after Gunil leaves](https://www.koreajoongangdaily.com/entertainment/xdinary-heroes-cancels-summer-sonic-2026-shows-after-gunil-leaves-band/12824676) - Koreajoongangdaily
+- [The band Xdinary Heroes suffered the unfavorable factor of leader Gun-il's sudden withdrawal, and ev.. - MK](https://www.mk.co.kr/en/entertain/12127136) - Mk
+- [Xdinary Heroes Cancels Schedules Immediately After Gunil's Departure - Koreaboo](https://www.koreaboo.com/news/xdinary-heroes-cancels-schedules-immediately-after-gunil-departure) - Koreaboo
+- [Gunil leaves Xdinary Heroes after leaked audio controversy - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20260814/gunil-leaves-xdinary-heroes-after-leaked-audio-controversy) - Koreatimes
+- [Gunil leaves Xdinary Heroes after leaked audio controversy - The Korea Times](https://www.koreatimes.co.kr/amp/entertainment/k-pop/20260814/gunil-leaves-xdinary-heroes-after-leaked-audio-controversy) - Koreatimes
