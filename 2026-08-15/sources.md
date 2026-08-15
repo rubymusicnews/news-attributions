@@ -1,0 +1,65 @@
+# Sources for 2026-08-15 News Episode 
+- [Skrillex and MPH link up on new single, ‘Mirage’: Listen](https://djmag.com/news/skrillex-and-mph-link-new-single-mirage-listen) - DJ Mag
+- [MPH & Skrillex Release MIRAGE, North American Tour to Launch Oct. 2](https://www.broadwayworld.com/bwwmusic/article/MPH-Skrillex-Release-MIRAGE-North-American-Tour-to-Launch-Oct-2-20260814) - Broadwayworld
+- [New EDM Friday August 14: Skrillex, Anyma & More](https://edmhousenetwork.com/new-edm-friday-august-14-skrillex-anyma-more) - Edmhousenetwork
+- [MPH Teases Upcoming Skrillex Collaboration, 'Mirage' - EDM](https://edm.com/music-releases/mph-teases-upcoming-skrillex-collaboration) - Edm
+- [Megan Thee Stallion Announces Partnership with Interscope Records & Hot Girl Productions, Entering Next Chapter of Independent Music Career](https://www.prnewswire.com/news-releases/megan-thee-stallion-announces-partnership-with-interscope-records--hot-girl-productions-entering-next-chapter-of-independent-music-career-302851926.html) - PRNewswire
+- [Megan Thee Stallion Signs Interscope Distribution Partnership](https://www.billboard.com/pro/megan-thee-stallion-signs-interscope-distribution) - Billboard
+- [Megan Thee Stallion Signs Partnership With Interscope](https://www.hollywoodreporter.com/music/music-industry-news/megan-thee-stallion-signs-with-interscope-1236657579) - Hollywoodreporter
+- [Megan Thee Stallion Announces Partnership with Interscope Records & Hot Girl Productions, Entering Next Chapter of Independent Music Career](https://finance.yahoo.com/media-advertising/articles/megan-thee-stallion-announces-partnership-160000910.html) - Yahoo
+- [Megan Thee Stallion Signs Distribution Partnership With Interscope, Will Remain Independent - IMDb](https://www.imdb.com/news/ni65971795?ref_=nwc_art_perm) - Imdb
+- [Megan Thee Stallion announces distribution partnership with Interscope Records](https://hip-hopvibe.com/news/megan-thee-stallion-announces-distribution-partnership-with-interscope-records) - Hip-hopvibe
+- [Megan Thee Stallion signs distribution deal with Interscope, teases Act 'III'](https://www.yahoo.com/entertainment/music/articles/megan-thee-stallion-signs-distribution-210000498.html) - Yahoo
+- [Troye Sivan’s “She’s the Best” gets at a different kind of love](https://www.thefader.com/2026/08/14/troye-sivan-shes-the-best-review) - The FADER
+- [Troye Sivan drops ‘She’s The Best’ starring Nicole Kidman](https://www.thepinknews.com/2026/08/14/troye-sivan-shes-the-best-nicole-kidman/) - Thepinknews.com
+- [Watch Troye Sivan take Nicole Kidman clubbing with trans women and drag queens](https://www.out.com/gay-music/troye-sivan-nicole-kidman-music-video) - Out.com
+- [Back to her Babygirl era! Nicole Kidman embraces her wild side as she smokes a cigarette and dirty dances in new sultry music video clip](https://www.dailymail.com/tvshowbiz/article-16051979/nicole-kidman-smokes-cigarette-dirty-dances-music-video.html) - Dailymail.com
+- [Troye Sivan Taps Nicole Kidman for 'She's the Best' Music ...](https://variety.com/2026/music/news/troye-sivan-nicole-kidman-shes-the-best-music-video-1236834397) - Variety
+- [Troye Sivan Is Living His Fantasy—Until the Lights Come Up](https://www.vanityfair.com/story/troye-sivan-shes-the-best) - Vanityfair
+- [Troye Sivan Announces New Album She's the Best, Offers Title Track: Stream](https://consequence.net/2026/08/troye-sivan-new-album-shes-the-best-title-track-stream) - Consequence
+- [Troye Sivan Unveils New Single With Nicole Kidman - Grand Pinnacle Tribune](https://evrimagaci.org/gpt/troye-sivan-unveils-new-single-with-nicole-kidman-544065) - Evrimagaci
+- [Jennie Ties Several K-Pop Superstars As She Reaches A Historic Position](https://www.forbes.com/sites/hughmcintyre/2026/08/14/jennie-ties-several-k-pop-superstars-as-she-reaches-a-historic-position/) - Forbes
+- [Jennie Ties Several K-Pop Superstars As She Reaches A Historic Position](https://www.forbes.com/sites/hughmcintyre/2026/08/14/jennie-ties-several-k-pop-superstars-as-she-reaches-a-historic-position) - Forbes
+- [Ella Langley’s ‘Choosin’ Texas’ No. 1 on Hot 100 for 15th Week](https://www.billboard.com/lists/ella-langley-choosin-texas-hot-100-number-one-15-weeks) - Billboard
+- [New Music Friday: The best albums out Aug. 14](https://www.npr.org/2026/08/14/nx-s1-5928519/new-music-friday-best-albums-aug-14-2026) - NPR
+- [The top albums from New Music Friday for Aug. 14 \| Radio Milwaukee](https://radiomilwaukee.org/new-music/2026-08-14/new-music-friday-aug-14-best-albums) - Radiomilwaukee
+- [New Music Friday: The best albums out Aug. 14](https://www.lpm.org/music/2026-08-14/new-music-friday-the-best-albums-out-aug-14) - Lpm
+- [WMNF’s Sam joins NPR Music’s New Music Friday - WMNF 88.5 FM](https://www.wmnf.org/wmnfs-sam-joins-npr-musics-new-music-friday) - Wmnf
+- [Dillom Gives Into Sex, Drugs, and Rock & Roll on ‘La Nueva Violencia’](http://www.rollingstone.com/music/music-album-reviews/dillom-la-nueva-violencia-review-1235608396/) - Rolling Stone
+- [Dillom and 'La Nueva Violencia': The Sonic Chaos & Its Contradictions](https://www.billboard.com/music/latin/dillom-la-nueva-violencia-album-argentina-cover-story-1236315147) - Billboard
+- [Dillom Gives Into Sex, Drugs, and Rock & Roll on ‘La Nueva Violencia’](https://www.rollingstone.com/music/music-album-reviews/dillom-la-nueva-violencia-review-1235608396) - Rollingstone
+- [Crítica: 'La nueva violencia', el nuevo paseo inmoral de Dillom - Rolling Stone en Español](https://es.rollingstone.com/arg-critica-la-nueva-violencia-el-nuevo-paseo-inmoral-de-dillom) - Rollingstone
+- [ATEEZ, P1Harmony To Headline Hello82’s First Festival 82WORLD : LA](https://www.forbes.com/sites/jeffbenjamin/2026/08/13/ateez-p1harmony-to-headline-hello82s-first-festival-82world--la/) - Forbes
+- [82WORLD LA Lineup: ATEEZ, P1Harmony Headline State Historic Park Festival](https://www.forbes.com/sites/jeffbenjamin/2026/08/13/ateez-p1harmony-to-headline-hello82s-first-festival-82world--la) - Forbes
+- [ATEEZ, P1Harmony To Headline Hello82’s First Festival 82WORLD : LA - Yahoo News Canada](https://ca.news.yahoo.com/ateez-p1harmony-headline-hello82-first-000326832.html) - Yahoo
+- [Instagram](https://www.instagram.com/p/DcAMvdVlJJc) - Instagram
+- [Slipknot and Sid Wilson Part Ways After Nearly 30 Years](http://www.rollingstone.com/music/music-news/slipknot-sid-wilson-part-ways-1235602008/) - Rolling Stone
+- [Slipknot Cuts Ties With Sid Wilson After Nearly 30 Years - Billboard](https://www.billboard.com/music/rock/slipknot-sid-wilson-exits-band-1236317000) - Billboard
+- [Slipknot Confirm Firing of Sid Wilson](https://therockrevival.com/rock-news/slipknot-confirm-firing-of-sid-wilson) - Therockrevival
+- [Slipknot Officially Part Ways with Sid Wilson](https://consequence.net/2026/08/slipknot-officially-part-ways-sid-wilson) - Consequence
+- [Slipknot and Sid Wilson Part Ways After Nearly 30 Years](https://www.rollingstone.com/music/music-news/slipknot-sid-wilson-part-ways-1235602008) - Rollingstone
+- [Website reveals reasons for Sid Wilson's alleged dismissal from Slipknot \| Wikimetal](https://www.wikimetal.com.br/en/website-reveals-reasons-for-alleged-departure-of-sid-wilson-from-slipknot) - Wikimetal
+- [NSYNC member gives candid answer about why boy band won’t reunite](https://www.the-independent.com/arts-entertainment/music/news/nsync-joey-fatone-reunion-b3033382.html) - The-independent.com
+- [NSYNC member gives candid answer about why boy band won’t reunite \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/nsync-joey-fatone-reunion-b3033382.html) - Independent
+- [NSYNC member gives candid answer about why boy band won’t reunite - Yahoo](https://nz.news.yahoo.com/nsync-member-gives-candid-answer-191850481.html) - Yahoo
+- [Instagram](https://www.instagram.com/reel/Db_cVvRlYXN) - Instagram
+- [KATSEYE Says ‘We Stand By Sophia and Manon’ Amid Their Hiatuses: ‘We Ride for Them’](https://www.today.com/popculture/music/katseye-responds-sophia-manon-stepping-back-exclusive-rcna592378) - TODAY
+- [KATSEYE star Sophia Laforteza announces hiatus from the group for 'mental health' treatment just months after Manon's departure \| Daily Mail Online](https://www.dailymail.com/tvshowbiz/article-16037311/KATSEYE-Sophia-Laforteza-hiatus-mental-health-Manon-Bannerman.html) - Dailymail
+- [KATSEYE skyrocket up the charts despite TWO members ditching the group \| Daily Mail Online](https://www.dailymail.com/tvshowbiz/article-16042989/Katseye-skyrocket-charts-despite-two-members-ditching-group.html) - Dailymail
+- [Earth, Wind & Fire drummer John Paris placed in induced coma after 'cardiac incident' as loved ones post emotional update](https://www.dailymail.com/tvshowbiz/article-16053397/Earth-Wind-Fire-drummer-John-Paris-coma-emergency-family.html) - Dailymail.com
+- [Earth, Wind & Fire drummer John Paris suffered 'medical emergency'](https://www.usatoday.com/story/entertainment/music/2026/08/11/earth-wind-fire-john-paris-medical-emergency/91218693007) - Usatoday
+- [Earth, Wind & Fire drummer briefly wakes after S.F. emergency](https://www.sfchronicle.com/entertainment/article/earth-wind-fire-john-paris-update-22388543.php) - Sfchronicle
+- [Earth, Wind & Fire drummer John Paris in medically induced coma](https://nypost.com/2026/08/13/entertainment/earth-wind-fire-drummer-john-paris-in-medically-induced-coma) - Nypost
+- [Earth, Wind & Fire Drummer John Paris Still in ‘Induced Coma’](https://people.com/earth-wind-and-fire-drummer-john-paris-still-in-induced-coma-12060522) - People
+- [Sheryl Crow Announces New Album, Pick You Up, Unveils “Freedom Bus” with Jesse Welles: Stream](https://consequence.net/2026/08/sheryl-crow-announces-album-pick-you-up/) - Consequence.net
+- [Sheryl Crow Announces Pick You Up With New Song Freedom Bus - Noise11 Music News](https://www.noise11.com/news/sheryl-crow-pick-you-up-freedom-bus-20260815) - Noise11
+- [Sheryl Crow Celebrates Freedom, Hope & Unity On Upcoming Album ‘Pick You Up’](https://musicrow.com/2026/08/sheryl-crow-celebrates-freedom-hope-unity-on-upcoming-album-pick-you-up) - Musicrow
+- [Sheryl Crow Announces New Album, Pick You Up, Unveils “Freedom Bus” with Jesse Welles: Stream](https://consequence.net/2026/08/sheryl-crow-announces-album-pick-you-up) - Consequence
+- [All-Time Best Rock + Metal Albums Released Each Day of the Year](https://loudwire.com/rock-metal-albums-released-by-day/) - Loudwire
+- [See Which Big Rock + Metal Albums Came Out on Your Birthday](https://loudwire.com/rock-metal-albums-released-by-day) - Loudwire
+- [Fontaines D.C. confirm fifth album is coming](https://www.thelineofbestfit.com/news/fontaines-d-c-confirm-fifth-album-is-coming) - Thelineofbestfit.com
+- [Watch Fontaines D.C. debut new songs 'Marianne' and 'Six Shot Morning' in first full headline show of 2026](https://www.nme.com/news/music/watch-fontaines-d-c-debut-two-new-songs-in-first-full-headline-show-of-2026-3961562) - Nme
+- [NME](https://www.nme.com?p=%2Fdiscussions%2Fp208) - Nme
+- [Fontaines D.C. preview new single ‘Marianne’ and confirm fifth album is incoming](https://www.nme.com/news/music/fontaines-d-c-preview-new-single-marianne-and-confirm-fifth-album-is-incoming-3962783) - Nme
+- [Fontaines D.C. teases upcoming fifth album](https://www.yahoo.com/entertainment/music/articles/fontaines-d-c-teases-upcoming-171500408.html) - Yahoo
+- [Fontaines D.C. Debut Two New Songs at Comeback Show in Spain](https://www.billboard.com/music/rock/fontaines-dc-two-new-songs-live-spain-watch-1236312429) - Billboard
