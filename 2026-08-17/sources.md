@@ -1,0 +1,55 @@
+# Sources for 2026-08-17 News Episode 
+- [Stray Kids Ties The Rolling Stones’ Record On Billboard 200 As “THIS & THAT” Debuts At No. 1 With Their Biggest U.S. Week Yet](http://www.soompi.com/article/1863335wpp/stray-kids-ties-the-rolling-stones-record-on-billboard-200-as-this-that-debuts-at-no-1-with-their-biggest-u-s-week-yet) - soompi
+- [Stray Kids Earn Ninth No. 1 Album on Billboard 200 With ' ...](https://hypebeast.com/2026/8/stray-kids-ninth-no-1-album-billboard-200-this-that) - Hypebeast
+- [Stray Kids’ latest EP clocks up 3.28m first-week sales - The Korea Herald](https://www.koreaherald.com/article/10841755) - Koreaherald
+- [Stray Kids Tie Rolling Stones With Ninth Billboard 200 No. 1](https://www.chosun.com/english/travel-food-en/2026/08/17/ZWLQXAARCBDMHFCCYSMA5JL7QY) - Chosun
+- [Stray Kids make Billboard history with 9th No. 1 album \| PEP.ph](https://www.pep.ph/news/foreign/193441/stray-kids-billboard-9th-no-1-album-a712-20260817) - Pep
+- [Stray Kids Score Ninth No. 1 on Billboard 200 With 'THIS & ...](https://www.billboard.com/music/chart-beat/stray-kids-this-and-that-number-one-billboard-200-chart-1236317298) - Billboard
+- [Karol G Brings Vibrant Vibes to L.A. With Viajando Por El Mundo Tropitour](http://www.hollywoodreporter.com/music/music-features/karol-g-viajando-por-el-mundo-tropitour-la-night-1-highlights-1236674607/) - Hollywood Reporter
+- [Karol G Brings Vibrant Vibes to Los Angeles With Her Viajando Por El Mundo Tropitour](https://www.hollywoodreporter.com/music/music-features/karol-g-viajando-por-el-mundo-tropitour-la-night-1-highlights-1236674607) - Hollywoodreporter
+- [How Sam Smith Found Their Voice](https://www.newyorker.com/culture/the-new-yorker-interview/how-sam-smith-found-their-voice) - The New Yorker
+- ['It was lonely being a young queer artist': Sam Smith on ...](https://www.theguardian.com/music/2026/aug/14/sam-smith-hazel-eyes-unholy-my-guy) - Theguardian
+- [EXCLUSIVE: Why The Beatles Are at the Center of 'Dangerous' Crowd Fears](https://radaronline.com/p/beatles-dangerous-crowd-fears/) - Radaronline.com
+- [Savile Row tailors in clash with The Beatles over plans for new museum at Fab Four's old HQ where they played iconic gig](https://www.thesun.co.uk/news/40021367/savile-row-tailors-clash-beatles-museum-hq) - Thesun
+- [Why The Beatles Are at Center of 'Dangerous' Crowd Fears](https://radaronline.com/p/beatles-dangerous-crowd-fears) - Radaronline
+- [Courtney Love Recounts 2019 Health Scare: “They Told Me I Was Going To Die”](https://pitchfork.com/story/courtney-love-recounts-2019-health-scare-they-told-me-i-was-going-to-die/) - Pitchfork
+- [Mysteriöse Krankheit - Courtney Love: „Ich wäre fast gestorben“](https://www.bild.de/unterhaltung/stars-und-leute/cobain-witwe-courtney-love-ueber-mysterioese-krankheit-ich-waere-fast-gestorben-6a816d12e2db31c6341308cb) - Bild
+- [Courtney Love Reveals She 'Almost Died' After Losing All Her Hair and Dropping to 100 Pounds During Terrifying Health Battle](https://radaronline.com/p/courtney-love-almost-died-losing-hair-dropping-to-100-pounds-health-battle/) - Radaronline.com
+- [Courtney Love reveals doctors 'told me I was going to die' in 2019](https://www.usatoday.com/story/entertainment/music/2026/08/16/courtney-love-health-crisis-update-new-album/91327582007) - Usatoday
+- [Courtney Love says she ‘almost died’ while making her long-awaited new album](https://www.sfchronicle.com/entertainment/article/ourtney-love-new-album-health-crisis-22390254.php) - Sfchronicle
+- [Courtney Love Recounts 2019 Health Scare: “They Told Me I Was Going To Die”](https://pitchfork.com/story/courtney-love-recounts-2019-health-scare-they-told-me-i-was-going-to-die) - Pitchfork
+- [Courtney Love says new album is finished after 2019 health crisis](https://t2online.in/music/western/courtney-love-reveals-new-album-is-done-and-recalls--almost--dying-in-2019/2007279) - T2online
+- [Watch Noah Kahan and Surprise Guest Chappell Roan Perform ‘California’ at Rose Bowl Stadium](http://www.rollingstone.com/music/music-news/noah-kahan-chappell-roan-perform-california-live-1235609738/) - Rolling Stone
+- [Chappell Roan Drops In On Noah Kahan At Rose Bowl](https://www.spinmagazine.com/2026/08/chappell-roan-noah-kahan-rose-bowl/) - Spinmagazine.com
+- [Chappell Roan makes surprise stage appearance at Noah Kahan's sold-out Rose Bowl show following security scandal](https://www.dailymail.com/tvshowbiz/article-16056749/chappell-roan-noah-kahan-rose-bowl-concert-security-scandal.html) - Dailymail.com
+- [Noah Kahan, joined by Chappell Roan, thrills 56,000 fans at the Rose Bowl – Pasadena Star News](https://www.pasadenastarnews.com/2026/08/16/noah-kahan-joined-by-chappell-roan-thrills-56000-fans-at-the-rose-bowl) - Pasadenastarnews
+- [Noah Kahan Brings Out Chappell Roan For "California" In California](https://stereogum.com/2508437/noah-kahan-brings-out-chappell-roan-for-california-in-california/news) - Stereogum
+- [Noah Kahan brings out Chappell Roan for surprise performance of 'California' at Rose Bowl](https://tribune.com.pk/story/2624202/noah-kahan-brings-out-chappell-roan-for-surprise-performance-of-california-at-rose-bowl) - Tribune
+- [Music Mayhem - Noah Kahan performed his biggest headline...](https://www.facebook.com/MusicMayhemMagazine/posts/noah-kahan-performed-his-biggest-headline-show-to-date-playing-to-more-than-5600/1685506170242229) - Facebook
+- [Watch Noah Kahan bring out Chappell Roan for ‘California’ at Rose Bowl](https://www.nme.com/news/music/watch-noah-kahan-bring-out-chappell-roan-for-california-at-rose-bowl-3962953) - Nme
+- [K-Pop Stars ZEROBASEONE Brought ‘SexyBack’ To 2026 KCON LA](https://www.forbes.com/sites/laurasirikul/2026/08/16/k-pop-stars-zerobaseone-brought-sexyback-to-2026-kcon-la/) - Forbes
+- [KCON LA 2026 Recap & Best Moments](http://www.billboard.com/lists/kcon-2026-la-best-moments-recap/) - Billboard
+- [K-Pop Stars ZEROBASEONE Brought ‘SexyBack’ To 2026 KCON LA](https://www.forbes.com/sites/laurasirikul/2026/08/16/k-pop-stars-zerobaseone-brought-sexyback-to-2026-kcon-la) - Forbes
+- [Beatles' biopic stars Barry Keoghan, Paul Mescal, Joseph Quinn and Harris Dickinson recreate Abbey Road album cover after the council tried to block filming at the iconic location](https://www.dailymail.com/tvshowbiz/article-16056529/Beatles-biopic-stars-Barry-Keoghan-Paul-Mescal-Joseph-Quinn-Harris-Dickinson-recreate-Abbey-Road-album-cover-council-tried-block-filming-iconic-location.html) - Dailymail.com
+- [Sam Mendes’ Beatles Biopic Recreates 'Abbey Road' Album Cover](http://www.hollywoodreporter.com/movies/movie-news/sam-mendes-beatles-biopic-recreates-abbey-road-album-cover-1236674685/) - Hollywood Reporter
+- [Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson Spotted Filming Beatles Biopic at Iconic Abbey Road Crosswalk](https://variety.com/2026/film/news/paul-mescal-barry-keoghan-filming-beatles-biopic-abbey-road-1236835628/) - Variety
+- [Video Captures ‘Abbey Road’ Crosswalk Scene During Beatles Biopics Filming](https://www.forbes.com/sites/timlammers/2026/08/16/video-captures-abbey-road-walk-during-filming-of-beatles-biopics/) - Forbes
+- [Paul Mescal, Barry Keoghan, Joseph Quinn, and Harris Dickinson Just Recreated the Beatles’ Abbey Road Crossing for Sam Mendes’ Biopics \| Thought Catalog](https://thoughtcatalog.com/nadia-santiago/2026/08/paul-mescal-barry-keoghan-joseph-quinn-and-harris-dickinson-just-recreated-the-beatles-abbey-road-crossing-for-sam-mendes-biopics) - Thoughtcatalog
+- [Sam Mendes' Beatles Movies Filming On Abbey Road ...](https://deadline.com/2026/08/sam-mendes-beatles-production-filming-abbey-road-1237027697) - Deadline
+- [Video Captures ‘Abbey Road’ Crosswalk Scene During Filming Of Beatles Biopics](https://www.forbes.com/sites/timlammers/2026/08/16/video-captures-abbey-road-walk-during-filming-of-beatles-biopics) - Forbes
+- [Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson Seen Recreating ‘Abbey Road’ Album Cover](https://www.hollywoodreporter.com/movies/movie-news/sam-mendes-beatles-biopic-recreates-abbey-road-album-cover-1236674685) - Hollywoodreporter
+- [The Beatles Biopic Movie Stars Spotted Recreating Iconic Abbey Road Album Cover](https://www.tmz.com/2026/08/16/harris-dickinson-paul-mescal-joseph-quinn-and-barry-keoghan-seen-on-abbey-road) - Tmz
+- [A-list pop star claims she's 'not making big bucks' touring the world as she reveals where the ticket money REALLY goes](https://www.dailymail.com/tvshowbiz/article-16056035/pop-star-zara-larsson-not-making-money-world-tour.html) - Dailymail.com
+- [Zara Larsson Says Her Nearly Sold-Out Tour Isn’t The Payday Fans Think It Is](https://uk.news.yahoo.com/zara-larsson-says-her-nearly-183000961.html) - Yahoo
+- [Zara Larsson Says Midnight Sun Tour Is 'Basically A Non Profit' - Where Is The Buzz \| Breaking News, Entertainment, Exclusive Interviews & Morero](https://whereisthebuzz.com/zara-larsson-says-midnight-sun-tour-is-basically-a-non-profit) - Whereisthebuzz
+- [Role Model: ‘I’m Not Trying to Be a Pop Star!’](http://www.rollingstone.com/music/music-features/role-model-interview-pop-star-dakota-johnson-1235609503/) - Rolling Stone
+- [Role Model, 'Chuck Timely & the Hourglass' Review](https://www.pastemagazine.com/music/role-model/role-model-chuck-timely-and-the-hourglass-album-review) - Pastemagazine
+- [When Prince Charles was a Funkateer](https://fm4.orf.at/story/funk-prince-soul-100-100/when-prince-charles-was-a-funkateer) - Fm4.orf.at
+- [When Prince Charles was a Funkateer](https://fm4.orf.at/story/funk-prince-soul-100-100) - Orf
+- [Emmylou Harris: ”Jag sysslar med hjärtats politik”](https://www.dn.se/kultur/emmylou-harris-jag-sysslar-med-hjartats-politik/) - Www.dn.se
+- [Travis Barker Learned Every Blink-182 Song in About an Hour Backstage, Then Filled in for Their Missing Drummer That Same Night](https://thoughtcatalog.com/nadia-santiago/2026/08/travis-barker-learned-every-blink-182-song-in-about-an-hour-backstage-then-filled-in-for-their-missing-drummer-that-same-night/) - Thoughtcatalog.com
+- [Travis Barker Learned Every Blink-182 Song in About an Hour Backstage, Then Filled in for Their Missing Drummer That Same Night \| Thought Catalog](https://thoughtcatalog.com/nadia-santiago/2026/08/travis-barker-learned-every-blink-182-song-in-about-an-hour-backstage-then-filled-in-for-their-missing-drummer-that-same-night) - Thoughtcatalog
+- ['Travis Barker: Louder Than Fear': What We Learned from the New Doc](https://www.rollingstone.com/music/music-features/travis-barker-louder-than-fear-drummer-documentary-1235607989) - Rollingstone
+- [Legendary music producer Clive Hunt releases new album](http://jamaica-gleaner.com/article/entertainment/20260816/legendary-music-producer-clive-hunt-releases-new-album) - Jamaica Gleaner
+- [Legendary music producer Clive Hunt releases new album \| Entertainment \| Jamaica Gleaner](https://jamaica-gleaner.com/article/entertainment/20260816/legendary-music-producer-clive-hunt-releases-new-album) - Jamaica-gleaner
+- [Instagram](https://www.instagram.com/p/DcCThOCGE2n) - Instagram
