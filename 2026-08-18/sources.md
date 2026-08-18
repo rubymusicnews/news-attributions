@@ -1,0 +1,61 @@
+# Sources for 2026-08-18 News Episode 
+- [AI music has reached the charts, and the artists using it have stopped hiding it](https://thenextweb.com/news/ai-music-mainstream-tyga-timbaland) - The Next Web
+- [Ebro Bigs Up Tyga, Internet Gangs Up On Him](https://hiphopwired.com/3062791/ebro-bigs-up-tyga-internet-gangs-up-on-him/) - Hip-Hop Wired
+- [Labels United on Chart Eligibility for AI Music, Divided on Which AI Qualifies](https://www.techtimes.com/articles/322175/20260730/labels-united-chart-eligibility-ai-music-divided-which-ai-qualifies.htm) - Techtimes
+- [Tyga doesn’t ‘care’ he made critically panned album ‘$tarface’ with AI](https://www.newsnationnow.com/entertainment-news/tyga-music-album-ai-pitchfork) - Newsnationnow
+- [‘I feel like I’m at war’: are we losing the battle against machine-made music? \| Music \| The Guardian](https://www.theguardian.com/music/ng-interactive/2026/aug/13/ai-music) - Theguardian
+- [Doja Cat brutally calls out Tyga for making an AI album](https://www.tyla.com/entertainment/music/doja-cat-tyga-album-artificial-intelligence-twitch-stream-344188-20260813) - Tyla
+- [Grammys May Reconsider Asian Pop Category After BTS-Led Boycott Sparks Industry-Wide Backlash and Wider Debate](https://www.ibtimes.com.au/bts-boycotts-grammys-asian-pop-category-1874232) - Ibtimes.com.au
+- [Grammys reconsider Asian pop category after BTS boycott](https://www.koreajoongangdaily.com/entertainment/grammys-rethink-asian-pop-category-after-bts-boycott-reports/12826431) - Koreajoongangdaily
+- [Grammy Awards Will Take Asian Category Criticism Into Consideration](https://www.rollingstone.com/music/music-news/grammys-taking-asian-category-criticism-into-consideration-1235609513) - Rollingstone
+- [After BTS snub, the Grammys reconsiders new ‘Asian Pop’ category - Music Business Worldwide](https://www.musicbusinessworldwide.com/after-bts-boycott-the-grammys-reconsiders-new-asian-pop-category) - Musicbusinessworldwide
+- [BTS’ Decision to Sit Out Grammys Brings Attention to Asian Pop Category](https://www.billboard.com/pro/bts-brings-new-attention-to-grammys-asian-pop-category) - Billboard
+- [BTS boycott Grammys over new Asian pop award category](https://www.reuters.com/business/media-telecom/bts-boycott-grammys-over-new-asian-pop-award-category-2026-07-29) - Reuters
+- [BTS Won’t Submit Music For Next Grammys In Opposition To New Asian Pop Category](https://www.forbes.com/sites/siladityaray/2026/07/30/grammy-ceo-saddened-after-bts-boycott-awards-over-new-asian-pop-category) - Forbes
+- [Brandon Flowers Daydreamed About Quitting Music. He Made a Country Album Instead](http://www.rollingstone.com/music/music-features/brandon-flowers-the-killers-quitting-music-country-album-1235607951/) - Rolling Stone
+- [Rock Cellar Magazine  - Brandon Flowers (The Killers): New Country-Inspired Solo Album Out Aug. 21 — Pre-Order](https://rockcellarmagazine.com/brandon-flowers-thrasher-new-album-the-killers) - Rockcellarmagazine
+- [REVIEW: The Killers' Brandon Flowers embraces Nashville on 'Thrasher'](https://riffmagazine.com/album-reviews/brandon-flowers-thrasher) - Riffmagazine
+- [The Killers' Brandon Flowers takes a western approach for his solo album, 'Thrasher' : NPR](https://www.npr.org/2026/08/17/nx-s1-5844884/the-killers-brandon-flowers-takes-a-western-approach-for-his-solo-album-thrasher) - Npr
+- [Brandon Flowers Daydreamed About Quitting Music. He Made a Country Album Instead](https://www.rollingstone.com/music/music-features/brandon-flowers-the-killers-quitting-music-country-album-1235607951) - Rollingstone
+- [Karol G Is the First Latina to Headline Coachella, and She Says She’s Done Dating Famous Men After Leaving Feid](https://thoughtcatalog.com/nadia-santiago/2026/08/karol-g-is-the-first-latina-to-headline-coachella-and-she-says-shes-done-dating-famous-men-after-leaving-feid/) - Thoughtcatalog.com
+- [Karol G Wants Coachella Performance to Have Impact on Latin Community - The Hollywood Reporter](https://www.hollywoodreporter.com/video/karol-g-wants-coachella-performance-have-impact-on-latin-community-beyond-saying-ice-out-video/) - Hollywoodreporter
+- [Karol G fans celebrate La Bichota’s ‘TropiCoachella’ - Los Angeles Times](https://www.latimes.com/0000019d-83ff-dbcd-a5ff-d3ff3f540000-123) - Latimes
+- [Karol G Turns Heartbreak Into Her Most Vulnerable Album Yet, Capping a Landmark Year for Latina Representation](https://www.latintimes.com/karol-g-turns-heartbreak-her-most-vulnerable-album-yet-capping-landmark-year-latina-598515) - Latintimes
+- [Taylor Swift Can’t Stop Listening to Phoebe Bridgers’ New Album](http://www.rollingstone.com/music/music-news/taylor-swift-loves-phoebe-bridgers-new-album-lost-weekend-1235610254/) - Rolling Stone
+- [Taylor Swift Praises Phoebe Bridgers’ ‘Lost Weekend’: “This Album Is an Absolute Triumph”](https://inmusicblog.com/pop/taylor-swift-praises-phoebe-bridgers-lost-weekend) - Inmusicblog
+- [Taylor Swift Praises Phoebe Bridgers’ New Album: ‘An Absolute Triumph in Every Way’](https://www.billboard.com/music/music-news/taylor-swift-phoebe-bridgers-new-album-lost-weekend-1236317969) - Billboard
+- [Taylor Swift Praises Phoebe Bridgers’ New Album ‘Lost Weekend,’ Calls It an ‘Absolute Triumph in Every Way’](https://variety.com/2026/music/news/taylor-swift-praises-phoebe-bridgers-lost-weekend-triumph-1236836547) - Variety
+- [Taylor Swift Praises Phoebe Bridgers’ ‘Lost Weekend’ as “An Absolute Triumph in Every Way”](https://www.hollywoodreporter.com/music/music-news/taylor-swift-praises-phoebe-bridgers-lost-weekend-1236675382) - Hollywoodreporter
+- [Prime Video Is Building A ‘Marília-Verse’ Around Brazil’s Late Icon Marília Mendonça With A Movie, Documentary & More](http://deadline.com/2026/08/prime-video-marilia-mendonca-marilia-verse-biopic-1237042823/) - Deadline
+- [Prime Video Sets Launch Plans For Marília Mendonça Documentary ‘Sentimento Louco’](https://deadline.com/2026/07/marilia-mendonca-sentimento-louco-documentary-prime-video-1236999254/) - Deadline
+- [Prime Video Builds 'Marília-Verse' Around Late Icon Marília Mendonça](https://deadline.com/2026/08/prime-video-marilia-mendonca-marilia-verse-biopic-1237042823) - Deadline
+- [Marília Mendonça Documentary Set For October Premiere On Prime Video](https://deadline.com/2026/07/marilia-mendonca-sentimento-louco-documentary-prime-video-1236999254) - Deadline
+- [Prime Video Is Building A ‘Marília-Verse’ Around Brazil’s Late Icon Marília Mendonça With A Movie, Documentary & More - Yahoo News UK](https://uk.news.yahoo.com/prime-video-building-mar-lia-135643335.html) - Yahoo
+- [Øya, Oslo review – Joyous festival with enough heart to bring even Robert Smith to tears](https://www.the-independent.com/arts-entertainment/music/reviews/oya-festival-the-cure-nick-cave-b3034264.html) - The-independent.com
+- [Øya review – Joyous festival with enough heart to bring even Robert Smith to tears \| The Independent](https://www.independent.co.uk/arts-entertainment/music/reviews/oya-festival-the-cure-nick-cave-b3034264.html) - Independent
+- [Bruno Mars Ties One Of The Top R&B Artists Of All Time](https://www.forbes.com/sites/hughmcintyre/2026/08/17/bruno-mars-ties-one-of-the-top-rb-artists-of-all-time/) - Forbes
+- [Bruno Mars Ties One Of The Top R&B Artists Of All Time](https://www.yahoo.com/entertainment/music/articles/bruno-mars-ties-one-top-141500161.html) - Yahoo
+- [Bruno Mars Breaks His Historic Tie With Kendrick Lamar](https://www.forbes.com/sites/hughmcintyre/2026/08/12/bruno-mars-breaks-his-historic-tie-with-kendrick-lamar) - Forbes
+- [Bruno Mars Breaks His Historic Tie With Kendrick Lamar](https://www.yahoo.com/entertainment/music/articles/bruno-mars-breaks-historic-tie-163030694.html) - Yahoo
+- [WOODZ’s K-rock hit “Drowning” sent him on a packed US tour](https://www.thefader.com/2026/08/17/woodz-archive-1-us-tour-photos) - The FADER
+- [Bruce Springsteen biographer and music critic Dave Marsh dies at 76](https://abcnews.com/Entertainment/wireStory/bruce-springsteen-biographer-music-critic-dave-marsh-dies-135707893) - Abcnews.com
+- [Dave Marsh, biographer of Springsteen, has died; Boss is 'Heartbroken'](https://www.app.com/story/entertainment/music/2026/08/16/dave-marsh-death-bruce-springsteen/91329334007) - App
+- [Bruce Springsteen biographer and music critic Dave Marsh dies at 76](https://www.bozemandailychronicle.com/wire/lifestyles/bruce-springsteen-biographer-and-music-critic-dave-marsh-dies-at-76/article_3c71fea8-a62b-5732-9388-f16c7ffa4a76.html) - Bozemandailychronicle
+- [Metro Detroit-bred rock writer and radio host Dave Marsh dies at 76](https://www.detroitnews.com/story/entertainment/music/2026/08/15/metro-detroit-bred-rock-writer-and-radio-host-dave-marsh-dies-at-76/91320772007) - Detroitnews
+- [R.I.P. Dave Marsh: Rock critic and Bruce Springsteen biographer dead at 76](https://www.pastemagazine.com/music/dave-marsh/r-i-p-dave-marsh-rock-critic-and-bruce-springsteen-biographer-dead-at-76) - Pastemagazine
+- [Dave Marsh, Legendary Rock Biographer and Critic, Dead at 76](https://www.rollingstone.com/music/music-news/dave-marsh-music-critic-biographer-dead-obit-1235609648) - Rollingstone
+- [Dave Marsh, Influential Critic, Activist, Broadcaster & Biographer of Bruce Springsteen, Dies at 76](https://www.billboard.com/music/music-news/dave-marsh-death-bruce-springsteen-biographer-dies-1236317094) - Billboard
+- [Watch Skrillex bring out Chase & Status during Boomtown 2026 set](https://djmag.com/news/watch-skrillex-bring-out-chase-status-during-boomtown-2026-set) - DJ Mag
+- [I was Jimi Hendrix's roadie. Now I'm naming and shaming the beloved rock stars who were secretly nightmares... and revealing ALL the disgraceful behavior I witnessed behind the scenes](https://www.dailymail.com/tvshowbiz/article-16044395/roadie-Hendrix-Bowie-Madonna-George-Michael.html) - Dailymail.com
+- [What was life as JIMI HENDRIX’s roadie like? ERIC BARRETT tells all in EXPERIENCED](https://www.buzzmag.co.uk/experienced-eric-barrett-book-review-jimi-hendrix) - Buzzmag
+- [When Jimi Hendrix’s tech had to play his guitar after a wardrobe malfunction](https://www.yahoo.com/entertainment/music/articles/jimi-hendrix-tech-had-play-164326394.html) - Yahoo
+- [Jimi Hendrix believed guitars were possessed by spirits, and he smashed them up to “set the spirit free” \| Guitar.com](https://guitar.com/news/music-news/jimi-hendrix-guitars-spirits) - Guitar
+- [Instagram](https://www.instagram.com/reel/DbCJGoYveFa) - Instagram
+- [Hayden Panettiere’s ‘Nashville’ Character Helped Expose Country Music’s Dark Side](http://www.rollingstone.com/music/music-features/hayden-panettiere-nashville-juliette-barnes-metoo-1235610060/) - Rolling Stone
+- [Hayden Panettiere’s ‘Nashville’ Character Helped Expose Country Music’s Dark Side](https://www.rollingstone.com/music/music-features/hayden-panettiere-nashville-juliette-barnes-metoo-1235610060) - Rollingstone
+- [Hayden Panettiere's 'Nashville' Character Helped Expose Country Music's Dark Side](https://au.rollingstone.com/music/music-features/hayden-panettiere-nashville-juliette-barnes-metoo-99935) - Rollingstone
+- [Hayden Panettiere’s ‘Nashville’ Character Helped Expose Country Music’s Dark Side](https://www.yahoo.com/entertainment/music/articles/hayden-panettiere-nashville-character-helped-181446212.html) - Yahoo
+- [Justin Trudeau's son Xavier, 18, shares his dad and girlfriend Katy Perry's hilarious reactions to hearing his new single in a hardware store and they dance and wield plungers in the aisles](https://www.dailymail.com/tvshowbiz/article-16057631/Justin-Trudeaus-son-Xavier-18-shares-hilarious-clip.html) - Dailymail.com
+- [Justin Trudeau's son Xavier, 18, shares his dad and girlfriend Katy Perry's cringe reactions to his new single as they dance with giant plunger in hardware store \| Daily Mail Online](https://www.dailymail.com/tvshowbiz/article-16057631/Justin-Trudeaus-son-Xavier-18-shares-hilarious-clip.html?ico=comment-anchor) - Dailymail
+- [Justin Trudeau, Katy Perry dance 'downtown' to Xav's new song](https://www.cp24.com/news/entertainment/2026/08/17/justin-trudeau-katy-perry-film-themselves-dancing-downtown-to-xavs-new-song) - Cp24
+- [Justin Trudeau and Katy Perry let loose while dancing to his son new song](https://www.hola.com/us/celebrities/20260817918481/justin-trudeau-katy-perry-dancing) - Hola
