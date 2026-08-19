@@ -1,0 +1,85 @@
+# Sources for 2026-08-19 News Episode 
+- [Madonna, Taylor Swift Lead VMA 2026 Nominations](https://pitchfork.com/story/madonna-taylor-swift-lead-vma-2026-nominations/) - Pitchfork
+- [Madonna, Taylor Swift Highlight MTV VMA Noms](https://www.spinmagazine.com/2026/08/madonna-taylor-swift-vma-nominations/) - Spinmagazine.com
+- [Madonna domină nominalizările la MTV VMA 2026 și poate egala un record deținut de Taylor Swift și Beyoncé](https://www.mediafax.ro/life-entertaiment/madonna-domina-nominalizarile-la-mtv-vma-2026-si-poate-egala-un-record-detinut-de-taylor-swift-si-beyonce-23792451) - Mediafax.ro
+- [Madonna Leads 2026 VMA Nominations With 11 Nods, Ahead of Taylor Swift](https://www.thewrap.com/industry-news/awards/2026-vma-nominations-madonna-taylor-swift/) - TheWrap
+- [Nominations Revealed for "2026 MTV Video Music Awards" ("VMAs"), Airing Live from Los Angeles, Sunday, Sept. 27 on CBS](http://www.thefutoncritic.com/news/2026/08/18/nominations-revealed-for-2026-mtv-video-music-awards-vmas-airing-live-from-los-angeles-sunday-sept-27-on-cbs-26115/20260818cbs01/) - Thefutoncritic.com
+- [MTV VMAs Nominations See Madonna, Taylor Swift Leading 2026 Class](https://bleedingcool.com/tv/mtv-vmas-nominations-see-madonna-taylor-swift-leading-2026-class/) - Bleeding Cool News
+- [Madonna and Taylor Swift Are the Pop Icons Leading the Nominees for the 2026 MTV VMAs](http://www.rollingstone.com/music/music-news/2026-mtv-vmas-nominees-full-list-taylor-swift-madonna-1235610787/) - Rolling Stone
+- [Musikpreise: MTV Video Music Awards: Madonna führt bei Nominierungen](https://www.zeit.de/news/2026-08/18/mtv-video-music-awards-madonna-fuehrt-bei-nominierungen) - Die Zeit
+- [Blondes Will Be Having More Fun at the 2026 VMAs](http://www.vulture.com/article/vma-nominations-2026.html) - Vulture
+- [Madonna topper VMA-listen – setter personlig rekord](https://www.vg.no/rampelys/i/9px1Wl/madonna-topper-vma-listen-setter-personlig-rekord) - Www.vg.no
+- [Η Madonna ξεπερνά την Taylor Swift σε υποψηφιότητες για τα MTV Video Music Awards](https://www.skai.gr/news/entertainment/i-madonna-kseperna-tin-taylor-swift-se-ypopsifiotites-gia-ta-mtv-video-music-awards) - Skai.gr
+- [Madonna tops Taylor Swift as 2026 MTV VMA nominations are announced](https://ohnotheydidnt.livejournal.com/132743260.html) - Livejournal.com
+- [These Are the Biggest Snubs From the 2026 VMAs Nominations](https://www.cosmopolitan.com/entertainment/celebs/a73464424/2026-vmas-snubs/) - Cosmopolitan.com
+- [BTS, BLACKPINK, CORTIS, LE SSERAFIM, KATSEYE, And HUNTR/X Nominated For 2026 MTV Video Music Awards](http://www.soompi.com/article/1863718wpp/bts-blackpink-cortis-le-sserafim-katseye-and-huntr-x-nominated-for-2026-mtv-video-music-awards) - soompi
+- [NOMINATIONS REVEALED FOR “2026 MTV VIDEO MUSIC AWARDS” (“VMAs”), AIRING LIVE FROM LOS ANGELES, SUNDAY, SEPT. 27 ON CBS](https://www.paramountpressexpress.com/mtv/shows/2026-mtv-video-music-awards-vmas/releases?view=113133-nominations-revealed-for-2026-mtv-video-music-awards-vmas-airing-live-from-los-angeles-sunday-sept-27-on-cbs) - Paramountpressexpress
+- [KATSEYE Scores 'Best K-Pop' VMA Nod Despite Not Being ...](https://www.forbes.com/sites/hannahabraham/2026/08/18/katseye-scores-best-k-pop-vma-nod-despite-singing-entirely-in-english-and-not-being-k-pop) - Forbes
+- [MTV Video Music Awards 2026 Nominations: Madonna & Taylor Swift Top List At The VMAs](https://deadline.com/lists/mtv-video-music-awards-2026-nominations-vma) - Deadline
+- [MTV Video Music Awards nominations complete list 2026](https://www.usatoday.com/story/entertainment/music/2026/08/18/mtv-video-music-awards-nominations-2026/91344828007) - Usatoday
+- [VMAs 2026: Taylor Swift & Madonna Lead Nominations](https://www.tvinsider.com/1282017/mtv-vmas-2026-nominations-taylor-swift-madonna-sabrina-carpenter) - Tvinsider
+- [2026 MTV Video Music Awards: See the full list of nominations, Madonna on top followed by Taylor Swift, Ariana Grande and Sabrina Carpenter](https://www.musicmundial.com/en/2026-mtv-video-music-awards-see-the-full-list-of-nominations-madonna-on-top-followed-by-taylor-swift-ariana-grande-and-sabrina-carpenter/amp) - Musicmundial
+- [Madonna Is Still Rewriting the Rules For Women in Pop](https://msmagazine.com/2026/08/18/madonna/) - Ms. Magazine
+- [New Madonna logo shows the Queen of Pop can still cause controversy - Creative Bloq](https://www.creativebloq.com/design/logos-icons/new-madonna-logo-shows-the-queen-of-pop-can-still-cause-controversy) - Creativebloq
+- [Madonna Is Still Rewriting the Rules For Women in Pop - Ms. Magazine](https://msmagazine.com/2026/08/18/madonna) - Msmagazine
+- [Madonna adds another chapter to house music history with 'CONFESSIONS II' - Electronic Groove](https://electronicgroove.com/madonna-adds-another-chapyter-house-music-confessions-ii) - Electronicgroove
+- [A Jazz Royalty Rendezvous--Joe De Gregorio Debuts The Trilogy (The Opening) Now Streaming World-wide](https://www.prnewswire.com/news-releases/a-jazz-royalty-rendezvousjoe-de-gregorio-debuts-the-trilogy-the-opening-now-streaming-world-wide-302852988.html) - PRNewswire
+- [A Jazz Royalty Rendezvous--Joe De Gregorio Debuts The Trilogy (The Opening) Now Streaming World-wide](https://finance.yahoo.com/media-advertising/articles/jazz-royalty-rendezvous-joe-gregorio-142400900.html) - Yahoo
+- [All Hispanic News and Press Releases from PR Newswire](https://www.prnewswire.com/news-releases/multicultural-latest-news/hispanic-oriented-news-list) - Prnewswire
+- [Frank Beard, ZZ Top’s Hard-Shuffling Drummer, Dead at 77](http://www.rollingstone.com/music/music-news/frank-beard-zz-top-drummer-dead-obituary-1235607415/) - Rolling Stone
+- [ZZ Top to Keep Touring in the Wake of Drummer Frank Beard’s Passing](https://consequence.net/2026/08/zz-top-to-keep-touring-frank-beard-passing/) - Consequence.net
+- [ZZ Top’s Frank Beard, Texas Shuffle’s Steady Hand, Dies At 77](https://www.spinmagazine.com/2026/08/zz-top-frank-beard-obituary/) - Spinmagazine.com
+- [Frank Beard, ZZ Top’s Beardless Drummer, Dead at 77](http://www.vulture.com/article/frank-beard-zz-top-dead.html) - Vulture
+- [Frank Beard Dies: ZZ Top’s Founding Drummer Was 77](http://deadline.com/2026/08/frank-beard-dead-zz-top-drummer-1237044530/) - Deadline
+- [Frank Beard, Longtime ZZ Top Drummer, Dies at 77](https://www.thewrap.com/creative-content/music/frank-beard-dead-zz-top-drummer/) - TheWrap
+- [ZZ Top Will Keep Touring After Frank Beard's Death](https://ultimateclassicrock.com/zz-top-continues-after-beard-death/) - Ultimate Classic Rock
+- [Celine Dion reveals stage comeback preparations amid stiff person syndrome battle: 'I don't like to say "disease"'](https://www.dailymail.com/tvshowbiz/article-16061091/celine-dion-paris-stage-comeback.html) - Dailymail.com
+- [Celine Dion Returns With Gorgeous French-Language Song ‘Dansons,’ Her First Single in 7 Years - Billboard](https://www.billboard.com/music/music-news/celine-dion-new-song-dansons-1236225169/) - Billboard
+- [Celine Dion Adds Six Dates To Paris Concert Season - Deadline](https://deadline.com/2026/04/celine-dion-six-dates-paris-concert-season-1236783336/) - Deadline
+- [Celine Dion makes emotional health confession ahead of highly anticipated Paris comeback](https://jang.com.pk/en/71358-celine-dion-makes-emotional-health-confession-ahead-of-highly-anticipated-paris-comeback-news) - Jang
+- [Céline Dion shares rare personal update ahead of life-altering return](https://www.hellomagazine.com/celebrities/917428/celine-dion-shares-personal-update-ahead-long-awaited-return) - Hellomagazine
+- [How Harper's Bazaar cover star, Céline Dion, is preparing for her miraculous comeback](https://www.laineygossip.com/how-harpers-bazaar-cover-star-celine-dion-preparing-for-her-miraculous-comeback) - Laineygossip
+- [Four Years Ago, She Was Diagnosed with Stiff Person Syndrome. Now, Celine Dion Is Back.](https://www.harpersbazaar.com/culture/art-books-music/a73231497/celine-dion-interview-september-2026) - Harpersbazaar
+- [Celine Dion details intense road back to the stage as she battles stiff person syndrome](https://pagesix.com/2026/08/18/celebrity-news/celine-dion-details-intense-road-back-to-the-stage-as-she-battles-stiff-person-syndrome) - Pagesix
+- [Celine Dion shares rare health update and admits 'it's not always pretty' while reflecting on personal life](https://www.hellomagazine.com/us/918622/celine-dion-health-update-honest-personal-reflection) - Hellomagazine
+- [Jorja Smith, Nemzzz and Beabadoobee head home to headline new Spotify series](https://www.thelineofbestfit.com/news/jorja-smith-nemzzz-beabadoobee-head-home-spotify-series) - Thelineofbestfit.com
+- [Beabadoobee, Jorja Smith, Nemzzz to Headline Spotify ‘Hometown’ Series](https://www.billboard.com/music/music-news/beabadoobee-jorja-smith-nemzzz-spotify-hometown-series-1236318586) - Billboard
+- [Spotify Takes Jorja Smith, Nemzzz and Beabadoobee Back Home – famemagazine.co.uk](https://www.famemagazine.co.uk/spotify-takes-jorja-smith-nemzzz-and-beabadoobee-back-home) - Famemagazine
+- [Camp Flog Gnaw 2026 lineup: Future, Turnstile, Jane Remover, and more](https://www.thefader.com/2026/08/18/camp-flog-gnaw-2026-lineup-tickets) - The FADER
+- [No need to search, we cracked Camp Flog Gnaw's 2026 lineup - RUSSH](https://www.russh.com/camp-flog-gnaw-carnival-2026-lineup-tickets) - Russh
+- [Tyler, the Creator, Future, Leon Thomas to Perform at Camp Flog Gnaw 2026](https://variety.com/2026/music/news/tyler-the-creator-future-leon-thomas-camp-flog-gnaw-2026-1236837549) - Variety
+- [Camp Flog Gnaw 2026 Lineup: How to Unlock It](https://inmusicblog.com/rap/camp-flog-gnaw-2026-lineup-how-to-find) - Inmusicblog
+- [Camp Flog Gnaw 2026 Lineup: Tyler, the Creator, Future, Steve Lacy, and Turnstile Set to Headline Star-Studded Festival](https://sundayguardianlive.com/entertainment-news/camp-flog-gnaw-2026-lineup-tyler-the-creator-future-steve-lacy-and-turnstile-set-to-headline-star-studded-festival-music-news-264385) - Sundayguardianlive
+- [Kanye West's wife Bianca Censori directs bizarre music video for his latest hit OK in which he plays a headless corpse in a morgue](https://www.dailymail.com/tvshowbiz/article-16060349/Kanye-Wests-wife-Bianca-Censori-bizarre-music-video-OK-plays-headless-corpse-morgue.html) - Dailymail.com
+- [Kanye West appears as headless corpse in music video directed by Bianca Censori](https://attackofthefanboy.com/news/kanye-west-plays-headless-corpse-in-latest-music-video-and-its-directed-by-none-other-than-his-wife-bianca-censori) - Attackofthefanboy
+- [Kanye West wields swords while being operated on in bizarre video directed by Bianca Censori](https://www.themirror.com/entertainment/kanye-west-wife-bizarre-video-1987193.amp) - Themirror
+- [Kanye West Plays Headless Corpse in New Music Video Directed by Wife Bianca Censori - Tuko.co.ke](https://www.tuko.co.ke/world/us/636715-kanye-west-plays-headless-corpse-music-video-directed-by-wife-bianca-censori) - Tuko
+- [Kanye West Plays Headless Corpse in Music Video Directed By Bianca Censori](https://www.yahoo.com/entertainment/music/articles/kanye-west-plays-headless-corpse-145307197.html) - Yahoo
+- [Jae Stephens Has What Pop Is Missing: Audacity](http://www.rollingstone.com/music/music-features/jae-stephens-artist-you-need-to-know-debut-album-audacity-1235572006/) - Rolling Stone
+- [Jae Stephens Announces Debut Album ‘AUDACITY’](https://www.udiscovermusic.com/news/jae-stephens-audacity) - Udiscovermusic
+- [Jae Stephens is turning up the heat... - Billboard Hip-Hop](https://www.facebook.com/billboardhiphop/posts/jae-stephens-is-turning-up-the-heat-with-sugar-trap-the-rising-rb-pop-star-just-/1435300348464889) - Facebook
+- [Gang Of Youths Make ‘Time’ For New Single](https://www.spinmagazine.com/2026/08/gang-of-youths-new-single/) - Spinmagazine.com
+- [Why it Took Gang of Youths Four Years to Return](https://au.rollingstone.com/music/music-features/gang-of-youths-things-take-time-interview-99945) - Rollingstone
+- [Gang of Youths are back: ‘Does it sound like a cynical gesture towards pop radio stardom?’](https://www.theguardian.com/music/2026/aug/19/gang-of-youths-new-music-single-things-take-time-dave-leaupepe) - Theguardian
+- [Gang of Youths – “Things Take Time” • chorus.fm](https://chorus.fm/news/gang-of-youths-things-take-time) - Chorus
+- [Gang Of Youths Make ‘Time’ For New Single](https://www.yahoo.com/entertainment/music/articles/gang-youths-time-single-160200793.html) - Yahoo
+- [C+C Music Factory Co-Founder Robert Clivillés Sues Freedom Williams for $30 Million, Alleging He Wrongfully Claimed Trademark Despite Never Being a Group Member](https://variety.com/2026/music/news/cc-music-factory-robert-clivilles-sues-freedom-williams-1236837138/) - Variety
+- [C+C Music Factory Founder Sues Freedom Williams in $30 Million Trademark Lawsuit](http://www.rollingstone.com/music/music-news/cc-music-factory-lawsuit-trademark-1235611284/) - Rolling Stone
+- [C+C Music Factory Co-Founder Robert Clivilles Sues Freedom Williams](https://variety.com/2026/music/news/cc-music-factory-robert-clivilles-sues-freedom-williams-1236837138) - Variety
+- [C+C Music Factory Founder Sues Freedom Williams in $30 Million Trademark Lawsuit](https://www.rollingstone.com/music/music-news/cc-music-factory-lawsuit-trademark-1235611284) - Rollingstone
+- [C+C Music Factory Founder Hits Freedom Williams With ...](https://www.billboard.com/pro/cc-music-factory-freedom-williams-fraud-lawsuit) - Billboard
+- [Freedom Williams and the C+C Music Factory Lawsuit](https://www.realitytea.com/2026/08/18/cc-music-factory-robert-clivilles-sues-freedom-williams) - Realitytea
+- [Freedom Williams Sued For $30M As C+C Music Factory Feud Turns Ugly - NewsBreak](https://www.newsbreak.com/reality-tea-1552139/4836008311609-freedom-williams-sued-for-30m-as-c-c-music-factory-feud-turns-ugly) - Newsbreak
+- [Ravyn Lenae wants her music to fly free](https://www.thefader.com/2026/08/18/ravyn-lenae-blue-island-fader-interview-video) - The FADER
+- [Ravyn Lenae On New Album Blue Island and Life After “Love Me Not”](https://www.nylon.com/entertainment/ravyn-lenae-blue-island-album) - Nylon
+- [‎Blue Island - Album by Ravyn Lenae - Apple Music](https://music.apple.com/us/album/blue-island/6771922622) - Apple
+- [On 'Blue Island,' Ravyn Lenae meets a viral hit's aftershock : NPR](https://www.npr.org/2026/08/14/nx-s1-5923960/ravyn-lenae-blue-island-review-love-me-not) - Npr
+- [Ravyn Lenae: 'My identity was picked apart'](https://www.dazeddigital.com/music/article/70772/1/ravyn-lenae-blue-island-new-album-interview) - Dazeddigital
+- [Allman Betts Family Revival Tour to Mark 10th Anniversary With Robert Randolph, Sierra Hull](http://www.rollingstone.com/music/music-news/allman-betts-family-revival-tour-10th-anniversary-dates-1235610845/) - Rolling Stone
+- [The Allman Betts Band Announce “Allman Betts Family Revival” 10th Anniversary Tour](https://consequence.net/2026/08/the-allman-betts-band-announce-allman-betts-family-revival-10th-anniversary-tour/) - Consequence.net
+- [Allman Betts Family Revival Announces 10th Anniversary “A Decade of Revival” Tour](https://www.gratefulweb.com/articles/allman-betts-family-revival-announces-10th-anniversary-a-decade-of-revival-tour) - Gratefulweb
+- [Allman Betts Family Revival Announces 2026 Tour Dates](https://www.thebluesmagazine.com/allman-betts-family-revival-2026-tour-dates) - Thebluesmagazine
+- [Allman Betts Family Revival Tour to Mark 10th Anniversary With Robert Randolph, Sierra Hull](https://www.rollingstone.com/music/music-news/allman-betts-family-revival-tour-10th-anniversary-dates-1235610845) - Rollingstone
+- [Devon Allman & Duane Betts Announce Guest-Packed ‘A Decade Of Revival’ Tour](https://liveforlivemusic.com/news/announce/devon-allman-duane-betts-announce-a-decade-of-revival) - Liveforlivemusic
+- [Devon Allman & Duane Betts Announce All-Star 10th Edition Of Family Revival Tour](https://www.jambase.com/article/allman-betts-family-revival-tour-dates-2026) - Jambase
+- [ALLMAN BETTS FAMILY REVIVAL RETURNS FOR 10th YEAR - Highway 81 Revisited](https://highway81revisited.com/allman-betts-family-revival-returns-for-10th-year) - Highway81revisited
