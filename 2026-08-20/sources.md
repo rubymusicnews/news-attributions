@@ -1,0 +1,63 @@
+# Sources for 2026-08-20 News Episode 
+- [Inside Yeonjun’s U.S. Summer ‘Ice Cream’ Takeover](https://www.forbes.com/sites/laurasirikul/2026/08/19/inside-yeonjuns-us-summer-ice-cream-takeover/) - Forbes
+- [Multimedia de TXT de Weverse - 'Ice Cream' stage ...](https://weverse.io/txt/media/1-178434465?hl=es) - Weverse
+- [TOMORROW X TOGETHER OFFICIAL's #YEONJUN performs ...](https://www.facebook.com/Billboard/videos/tomorrow-x-together-officials-yeonjun-performs-icecream-for-an-intimate-group-of/1037301782260968) - Facebook
+- [Instagram](https://www.instagram.com/reel/Db95MDUuxmm) - Instagram
+- [Inside Yeonjun’s U.S. Summer ‘Ice Cream’ Takeover](https://www.forbes.com/sites/laurasirikul/2026/08/19/inside-yeonjuns-us-summer-ice-cream-takeover) - Forbes
+- [TXT's Yeonjun Opens Pre-Orders for Solo Project 'NO LABELS'
+    
+    
+    
+      – Oppa Store](https://oppastore.com/blogs/k-pop-news-unfiltered/txt-yeonjun-no-labels-pre-order-now) - Oppastore
+- [Look: TXT member Yeonjun performs on 'Good Morning America' - Yahoo News Canada](https://ca.news.yahoo.com/look-txt-member-yeonjun-performs-152232831.html) - Yahoo
+- [Burna Boy, Tems earn 2026 MTV VMAs nominations (Full List)](https://www.vanguardngr.com/2026/08/burna-boy-tems-earn-2026-mtv-vmas-nominations-full-list/) - Vanguard
+- [FULL LIST: Burna Boy, Tems make 2026 MTV VMA nominees list](https://punchng.com/full-list-burna-boy-tems-make-2026-mtv-vma-nominees-list/) - The Punch
+- [Burna Boy, Tems secure 2026 MTV VMAs nominations despite scrapped Afrobeats category](https://www.premiumtimesng.com/entertainment/music/904093-burna-boy-tems-secure-2026-mtv-vmas-nominations-despite-scrapped-afrobeats-category.html) - Premiumtimesng
+- [MTV MVAs scrap Afrobeats category which Tyla has won back-to-back](https://www.sowetan.co.za/entertainment/2026-08-19-mtv-mvas-scrap-afrobeats-category-which-tyla-has-won-back-to-back) - Sowetan
+- [Burna Boy, Tems Earn 2026 MTV VMAs Nominations [FULL LIST] • Channels Television](https://www.channelstv.com/2026/08/19/burna-boy-tems-earn-2026-mtv-vmas-nominations) - Channelstv
+- [Burna Boy and Tems Bag 2026 MTV VMAs Nominations - OloriSuperGal](https://olorisupergal.com/burna-boy-and-tems-bag-2026-mtv-vmas-nominations) - Olorisupergal
+- [KiiiKiii Keeping Their 'Head In The Clouds' After Festival Debut](https://www.forbes.com/sites/laurasirikul/2026/08/19/kiiikiii-keeping-their-head-in-the-clouds-after-festival-debut/) - Forbes
+- [[RECAP] 2026 Head in the Clouds LA Draws Thousands of Fans with KATSEYE, XG, and More - K-Pop Concerts](https://kpopconcerts.com/event-recaps/recap-head-in-the-clouds-la-2026-draws-thousands-of-fans-with-katseye-xg-and-more) - Kpopconcerts
+- [KiiiKiii Keeping Their 'Head In The Clouds' After Festival Debut - Yahoo News UK](https://uk.news.yahoo.com/kiiikiii-keeping-head-clouds-festival-091120925.html) - Yahoo
+- [KiiiKiii Keeping Their 'Head In The Clouds' After Festival Debut](https://www.forbes.com/sites/laurasirikul/2026/08/19/kiiikiii-keeping-their-head-in-the-clouds-after-festival-debut) - Forbes
+- [“Let’s go party!”: KiiiKiii on their Head In The Clouds LA debut & making global fans feel connected](https://www.bandwagon.asia/articles/kiiikiii-on-their-head-in-the-clouds-debut-dream-guests-making-global-fans-feel-connected) - Bandwagon
+- [Maluma, Quevedo Join Stacked Lineup for Billboard’s Latin Music Week in Miami](https://consequence.net/2026/08/maluma-quevedo-join-stacked-lineup-for-billboards-latin-music-week-in-miami/) - Consequence.net
+- [Maluma, Quevedo Join Billboard Latin Music Week 2026 Lineup](https://consequence.net/2026/08/maluma-quevedo-join-stacked-lineup-for-billboards-latin-music-week-in-miami) - Consequence
+- [Maluma, Quevedo, Bebeshito & More Set for Billboard Latin Music Week 2026](https://www.billboard.com/music/latin/maluma-quevedo-bebeshito-billboard-latin-music-week-2026-1236319284) - Billboard
+- [Pitbull to Release 14th Studio Album 'Pitcoin' on Oct. 8, Joins Billboard Latin Music Week Lineup - Kiss 95.1](https://kiss951.com/2026/08/17/pitbull-to-release-14th-studio-album-pitcoin-on-oct-8-joins-billboard-latin-music-week-lineup) - Kiss951
+- [Billboard Latin Music Week 2026 reveals first wave of artists](https://www.miaminewtimes.com/music/billboard-latin-music-week-2026-reveals-first-wave-of-artists-40569674) - Miaminewtimes
+- [2026 The Fact Music Awards Announces Special Stage Lineup](http://www.soompi.com/article/1863953wpp/2026-the-fact-music-awards-announces-special-stage-lineup) - soompi
+- [2026 The Fact Music Awards Announces Special Stage Lineup \| Soompi](https://www.soompi.com/article/1863953wpp/2026-the-fact-music-awards-announces-special-stage-lineup) - Soompi
+- [The 2026 The Fact Music Awards will attract global K-pop fans with a variety of stages from special .. - MK](https://www.mk.co.kr/en/entertain/12131184) - Mk
+- [Shakira, Christina Aguilera concerts in Abu Dhabi cancelled](https://www.vanguardngr.com/2026/08/shakira-christina-aguilera-concerts-in-abu-dhabi-cancelled/) - Vanguard
+- [Shakira, Christina Aguilera concerts in Abu Dhabi cancelled amid ongoing Iran war \| The Straits Times](https://www.straitstimes.com/life/entertainment/shakira-christina-aguilera-concerts-in-abu-dhabi-cancelled-amid-ongoing-iran-war) - Straitstimes
+- [Christina Aguilera’s Abu Dhabi concert has been cancelled \| The National](https://www.thenationalnews.com/arts-culture/music-stage/2026/08/18/christina-aguileras-abu-dhabi-concert-has-been-cancelled) - Thenationalnews
+- [Ticket Refunds Explained After Christina Aguilera’s Etihad Arena Abu Dhabi Concert Cancellation and Offlimits Festival Changes](https://gulfnews.com/entertainment/ticket-refunds-revealed-as-christina-aguileras-abu-dhabi-concert-cancelled-this-september-1.500644993) - Gulfnews
+- [Shakira’s Abu Dhabi concert cancelled as Offlimits festival called off \| The National](https://www.thenationalnews.com/arts-culture/music-stage/2026/08/18/shakiras-abu-dhabi-concert-cancelled-as-offlimits-festival-called-off) - Thenationalnews
+- [Shakira, Christina Aguilera concerts in Abu Dhabi cancelled](https://www.abs-cbn.com/entertainment/showbiz/events/2026/8/20/shakira-christina-aguilera-concerts-in-abu-dhabi-cancelled-0050) - Abs-cbn
+- [The Complete History of the Beatles as Told By Conan O’Brien](https://www.openculture.com/2026/08/the-complete-history-of-the-beatles-as-told-by-conan-obrien.html) - Openculture.com
+- [What does it mean to be ‘underground’ in 2026?](https://www.dazeddigital.com/music/article/70766/1/what-does-it-mean-to-be-underground-uk-ug-esdeekid-fake-mink?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=what-does-it-mean-to-be-underground-in-2026) - Dazed
+- [What does it mean to be ‘underground’ in 2026? \| Dazed](https://www.dazeddigital.com/music/article/70766/1/what-does-it-mean-to-be-underground-uk-ug-esdeekid-fake-mink) - Dazeddigital
+- [The UK vs US underground music debate \| Culted Music](https://culted.com/music/the-uk-vs-us-underground-music-debate) - Culted
+- [EX.809 Mykki Blanco](https://soundcloud.com/resident-advisor/ex-809-mykki-blanco) - Soundcloud.com
+- [Mykki Blanco – NYC DOGS](https://www.insighttrendsworld.com/post/mykki-blanco-nyc-dogs) - Insighttrendsworld
+- [EX.809 Mykki Blanco](https://ra.co/exchange/849) - Ra
+- [Mykki Blanco Previews 'CAFE PARADISO' With Third Single NYC DOGS - Stereoboard](https://www.stereoboard.com/content/view/252456/9) - Stereoboard
+- [Mykki Blanco's New Album - "Cafe Paradiso" - Releases 9/4](https://www.thenighttemple.com/post/mykki-blanco-s-new-album-cafe-paradiso-releases-9-4) - Thenighttemple
+- [Neil Young and Willie Nelson to Play Co-Headlining Shows in September](https://consequence.net/2026/08/neil-young-willie-nelson-co-headlining-shows/) - Consequence.net
+- [Neil Young, Willie Nelson to Co-Headline Shows in September](https://consequence.net/2026/08/neil-young-willie-nelson-co-headlining-shows) - Consequence
+- [Willie Nelson & Neil Young Add Co-Headlining Shows Ahead Of Farm Aid 2026](https://liveforlivemusic.com/news/announce/willie-nelson-neil-young-co-headlining-shows-farm-aid-2026) - Liveforlivemusic
+- [Neil Young Sets Return To The Stage For Run With Willie Nelson](https://www.jambase.com/article/neil-young-willie-nelson-tour-dates-2026) - Jambase
+- [Neil Young Announces Two East Coast Concerts With Willie Nelson](https://ultimateclassicrock.com/neil-young-willie-nelson-2026-concerts) - Ultimateclassicrock
+- [R.I.P Columbia House, the Music Club That Sold Pop Dreams for a Penny](http://www.rollingstone.com/music/music-features/columbia-house-music-club-penny-1235610725/) - Rolling Stone
+- [Columbia House Shuttering After 71 Years Selling Music, Movies By Mail - Media Play News](https://www.mediaplaynews.com/columbia-house-shuttering-after-71-years-selling-music-movies-by-mail) - Mediaplaynews
+- [Columbia House Is Finally Shutting Down — Check on Your Gen X ...](https://www.complex.com/music/a/bernadette-giacomazzo/columbia-house-mail-order-music-closure) - Complex
+- [Columbia House is Shutting Down (Again), This Time for Good](https://www.digitalmusicnews.com/2026/08/17/columbia-house-is-shutting-down-again) - Digitalmusicnews
+- [Columbia House, the iconic mail-order music club, is shutting ...](https://www.bandwagon.asia/articles/columbia-house-is-shutting-down-after-71-years) - Bandwagon
+- [Remember 12 CDs for 1 cent? Columbia House is shutting down after 71 years](https://www.syracuse.com/entertainment/2026/08/remember-12-cds-for-1-cent-columbia-house-is-shutting-down-after-71-years.html) - Syracuse
+- [Joe Jonas fans go wild for his cowboy glow up and brand the look his 'final boss' as his band hit the road again on another Burnin' Up tour](https://www.dailymail.com/tvshowbiz/article-16063261/Joe-Jonas-fans-wild-cowboy-glow-brand-look-final-boss-band-hit-road-Burnin-tour.html) - Dailymail.com
+- [Bruce Springsteen – Xfinity Mobile Arena, Philadelphia, PA, 05.30.26 (2026)](https://exystence.net/blog/2026/08/19/bruce-springsteen-xfinity-mobile-arena-philadelphia-pa-05-30-26-2026/) - Exystence.net
+- [Geologist Reveals New Album The Sirens](https://pitchfork.com/story/geologist-reveals-new-album-the-sirens/) - Pitchfork
+- [Geologist & Kyle Simon Announce New Album Created With Light From The Moon](https://stereogum.com/2508792/geologist-kyle-simon-announce-new-album-created-with-light-from-the-moon/music) - Stereogum
+- [Geologist Hears the Celestial Call of 'The Sirens' │ Exclaim!](https://exclaim.ca/music/article/geologist-the-sirens-review) - Exclaim
+- [Geologist Reveals New Album The Sirens](https://pitchfork.com/story/geologist-reveals-new-album-the-sirens) - Pitchfork
