@@ -1,0 +1,70 @@
+# Sources for 2026-08-21 News Episode 
+- [Why Are All the Girls Crying in the Club?](http://www.rollingstone.com/music/music-latin/karol-g-becky-g-tokischa-sad-perreo-1235611548/) - Rolling Stone
+- [Why Are All the Girls Crying in the Club?](https://www.rollingstone.com/music/music-latin/karol-g-becky-g-tokischa-sad-perreo-1235611548) - Rollingstone
+- [Karol G's 'No Me Arrepiento de Sentir Tanto' Is Her Heartbreak Album](https://www.complex.com/music/a/dimassanfiorenzo/karol-g-no-me-arrepiento-de-sentir-tanto-album-review) - Complex
+- [Karol G's new album may just have you crying at the club - Los Angeles Times](https://www.latimes.com/delos/story/2026-08-06/karol-g-new-album-no-me-arrepiento-de-sentir-tanto) - Latimes
+- [Karol G perrea entre lágrimas y samplea 'Porque te vas'](https://www.rtve.es/noticias/20260807/karol-g-perrea-entre-lagrimas-su-nuevo-disco-donde-samplea-por-vas-jeanette/17183464.shtml) - Rtve
+- [Kanye West Announces St Petersburg Shows for October 2026 as Biggest Western Act in Russia Since War](https://www.ibtimes.com.au/ye-russia-concerts-controversy-1874303) - Ibtimes.com.au
+- [Kremlin on Kanye: No plans for Putin meeting](https://www.politico.eu/article/kremlin-on-kanye-west-ye-no-plans-for-russia-vladimir-putin-meeting/) - POLITICO.eu
+- [Kanye West to perform in Russia after European concert cancellations](https://iol.co.za/entertainment/music/2026-08-18-kanye-west-to-perform-in-russia-after-european-concert-cancellations) - Iol
+- [Kanye West announces tour dates in Russia - BBC News](https://www.bbc.co.uk/news/articles/cd9w4v1nx93o) - Bbc
+- [Ye (Kanye West) is coming to St. Petersburg, Russia: the dates, the ticket prices, and the campaign to stop the shows](https://meduza.io/en/feature/2026/08/18/ye-kanye-west-is-coming-to-st-petersburg-russia-the-dates-the-ticket-prices-and-the-campaign-to-stop-the-shows) - Meduza
+- [Ye (Kanye West) sold 100,000 tickets to two St. Petersburg stadium shows in two days. Now a Russian lawmaker wants the concerts canceled unless he declares ‘moral support’ for the war on Ukraine. — Meduza](https://meduza.io/en/feature/2026/08/19/ye-kanye-west-sold-100-000-tickets-to-two-st-petersburg-stadium-shows-in-two-days-now-a-russian-lawmaker-wants-the-concerts-canceled-unless-he-declares-moral-support-for-the-war-on-ukraine) - Meduza
+- [BTS fans get excited ahead of K-pop group's concerts in Toronto](https://www.cbc.ca/news/canada/toronto/bts-concerts-toronto-fans-9.7313718) - CBC News
+- [BTS tour in Toronto: Rogers Stadium, merch, fan light show](https://www.thestar.com/entertainment/bts-brings-world-tour-to-rogers-stadium-next-month-the-latest-on-what-fans-need-to-know/article_8cb7b529-0731-4804-a389-a0e209ea0a08.html) - Thestar
+- [BTS is coming to Toronto — and the city is getting ready \| Toronto Sun](https://torontosun.com/entertainment/music/bts-is-coming-to-toronto-and-the-city-is-getting-ready) - Torontosun
+- [Find BTS Toronto ARIRANG Tour Tickets Online: Last-Minute Seats, Deals](https://www.rollingstone.com/product-recommendations/tickets/bts-toronto-arirang-tour-dates-find-cheap-tickets-buy-online-1235611544) - Rollingstone
+- [Foo Fighters to Open for AC/DC for One Night Only](https://loudwire.com/foo-fighters-acdc-st-louis/) - Loudwire
+- [Foo Fighters to open for AC/DC – for one night only – in St. Louis](https://fox2now.com/news/missouri/foo-fighters-to-open-for-ac-dc-for-one-night-only-in-st-louis) - Fox2now
+- [FOO FIGHTERS To Open For AC/DC For One Night Only In St. Louis - BLABBERMOUTH.NET](https://blabbermouth.net/news/foo-fighters-to-open-for-ac-dc-for-one-night-only-in-st-louis) - Blabbermouth
+- [One night only: Foo Fighters to open for AC/DC in St. Louis](https://www.stlpr.org/news-briefs/2026-08-20/foo-fighters-open-ac-dc-st-louis) - Stlpr
+- [Foo Fighters To Fill In For Pretty Reckless at AC/DC St. Louis Gig](https://www.billboard.com/music/rock/foo-fighters-filling-in-pretty-reckless-ac-dc-st-louis-dream-gig-1236320773) - Billboard
+- [Rivers Cuomo Goes Full Gold as Weezer Play “We Might as Well Be Strangers” on Fallon: Watch](https://consequence.net/2026/08/weezer-we-might-as-well-be-strangers-fallon/) - Consequence.net
+- [Weezer’s 20th Album Is Good as Gold](http://www.rollingstone.com/music/music-album-reviews/weezer-gold-album-review-1235611428/) - Rolling Stone
+- [Rivers Cuomo Goes Full Gold For Weezer’s ‘Tonight Show’ Appearance](https://www.jambase.com/article/weezer-tonight-show-fallon-we-might-as-well-be-strangers) - Jambase
+- [Rivers Cuomo Goes Full Gold as Weezer Play “We Might as Well Be Strangers” on Fallon: Watch](https://consequence.net/2026/08/weezer-we-might-as-well-be-strangers-fallon) - Consequence
+- [Rivers Cuomo & Patrick Wilson were in a band called 60 ...](https://www.facebook.com/FallonTonight/videos/rivers-cuomo-and-patrick-wilson-talk-weezers-gold-album-reminisce-on-their-band-/1078781204843741) - Facebook
+- [Weezer's Rivers Cuomo talks about their latest self-titled album : NPR](https://www.npr.org/2026/08/16/nx-s1-5913862/weezers-rivers-cuomo-talks-about-their-latest-self-titled-album) - Npr
+- [Pulp Share First Trailer for ‘What Do You Do for an Encore?’ Documentary](http://www.rollingstone.com/music/music-news/pulp-first-trailer-what-do-you-do-for-an-encore-documentary-1235611929/) - Rolling Stone
+- [Full Trailer for Live Music Doc 'Pulp: What Do You Do for an Encore?'](https://www.firstshowing.net/2026/full-trailer-for-live-music-doc-pulp-what-do-you-do-for-an-encore/) - First Showing
+- [Pulp Share First Trailer for 'What Do You Do for an Encore?' Doc](https://www.rollingstone.com/music/music-news/pulp-first-trailer-what-do-you-do-for-an-encore-documentary-1235611929) - Rollingstone
+- [Pulp share trailer, and release date, for new film What Do You Do For An Encore?](https://www.yahoo.com/entertainment/music/articles/pulp-share-trailer-release-date-172046976.html) - Yahoo
+- [PULP: What Do You Do For An Encore? Official Trailer](https://keithlovesmovies.com/2026/08/20/pulp-what-do-you-do-for-an-encore-official-trailer) - Keithlovesmovies
+- [Pulp Share First Trailer for 'What Do You Do for an Encore?' Documentary](https://au.rollingstone.com/music/music-news/pulp-first-trailer-what-do-you-do-for-an-encore-documentary-100080) - Rollingstone
+- [Pulp share What Do You Do For An Encore trailer, as one-night-only cinema release is... - Radio X](https://www.radiox.co.uk/artists/pulp/trailer-what-do-you-do-for-an-encore-cinemas-for-one-night-only) - Radiox
+- [Jade Is Her Own Biggest Fan and Has the Spotify Library to Prove It](http://www.rollingstone.com/music/music-news/jade-song-shuffle-little-mix-bon-iver-mnek-1235611781/) - Rolling Stone
+- [Jade Is Her Own Biggest Fan, and Has the Spotify Library to Prove It](https://www.rollingstone.com/music/music-news/jade-song-shuffle-little-mix-bon-iver-mnek-1235611781) - Rollingstone
+- [Olivia Dean nominated and  Lily Allen missing from Mercury Prize list](https://www.bbc.com/news/articles/cq6dmlr1gzeo) - Bbc
+- [Def Leppard guitarist Vivian Campbell, 63, reveals his cancer has returned after bone marrow transplant failed - but says he's 'determined to live life to the fullest'](https://www.dailymail.com/tvshowbiz/article-16067397/Def-Leppard-guitarist-Vivian-Campbell-63-reveals-cancer-returned-bone-marrow-transplant-failed-says-hes-determined-live-life-fullest.html) - Dailymail.com
+- [VIVIAN CAMPBELL Says His 'Cancer Has Returned' Once Again: 'I'm Continuing Treatments To Manage It'](https://blabbermouth.net/news/vivian-campbell-says-his-cancer-has-returned-once-again-im-continuing-treatments-to-manage-it) - Blabbermouth
+- [Def Leppard’s Vivian Campbell says his cancer has returned after bone marrow transplant](https://www.hellorayo.co.uk/absolute-radio/music/news/vivian-campbell-cancer-returns) - Hellorayo
+- [Def Leppard guitarist Vivian Campbell says cancer has returned – WGAU](https://www.wgauradio.com/news/trending/def-leppard-guitarist-vivian-campbell-says-cancer-has-returned/SEUULLWHTNHPPC2SR7MNB3JSY4) - Wgauradio
+- [Def Leppard star's cancer has returned 18 months after bone ...](https://www.the-sun.com/entertainment/16869713/def-leppard-vivian-campbell-cancer-returned) - The-sun
+- [Def Leppard Guitarist Vivian Campbell Confirms Return Of ...](https://www.noise11.com/news/def-leppard-guitarist-vivian-campbell-confirms-return-of-cancer-20260821) - Noise11
+- [Def Leppard’s Vivian Campbell Reveals His Cancer Has Returned](https://consequence.net/2026/08/def-leppard-vivian-campbell-cancer-has-returned) - Consequence
+- [Ariana Grande Slams Trump For Using Her Song In Anti-Trans TikTok: “Your Truth Is False”](http://deadline.com/2026/08/ariana-grande-slams-trump-using-song-anti-trans-tiktok-1237047037/) - Deadline
+- [Ariana Grande Tells Trump 'Never Use My Music Again' After Anti-Trans TikTok \| IBTimes UK](https://www.ibtimes.co.uk/ariana-grande-demands-trump-stop-using-her-music-1815459) - Ibtimes
+- [Ariana Grande Demands Trump Campaign Remove Her Music from Anti-Transgender Video](https://streamlinefeed.co.ke/news/ariana-grande-demands-trump-campaign-remove-her-music-from-anti-transgender-video) - Streamlinefeed
+- [Ariana Grande issues furious five-word response to Trump using her music again](https://www.thenews.com.pk/latest/1413023-ariana-grande-issues-furious-five-word-response-to-trump-using-her-music-again) - Thenews
+- [Ariana Grande Is Not Happy Donald Trump Used Her Song for an Anti-Trans TikTok - AOL](https://www.aol.com/articles/ariana-grande-not-happy-donald-055702000.html) - Aol
+- [Ariana Grande Slams Trump for Using Her Music Again](https://www.tmz.com/2026/08/20/ariana-grande-tells-trump-to-stop-using-her-music-for-propaganda) - Tmz
+- [Ariana Grande Slams Donald Trump Over Use of Her Song in Anti-Trans TikTok - AOL](https://www.aol.com/articles/ariana-grande-slams-donald-trump-091306000.html) - Aol
+- [As Gustavo Dudamel Leaves LA, Here’s an Ode to the Joy He Brought](https://www.thewrap.com/creative-content/music/gustavo-dudamel-la-phil-appreciation/) - TheWrap
+- [Maestro Gustavo Dudamel’s final LA Phil concert will raise funds for Venezuela \| LAist](https://laist.com/news/arts-and-entertainment/maestro-gustavo-dudamels-final-la-phil-concert-will-raise-funds-for-venezuela) - Laist
+- [Dudamel’s farewell celebrations at the Hollywood Bowl  \| Los Angeles \| calonews.com](https://www.calonews.com/communities/los-angeles/gustavo-dudamel-s-farewell-celebrations-at-the-hollywood-bowl-will-include-a-musical-fiesta-and/article_80360dbe-d82b-4544-bc0c-5cdeddd22253.html) - Calonews
+- [Gustavo Dudamel, after 17 years as conductor of the LA Phil, says goodbye – Daily News](https://www.dailynews.com/2026/08/19/gustavo-dudamel-after-17-years-as-conductor-of-the-la-phil-says-goodbye) - Dailynews
+- [As Gustavo Dudamel Leaves LA, Here’s an Ode to the Joy He Brought](https://www.thewrap.com/creative-content/music/gustavo-dudamel-la-phil-appreciation) - Thewrap
+- [Listen to a new FADER Mix by Quiet Husband](https://www.thefader.com/2026/08/20/fader-mix-quiet-husband) - The FADER
+- [Metallica React To Japanese Pop Artist Covering 'Enter Sandman'](https://loudwire.com/ado-cover-metallica-enter-sandman/) - Loudwire
+- [Metallica Praises Ado's Summer Sonic Performance of 'Enter Sandman' - Interest - Anime News Network:SEA](https://www.animenewsnetwork.com/interest/240713) - Animenewsnetwork
+- [Metallica Praises Ado's Summer Sonic Performance of 'Enter Sandman' - Interest - Anime News Network](https://www.animenewsnetwork.com/interest/2026-08-19/metallica-praises-ado-summer-sonic-performance-of-enter-sandman/.240713) - Animenewsnetwork
+- [Metallica praise Ado for 'Enter Sandman' cover at SUMMER SONIC debut \| Electric Bloom Webzine](https://electricbloomwebzine.com/2026/08/metallica-praise-ado-enter-sandman-summer-sonic.html) - Electricbloomwebzine
+- [Enslaved Announce New Album, Unleash Single “Solar Will”: Stream](https://consequence.net/2026/08/enslaved-new-album-single-solar-will/) - Consequence.net
+- [Wolves in the Throne Room Announce New Album, Unveil “Ghosts Among the Obelisks”: Stream](https://consequence.net/2026/08/wittr-estuary-ghosts-among-the-obelisks/) - Consequence.net
+- [Enslaved announce new album 'Mið', share new single "Solar Will" and music video - Lambgoat](https://lambgoat.com/news/54411/enslaved-announce-new-album-mi-share-new-single-solar-will-and-music-video) - Lambgoat
+- [Enslaved Announce New Album Mið, And The Single ...](https://loadedradio.com/enslaved-new-album-mid) - Loadedradio
+- [ENSLAVED Announce New Album ‘Mið,’ Debut New Single ‘Solar Will’](https://metaladdicts.com/enslaved-announce-new-album-mid-debut-new-single-solar-will) - Metaladdicts
+- [Enslaved Announce New Album, Unleash Single "Solar Will"](https://consequence.net/2026/08/enslaved-new-album-single-solar-will) - Consequence
+- [ENSLAVED Announces New Studio Album 'Mið', Shares 'Solar Will' Single - BLABBERMOUTH.NET](https://blabbermouth.net/news/enslaved-announces-new-studio-album-shares-solar-will-single) - Blabbermouth
+- [Sparks singer Russell Mael confirms new album is in the works](https://www.the-independent.com/arts-entertainment/music/news/sparks-band-ron-and-russell-mael-new-album-b3036349.html) - The-independent.com
+- [Sparks singer Russell Mael confirms new album is in the works](https://www.aol.com/articles/sparks-singer-russell-mael-confirms-123750000.html) - Aol
