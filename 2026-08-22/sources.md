@@ -1,0 +1,73 @@
+# Sources for 2026-08-22 News Episode 
+- [50 Years Ago Today: The Rolling Stones Right the Wrongs of Altamont at Massive U.K. Festival](http://www.rollingstone.com/music/music-features/50-years-ago-today-rolling-stones-knebworth-festival-1235612239/) - Rolling Stone
+- [Ariana Grande at London O2 Arena 2026: start time, last-minute tickets and ultimate guide](https://www.timeout.com/london/news/ariana-grande-o2-2026-timings-tickets-setlist-guide-reviews-082126) - Time Out
+- [Ariana Grande setlist for Eternal Sunshine 2026 Tour at London O2](https://www.manchestereveningnews.co.uk/whats-on/music-nightlife-news/ariana-grande-setlist-eternal-sunshine-34471323) - Manchestereveningnews
+- [Ariana Grande Eternal Sunshine Tour 2026 Setlist and Surprise Songs](https://www.timeout.com/london/news/ariana-grande-setlist-surprise-songs-081826) - Timeout
+- [Ariana Grande at London O2 Arena 2026: Stage Time, Last Minute Tickets and Ultimate Guide](https://www.timeout.com/london/news/ariana-grande-o2-2026-timings-tickets-setlist-guide-081126) - Timeout
+- [Ariana Grande fans issued strict bag policy warning for Eternal Sunshine 2026 tour at London O2](https://www.manchestereveningnews.co.uk/whats-on/music-nightlife-news/ariana-grande-fans-issued-strict-34477706) - Manchestereveningnews
+- [Jaafar Jackson on How the ‘Michael’ Sequel Will Finally Tackle Past Allegations](https://www.theroot.com/jaafar-jackson-on-how-the-michael-sequel-will-finally-t-2000122059) - The Root
+- [Michael star Jaafar Jackson hopes sequel will address allegations ‘driven by an agenda’ \| The Independent](https://www.independent.co.uk/arts-entertainment/films/news/michael-sequel-jaafar-jackson-allegations-b3037277.html) - Independent
+- [Jaafar Jackson Hopes 'Michael' Sequel Will Give 'More Insight' Into Allegations From Singer's 'Point of View'](https://www.rollingstone.com/music/music-news/jaafar-jackson-michael-sequel-more-insight-allegations-1235612728) - Rollingstone
+- [Jaafar Jackson Opens Up About How Michael Sequel Will Depict Allegations \| HuffPost UK Entertainment](https://www.huffingtonpost.co.uk/entry/jaafar-jackson-michael-sequel-allegations_uk_6a881a4be4b02b0e96477c47?ncid=NEWSSTAND0001) - Huffingtonpost
+- [Jaafar Jackson wants 'Michael' sequel to focus on sexual misconduct claims from uncle's point of view](https://www.nydailynews.com/2026/08/20/jaafar-jackson-michael-jackson-sequel) - Nydailynews
+- [Michael Jackson biopic sequel will deal with his child abuse allegations, Jaafar Jackson reveals](https://www.indulgexpress.com/entertainment/cinema/2026/Aug/21/michael-jackson-biopic-sequel-will-deal-with-his-child-abuse-allegations-jaafar-jackson-reveals) - Indulgexpress
+- [Apple Music will label AI songs, and the tags behind them are now mandatory](https://thenextweb.com/news/apple-music-made-with-ai-labels-mandatory-tags) - The Next Web
+- [AI content in Apple Music will soon have to be labeled](https://appleinsider.com/articles/26/08/20/apple-musics-ai-disclosure-labels-will-soon-be-mandatory-rather-than-optional) - Appleinsider
+- [Apple Music to Flag AI-Generated Songs, Labels Coming Later This Year](https://www.pcmag.com/news/apple-music-to-flag-ai-generated-songs-labels-coming-later-this-year) - Pcmag
+- [Apple Music will label AI-generated music later this year](https://routenote.com/blog/apple-music-made-with-ai-labels) - Routenote
+- [Drake May Be Teasing New Music With Mysterious Post](https://www.xxlmag.com/drake-teasing-new-music-fomo-post/) - XXLMAG.COM
+- [Drake Teases 'Fear of Missing Out,' But What Is It?](https://www.complex.com/music/a/backwoodsaltar/drake-fear-missing-out-fomo-2026) - Complex
+- [Drake Teases Fans Again, This Time With A Jewel Case](https://rollingout.com/2026/08/21/drake-teases-fans-again-time) - Rollingout
+- [OVO Sound: Drake hints new music, PARTYNEXTDOOR drops 3 songs \| NOW Toronto](https://nowtoronto.com/culture/drake-partynextdoor-ovo-sound-new-music) - Nowtoronto
+- [Drake Teases New Music With Cryptic Instagram Post](https://inmusicblog.com/rap/drake-fear-of-missing-out-new-music-tease) - Inmusicblog
+- [14 New Albums You Should Listen to Now: Lambchop, Julia Holter, and More](https://pitchfork.com/story/14-new-albums-you-should-listen-to-now-lambchop-julia-holter-and-more/) - Pitchfork
+- [12 New Albums Out Now From Weezer, Brandon Flowers, Grace Potter & More - JamBase](https://www.jambase.com/article/12-new-albums-weezer-brandon-flowers-grace-potter) - Jambase
+- [11 Albums Out This Week You Should Listen to Now - Pitchfork](https://pitchfork.com/story/11-new-albums-you-should-listen-to-now-phoebe-bridgers-lrain-and-more/) - Pitchfork
+- [GB: Herzsprung Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/gb-herzsprung) - Pitchfork
+- [Former Queen bassist Barry Mitchell dies: ‘Terribly sad news’](https://www.the-independent.com/arts-entertainment/music/news/queen-barry-mitchell-death-cause-b3036975.html) - The-independent.com
+- [Legendary Queen band member passes away](https://www.thenews.com.pk/latest/1413051-legendary-queen-band-member-passes-away) - Thenews
+- [Former Queen bassist Barry Mitchell dies as fans pay tribute: "Terribly sad news”](https://www.nme.com/news/music/former-queen-bassist-barry-mitchell-dies-as-fans-pay-tribute-terribly-sad-news-3964005) - Nme
+- [Barry Mitchell, bassist for the band Queen, has died \| UA.NEWS](https://ua.news/en/world/pomer-basist-gurtu-queen-barri-mitchell) - Ua
+- [Former Queen bassist Barry Mitchell dies as fans pay tribute to 'fascinating' rocker](https://metro.co.uk/2026/08/21/former-queen-bassist-barry-mitchell-dies-fans-pay-tribute-fascinating-rocker-29429004/amp) - Metro
+- [Former Queen bassist Barry Mitchell dies: ‘Terribly sad news’](https://www.independent.co.uk/arts-entertainment/music/news/queen-barry-mitchell-death-cause-b3036975.html) - Independent
+- [Jeremy Dutcher Joins Yo-Yo Ma for 2026 Japan and Taiwan Tour, Shares Reimagined Version of "Ultestakon"](https://exclaim.ca/music/article/jeremy-dutcher-joins-yo-yo-ma-for-2026-japan-and-taiwan-tour) - Exclaim!
+- [Canadian Beacon \| Gizmo, So Faint, Divorcees & More New Homegrown Movers & Shakers - Tinnitist](https://tinnitist.com/2026/08/21/canadian-beacon-gizmo-so-faint-divorcees-more-new-homegrown-movers-shakers) - Tinnitist
+- [Jeremy Dutcher Joins Yo-Yo Ma for 2026 Japan and Taiwan Tour, Shares Reimagined Version of "Ultestakon" │ Exclaim!](https://exclaim.ca/concertcentral/article/jeremy-dutcher-joins-yo-yo-ma-for-2026-japan-and-taiwan-tour) - Exclaim
+- [The Cramps’ ‘Gravest Gravy’ Unearths Long-Lost Sessions From One of Rock’s Most Brilliantly Deranged Bands: Album Review](https://variety.com/2026/music/reviews/cramps-gravest-gravy-album-review-1236839743/) - Variety
+- [Böse Musik für böse Menschen: The Cramps grüßen aus dem Grab](https://www.derstandard.de/story/3000000336481/boese-musik-fuer-boese-menschen-the-cramps-gruessen-aus-dem-grab) - derStandard.de
+- [Viva the Cramps, Who Played ‘Pure’ Rock & Roll as Though the British Never Invaded](http://www.rollingstone.com/music/music-features/the-cramps-gravest-gravy-appreciation-1235609505/) - Rolling Stone
+- [The Cramps' Long Lost 'Gravest Gravy': Album Review](https://variety.com/2026/music/reviews/cramps-gravest-gravy-album-review-1236839743) - Variety
+- [THE CRAMPS' Lost Album GRAVEST GRAVY Released on Vengeance Records](https://www.broadwayworld.com/bwwmusic/article/THE-CRAMPS-Lost-Album-GRAVEST-GRAVY-Released-on-Vengeance-Records-20260821) - Broadwayworld
+- [Henry Rollins and The Lost Cramps Album](https://www.facebook.com/Bandcamp/posts/long-believed-lost-the-cramps-first-album-has-finally-been-unearthed-henry-rolli/1507182688117029) - Facebook
+- [🍝 Little Italy's 127-Year Party Is Back](https://www.the216scoop.com/p/little-italy-s-127-year-party-is-back) - The216scoop
+- [Long before the Cramps pioneered psychobilly, they were ...](https://www.instagram.com/reel/Db-xQiLx8pD) - Instagram
+- [Turnstile Enlist Elton John, Dying Fetus, and Hayley Williams for Reimagined NEVER ENOUGH Album](https://consequence.net/2026/08/turnstile-never-enough-versions/) - Consequence.net
+- [Elton John + Dying Fetus Appear on Same Album Thanks to Turnstile](https://loudwire.com/elton-john-dying-fetus-turnstile-album/) - Loudwire
+- [Turnstile announce Never Enough: Versions with Elton John, Blood Orange, and Four Tet \| The Line of Best Fit](https://www.thelineofbestfit.com/news/turnstile-announce-never-enough-versions-with-elton-john-blood-orange-and-four-tet) - Thelineofbestfit
+- [Turnstile Announce 'Never Enough: Versions' Album Feat Elton John, Hayley Williams & More - Stereoboard](https://www.stereoboard.com/content/view/252648/9) - Stereoboard
+- [Turnstile Enlist Elton John, More for Reimagined NEVER ENOUGH Album](https://consequence.net/2026/08/turnstile-never-enough-versions) - Consequence
+- [Turnstile Announces Reimagined Version Of Never Enough For August 2026 Release Featuring Elton John, Dying Fetus, Julien Baker & More - mxdwn Music](https://music.mxdwn.com/2026/08/21/news/turnstile-announces-reimagined-version-of-never-enough-for-august-2026-release-featuring-elton-john-dying-fetus-julien-baker-more) - Mxdwn
+- [TURNSTILE’s ‘NEVER ENOUGH: VERSIONS’ will feature Slayyyter, Oklou, and more \| The FADER](https://www.thefader.com/2026/08/21/turnstile-never-enough-versions-slayyyter-oklou-blood-orange) - Thefader
+- [Agnes Obel readies first album in six years, The Meaning of Flowers](https://www.thelineofbestfit.com/news/agnes-obel-readies-first-album-in-six-years-the-meaning-of-flowers) - Thelineofbestfit.com
+- [Agnes Obel: New album The Meaning Of Flowers announced](https://www.music-news.com/news/Underground/190781/Agnes-Obel-New-album-The-Meaning-Of-Flowers-announced) - Music-news
+- [Agnes Obel marks her long-awaited return with 'The Meaning of Flowers' - Agnes Obel \| Deutsche Grammophon](https://www.deutschegrammophon.com/en/artists/agnes-obel/news/agnes-obel-marks-her-long-awaited-return-with-the-meaning-of-flowers-280172) - Deutschegrammophon
+- [Hear Agnes Obel’s ‘Laymelli’ From ‘The Meaning of Flowers’](https://www.udiscovermusic.com/news/agnes-obel-the-meaning-of-flowers) - Udiscovermusic
+- [Agnes Obel Announces New Album, Shares New Single ‘Laymelli’](https://ourculturemag.com/2026/08/21/agnes-obel-announces-new-album-shares-new-single-laymelli) - Ourculturemag
+- [Earth, Wind, & Fire Shares Health Update on Drummer John Paris: ‘Our Hope Is Strong’](http://www.rollingstone.com/music/music-news/earth-wind-and-fire-drummer-john-paris-health-update-1235612631/) - Rolling Stone
+- [Earth, Wind & Fire drummer John Paris 'needs multiple surgeries' amid induced coma following 'cardiac incident'](https://www.dailymail.com/tvshowbiz/article-16068727/earth-wind-fire-john-paris-surgeries-coma-heart-attack.html) - Dailymail.com
+- ['Our hope is strong': Earth, Wind & Fire shares health update on drummer John Paris](https://www.wnep.com/article/news/nation-world/earth-wind-fire-drummer-john-paris-recovery/507-10911f62-1d32-4df6-a11d-2ad0380862ac) - Wnep
+- [Earth, Wind & Fire drummer John Paris wakes up from coma in health update](https://www.usatoday.com/story/entertainment/music/2026/08/21/earth-wind-fire-drummer-john-paris-health-update-coma/91400896007) - Usatoday
+- [Earth, Wind & Fire drummer John Paris wakes from medically induced coma - cleveland.com](https://www.cleveland.com/entertainment/2026/08/beloved-musician-wakes-from-medically-induced-coma-faces-2-major-surgeries.html) - Cleveland
+- [Earth, Wind & Fire Drummer John Paris in Coma After ‘Cardiac Accident’](https://sandrarose.com/2026/08/earth-wind-fire-drummer-john-paris-in-coma-after-cardiac-accident) - Sandrarose
+- [Bonnaroo Taking ‘Much-Needed Year Off’ in 2027](http://www.rollingstone.com/music/music-news/bonnaroo-taking-year-off-2027-postponed-1235612612/) - Rolling Stone
+- [Bonnaroo Will Not Take Place in 2027, Festival Says](https://www.hollywoodreporter.com/music/music-news/bonnaroo-2027-not-happening-1236678422) - Hollywoodreporter
+- [Bonnaroo cancels its 2027 music festival. Here’s why](https://www.wabi.tv/2026/08/21/bonnaroo-cancels-its-2027-music-festival-heres-why) - Wabi
+- [Bonnaroo will skip the 2027 festival - The Lynchburg Times](https://thelynchburgtimes.com/bonnaroo-will-skip-the-2027-festival) - Thelynchburgtimes
+- [Bonnaroo taking ‘much needed year off’ in 2027](https://www.wkrn.com/news/local-news/bonnaroo-taking-much-needed-year-off-in-2027) - Wkrn
+- [Joy-Anna Duggar Opens Up About Age Gap with Husband ...](https://www.yahoo.com/entertainment/celebrity/articles/joy-anna-duggar-opens-age-002840221.html) - Yahoo
+- [Bonnaroo Takes A Year Off In 2027 After Weather Hits The Farm](https://www.noise11.com/news/bonnaroo-takes-a-year-off-in-2027-after-weather-hits-the-farm-20260822) - Noise11
+- [Bonnaroo to take 2027 off as The Farm recovers from back-to-back years of storms](https://www.newschannel5.com/news/state/tennessee/coffee-county/bonnaroo-to-take-2027-off-as-the-farm-recovers-from-back-to-back-years-of-storms) - Newschannel5
+- [Bonnaroo canceled for 2027. Heartbroken fans worry about its future](https://www.commercialappeal.com/story/entertainment/music/bonnaroo/2026/08/21/bonnaroo-canceled-2027-fan-reaction-tennessee-future-uncertain/91402564007) - Commercialappeal
+- [How Qendresa went from working at Sexy Fish to writing for Drake](https://www.dazeddigital.com/music/article/70837/1/qendresa-drake-iceman-slap-the-city-singer-songwriter-interview?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=how-qendresa-went-from-working-at-sexy-fish-to-writing-for-drake) - Dazed
+- [How Qendresa went from working at Sexy Fish to writing for Drake \| Dazed](https://www.dazeddigital.com/music/article/70837/1/qendresa-drake-iceman-slap-the-city-singer-songwriter-interview) - Dazeddigital
+- [Qendresa returns with new double single release](https://dancewax.net/2026/08/17/qendresa-returns-with-double-single-release-besitos-gave-myself-2-u) - Dancewax
