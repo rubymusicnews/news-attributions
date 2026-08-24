@@ -1,0 +1,60 @@
+# Sources for 2026-08-24 News Episode 
+- [Beyoncé’s New Single Brings Her To Career Milestones On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/08/23/beyoncs-new-single-brings-her-to-career-milestones-on-multiple-charts/) - Forbes
+- [Beyoncé Scores Major Billboard Milestones as “Morning Dew 'Donk'” Cracks Radio Top 10](https://www.brandiconimage.com/2026/08/beyonce-scores-major-billboard.html) - Brandiconimage
+- [BEYPRESS. (@beyoncepress) / Posts / X](https://x.com/beyoncepress) - X
+- [Beyoncé’s New Single Brings Her To Career Milestones On Multiple Charts](https://www.forbes.com/sites/hughmcintyre/2026/08/23/beyoncs-new-single-brings-her-to-career-milestones-on-multiple-charts) - Forbes
+- [Beyoncé’s New Single Brings Her To Career Milestones On Multiple Charts](https://www.yahoo.com/entertainment/music/articles/beyonc-single-brings-her-career-120000955.html) - Yahoo
+- [Inside Rush’s Triumphant Return: Our Full Interview with Geddy Lee and Alex Lifeson](http://www.rollingstone.com/music/music-features/rush-interview-full-cover-story-geddy-alex-1235613154/) - Rolling Stone
+- [Rush Makes A Magnificent Return To Madison Square Garden](https://www.forbes.com/sites/davidchiu/2026/08/01/rush-makes-a-magnificent-return-to-madison-square-garden) - Forbes
+- [See RUSH's Entire Performance In Philadelphia During 2026 'Fifty Something' Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/see-rushs-entire-performance-in-philadelphia-during-2026-fifty-something-tour) - Blabbermouth
+- [Geddy Lee discusses the importance of singing Rush songs in their original keys - Chaoszine](https://chaoszine.net/geddy-lee-discusses-the-importance-of-singing-rush-songs-in-their-original-keys) - Chaoszine
+- [Rosalía's 'La Perla' Inspired by Paquita la del Barrio's 'Rata'](http://www.billboard.com/music/latin/rosalia-la-perla-paquita-la-del-barrio-rata-de-dos-patas-1236322559/) - Billboard
+- [🇲🇽🎶 ¡Rosalía se rinde ante Paquita la del Barrio! ❤️ 🗣️ ...](https://www.facebook.com/ovacionesmx/videos/-rosal%C3%ADa-se-rinde-ante-paquita-la-del-barrio%EF%B8%8F-%EF%B8%8F-durante-su-concierto-en-cdmx-la-/1648332496661285) - Facebook
+- [Durante su primera noche en CDMX con el LUX TOUR ...](https://www.facebook.com/PlayGroundMag/posts/durante-su-primera-noche-en-cdmx-con-el-lux-tour-rosal%C3%ADa-reconoce-haber-sido-ins/1378367467773510) - Facebook
+- [Rosalía’s ‘La Perla’ ‘Wouldn’t Exist’ Without Paquita la del Barrio’s ‘Rata de dos Patas’](https://www.billboard.com/music/latin/rosalia-la-perla-paquita-la-del-barrio-rata-de-dos-patas-1236322559) - Billboard
+- [Premios Juventud 2026: Performer And Special Honoree Lineup Set For Spain Show](https://www.forbes.com/sites/veronicavillafane/2026/08/22/premios-juventud-2026-performer-and-special-honoree-lineup-set-for-spain-show/) - Forbes
+- [Premios Juventud takes in Europe for first time - UPI.com](https://www.upi.com/amp/Entertainment_News/2026/07/28/latam-Premios-Juventud-Europe/2041785253024) - Upi
+- [2026 Premios Juventud Date Revealed](https://www.billboard.com/music/awards/2026-premios-juventud-date-1236288201) - Billboard
+- [Premios Juventud 2026: Performer And Special Honoree Lineup Set For Spain Show](https://www.forbes.com/sites/veronicavillafane/2026/08/22/premios-juventud-2026-performer-and-special-honoree-lineup-set-for-spain-show) - Forbes
+- [Premios Juventud takes in Europe for first time](https://www.breitbart.com/news/premios-juventud-takes-in-europe-for-first-time) - Breitbart
+- [Liam Gallagher in furious rant over Glastonbury rumours: ‘Calm the f*** down’](https://www.the-independent.com/arts-entertainment/music/news/oasis-glastonbury-2027-liam-gallagher-b3037711.html) - The-independent.com
+- [Liam Gallagher denies Oasis Glastonbury rumours](https://www.rte.ie/entertainment/2026/0823/1588905-liam-gallagher-denies-oasis-glastonbury-rumours/) - RTE
+- [Liam Gallagher denies Oasis Glastonbury rumours with foul-mouthed response](https://www.rte.ie/entertainment/2026/0823/1588905-liam-gallagher-denies-oasis-glastonbury-rumours) - Rte
+- [Liam Gallagher denies Oasis Glastonbury rumours with foul-mouthed response](https://www.aol.co.uk/articles/liam-gallagher-denies-oasis-glastonbury-093826000.html) - Aol
+- [Liam Gallagher shuts down rumours Oasis will perform at Glastonbury Festival in 2027](https://www.mirror.co.uk/3am/celebrity-news/liam-gallagher-oasis-glastonbury-rumours-37582371.amp) - Mirror
+- [From Shifting Genres, To Producing For Drake, We Asked GORDO About His Journey, Plans, And Process](https://www.buzzfeed.com/bendzialdowski/gordo-interview-dj-pacha-ibiza) - Buzzfeed
+- [GORDO Announces Major Pacha Ibiza Residency \| The Nocturnal Times](https://www.thenocturnaltimes.com/gordo-announces-major-pacha-ibiza-residency) - Thenocturnaltimes
+- [GORDO “DO YOU MIND”: Kyla’s Dance Classic Reimagined](https://bongminesentertainment.com/gordo-do-you-mind) - Bongminesentertainment
+- [GORDO On Producing For Drake And His Music Journey - AOL](https://www.aol.com/articles/gordo-producing-drake-music-journey-143102000.html) - Aol
+- [Big Thief Preview New Album Live in Nashville: Five Things We Learned](http://www.rollingstone.com/music/music-features/big-thief-new-album-horsepower-what-we-know-1235613005/) - Rolling Stone
+- [Big Thief debut triple album Horsepower live in Nashville \| The Line of Best Fit](https://www.thelineofbestfit.com/news/big-thief-debut-triple-album-horsepower-live-in-nashville) - Thelineofbestfit
+- [Big Thief's New Album 'Horsepower': What We Know](https://www.rollingstone.com/music/music-features/big-thief-new-album-horsepower-what-we-know-1235613005) - Rollingstone
+- [Big Thief Debut New Triple Album, Horsepower , Live in Nashville](https://pitchfork.com/story/big-thief-debut-new-triple-album-horsepower-live-in-nashville) - Pitchfork
+- [Toby Keith’s Album Celebrates Different Milestones On Several Charts](https://www.forbes.com/sites/hughmcintyre/2026/08/23/toby-keiths-album-celebrates-different-milestones-on-several-charts/) - Forbes
+- [Toby Keith’s Album Celebrates Different Milestones On Several Charts](https://www.forbes.com/sites/hughmcintyre/2026/08/23/toby-keiths-album-celebrates-different-milestones-on-several-charts) - Forbes
+- [The Singer Who Shocked Castro](https://fm4.orf.at/story/soul-cuba-100/the-singer-who-shocked-castro-) - Fm4.orf.at
+- [Check out this cover of “Down on Me” by Latin soul singer La ...](https://www.facebook.com/groups/1013119639508729/posts/2198227940997887) - Facebook
+- [The Singer Who Shocked Castro](https://fm4.orf.at/story/soul-cuba-100) - Orf
+- [Bret Michaels Cancels All 2026 Tour Dates for ‘Rest and Recovery’ After Recent Surgeries](http://www.rollingstone.com/music/music-news/bret-michaels-cancels-2026-tour-rest-recovery-surgeries-1235613609/) - Rolling Stone
+- [Bret Michaels Cancels All Scheduled Tour Dates As He Recovers from Recent Surgeries](https://consequence.net/2026/08/bret-michaels-tour-dates-canceled-surgery/) - Consequence.net
+- [Bret Michaels cancels 2026 shows after kidney stone ...](https://pagesix.com/2026/08/22/entertainment/bret-michaels-abruptly-cancels-remaining-2026-shows-after-kidney-stone-surgery) - Pagesix
+- [Due to medical reasons, Bret Michaels has CANCELED all ...](https://www.facebook.com/RoseMusicCenter/posts/due-to-medical-reasons-bret-michaels-has-canceled-all-remaining-2026-tour-dates-/1476536367833462) - Facebook
+- [Bret Michaels has postponed his "Live & Amplified" world ...](https://www.facebook.com/dverocks/posts/bret-michaels-has-postponed-his-live-amplified-world-tour-dates-following-surger/1543880804415907) - Facebook
+- [Bret Michaels cancels rest of 2026 tour dates after surgery](https://www.usatoday.com/story/entertainment/music/2026/08/23/bret-michaels-cancels-2026-tour-dates-kidney-surgery/91431515007) - Usatoday
+- [Bret Michaels pulls out of Mountain Music Festival as he needs more recovery time from recent surgeries - Sleaze Roxx](https://sleazeroxx.com/bret-michaels-pulls-out-of-mountain-music-festival-as-he-needs-more-recovery-time-from-recent-surgeries) - Sleazeroxx
+- [Irish acts showcased on National Public Radio in the US](https://www.rte.ie/entertainment/2026/0823/1588907-irish-acts-showcased-on-national-public-radio-in-the-us/) - RTE
+- [World Cafe® Visits Dublin For The Next Installment of Their Award-Winning “Sense of Place” Series](https://xpn.org/world-cafe-visits-dublin-for-the-next-installment-of-their-award-winning-sense-of-place-series) - Xpn
+- [WORLD CAFE'S "Sense of Place" Series to Explore Dublin's Music Scene](https://www.broadwayworld.com/bwwmusic/article/74) - Broadwayworld
+- [World Cafe Dublin: CMAT, Hozier And U2 On NPR \| JOE.ie](https://www.joe.ie/movies-tv/world-cafe-dublin-npr-cmat-hozier-irish-acts-880497) - Joe
+- [Irish acts showcased on National Public Radio's World Cafe show in the US](https://www.rte.ie/entertainment/2026/0823/1588907-irish-acts-showcased-on-national-public-radio-in-the-us) - Rte
+- [Kirk Cameron Says Taylor Swift’s Music Normalizes “Sexual Immorality, Vulgarity” and “Rebellion Against Biblical Morality.”](https://thoughtcatalog.com/xstockton/2026/08/kirk-cameron-says-taylor-swifts-music-normalizes-sexual-immorality-vulgarity-and-rebellion-against-biblical-morality/) - Thoughtcatalog.com
+- [Kirk Cameron Says Taylor Swift’s Music Normalizes “Sexual Immorality, Vulgarity” and “Rebellion Against Biblical Morality.” \| Thought Catalog](https://thoughtcatalog.com/xstockton/2026/08/kirk-cameron-says-taylor-swifts-music-normalizes-sexual-immorality-vulgarity-and-rebellion-against-biblical-morality) - Thoughtcatalog
+- [Malaysian drummer dies, at age 56, onstage during festival performance](https://www.dailymail.com/tvshowbiz/article-16074311/Malaysian-drummer-dies-age-56-onstage-festival-performance.html) - Dailymail.com
+- [Drummer, 56, Dies After Collapsing Onstage 2 Songs into Rock Festival Set](https://people.com/drummer-dead-after-collapsing-mid-show-at-rock-festival-12066003) - People
+- [Malaysian rock drummer dies onstage after collapsing mid performance at Teruntum festival - Yahoo News Malaysia](https://malaysia.news.yahoo.com/malaysian-rock-drummer-dies-onstage-085029790.html) - Yahoo
+- [Malaysian rock drummer Raja Talib dies onstage mid-performance after collapsing over his drum kit](https://nypost.com/2026/08/24/world-news/malaysian-rock-drummer-raja-talib-dies-onstage-mid-performance-after-collapsing-over-his-drum-kit) - Nypost
+- [Malaysian drummer dies at 56 after collapsing onstage during festival performance \| Irish Star](https://www.irishstar.com/culture/entertainment/malaysian-drummer-dies-56-after-37584854) - Irishstar
+- [Chanel Clad Cardi! Bardi Drips Designer From Head To Toe During Kehlani’s Brooklyn Show](https://bossip.com/4620633/chanel-cardi-b-kehlani-brooklyn-show/) - Bossip
+- [Cardi B Wears Fiery Chanel Suit At Kehlani Concert](https://hellobeautiful.com/4601054/cardi-b-chanel-2) - Hellobeautiful
+- [Kehlani Brings Out Cardi B at Brooklyn Concert: Best Moments](https://www.billboard.com/lists/kehlani-brooklyn-concert-best-moments-cardi-b) - Billboard
+- [Cardi B Pops Out During Kehlani’s Brooklyn Show](https://bossip.com/4620633/chanel-cardi-b-kehlani-brooklyn-show) - Bossip
