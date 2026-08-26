@@ -1,0 +1,90 @@
+# Sources for 2026-08-26 News Episode 
+- [Dolly Parton Dies: Iconic “Jolene” Singer-Songwriter, ‘9 To 5’ Star & 11-Time Grammy Winner Was 80](http://deadline.com/2026/08/dolly-parton-dead-1237049985/) - Deadline
+- [Dolly Parton, Icon of Country Music, Dead at 80](http://www.vulture.com/article/dolly-parton-singer-dead-80.html) - Vulture
+- [Dolly Parton, Country Icon + Rock and Roll Hall of Famer, Dies](https://ultimateclassicrock.com/dolly-parton-country-music-icon-dies/) - Ultimate Classic Rock
+- [Dolly Parton, the Tennessee Sharecropper’s Daughter Who Wrote 3,000 Songs and Built an Empire Out of Them, Has Died at 80](https://thoughtcatalog.com/nicolestawiarski/2026/08/dolly-parton-the-tennessee-sharecroppers-daughter-who-wrote-3000-songs-and-built-an-empire-out-of-them-has-died-at-80/) - Thoughtcatalog.com
+- [Dolly Parton Dies at 80: Remembering a One-of-a-Kind Music, Movie and Pop Culture Legend](https://geektyrant.com/news/dolly-parton-dies-at-80-remembering-a-one-of-a-kind-music-movie-and-pop-culture-legend) - GeekTyrant
+- [Country Music Legend Dolly Parton Has Passed Away](https://www.disneyfoodblog.com/2026/08/25/country-music-legend-dolly-parton-has-passed-away/) - disneyfoodblog.com
+- [Honoring Dolly Parton's Incredible Legacy After the Country Icon Passes Away at 80](https://www.brit.co/dolly-parton-dead-august-2026/) - Brit + Co
+- [Dolly Parton, country music legend and gay icon, dies at 80](https://www.out.com/celebs/dolly-parton-dies) - Out.com
+- [Rockers Share Moving Tributes Celebrating Dolly Parton](https://loudwire.com/rockers-tributes-dolly-parton/) - Loudwire
+- [Remembering Dolly Parton, whose artistry and generosity touched generations](https://www.pbs.org/newshour/show/remembering-dolly-parton-whose-artistry-and-generosity-touched-generations) - PBS
+- [Dolly Parton’s Life in Photos: From the Grand Ole Opry to the Oscars \| Gallery](https://www.thewrap.com/culture-lifestyle/culture/dolly-parton-life-in-photos-gallery/) - TheWrap
+- [Dolly Parton’s funeral plans revealed after her death at age 80](https://pagesix.com/2026/08/25/celebrity-news/dolly-partons-funeral-plans-revealed-after-her-death-at-age-80/) - Page Six
+- [We’re Living in the World Dolly Parton Built](https://www.theatlantic.com/culture/2026/08/dolly-parton-remembrance/688410/) - The Atlantic
+- [Dolly Parton and Carl Dean's best quotes about their decadeslong love story](https://abcnews.com/GMA/Culture/dolly-parton-carl-dean-best-quotes-love-story/story?id=119425643) - Abcnews.com
+- [‘Happy’ Dolly Parton was ‘not in pain at all’ in one of her final public appearances 2 months before death](https://pagesix.com/2026/08/25/celebrity-news/happy-dolly-parton-was-not-in-pain-in-one-of-her-final-public-appearances-before-death/) - Page Six
+- [Dolly Parton's heartbreaking final wish to family is revealed in video announcing her death at 80](https://www.dailymail.com/tvshowbiz/article-16079455/dolly-porton-death-final-wish-family-announcement-video.html) - Dailymail.com
+- [Martin Jönsson: Dolly Parton lät sig aldrig ägas](https://www.dn.se/kultur/martin-jonsson-dolly-parton-lat-sig-aldrig-agas/) - Www.dn.se
+- [Dolly Parton—Voice of Reason, Compassion, and Women's Empowerment—Dies at 80](https://www.jezebel.com/dolly-parton-voice-of-reason-compassion-and-womens-empowerment-dies-at-80) - Jezebel
+- [TOM LEONARD: Dolly Parton modelled her look on the 'town tramp' and never denied repeated affair rumours - but her brilliant business brain meant she could have been a billionaire if she hadn't given so much to charity](https://www.dailymail.com/tvshowbiz/article-16079385/Dolly-Parton-town-tramp-affair-business-brain-billionaire-charity.html) - Dailymail.com
+- [Tributes to Dolly Parton pour in from fellow stars to ordinary people](https://www.nbcnews.com/news/us-news/tributes-dolly-parton-pour-fellow-stars-ordinary-people-rcna594366) - NBC News
+- [Remembering Dolly Parton With The Late Country Icon's Best Sports Moments](https://www.foxsports.com/stories/other/remembering-dolly-parton-late-singers-best-sports-moments) - Fox Sports
+- [Taylor Swift Admits She Felt 'Washed Up' and 'Aging Out' of Music Biz at 22](https://www.usmagazine.com/celebrity-news/news/taylor-swift-admits-she-felt-washed-up-at-age-22/) - Us Weekly
+- [Taylor Swift’s Grammy Museum dress sure looks like an Easter egg](https://pagesix.com/2026/08/24/style/taylor-swift-grammy-museum-interview-dress-sure-looks-like-an-easter-egg/) - Page Six
+- [Taylor Swift Admits It's 'Really Fun To Mock' Those Who Take Shots At Her](https://www.cinemablend.com/streaming-news/taylor-swift-really-fun-mock-those-take-shots-her) - CinemaBlend
+- [Taylor Swift Admits She Felt ‘Washed Up’ at 22, Thought She Was ‘Aging Out of the Music Industry’](https://www.yahoo.com/entertainment/music/articles/taylor-swift-admits-she-felt-070216039.html) - Yahoo
+- [Taylor Swift gets honest about 'aging out of music industry'](https://www.thenews.com.pk/latest/1413571-taylor-swift-gets-honest-about-aging-out-of-music-industry) - Thenews
+- [Flashback: Dolly Parton Duets With Rob Halford, Simon Le Bon at Rock Hall Induction](http://www.rollingstone.com/music/music-news/dolly-parton-rob-halford-rock-hall-induction-1235615110/) - Rolling Stone
+- [Dolly Parton’s One-of-a-Kind Career Highlights, From ‘Jolene’ to 9 to 5](https://people.com/a-look-back-dolly-parton-one-of-a-kind-career-12066021) - People
+- [Flashback: Dolly Parton Duets With Rob Halford, Simon Le Bon at Rock Hall Induction](https://www.rollingstone.com/music/music-news/dolly-parton-rob-halford-rock-hall-induction-1235615110) - Rollingstone
+- [Songs created by AI banned from Australia's music charts](https://www.bbc.co.uk/news/articles/c20vl4vm2pno) - BBC News
+- [Australia’s charts now require a human to sing the lead vocal](https://thenextweb.com/news/aria-australia-charts-ban-ai-generated-music-madonna-cover) - The Next Web
+- [Australia bans fully AI-made songs from charts after Madonna cover goes viral](https://www.cbc.ca/news/entertainment/australia-music-chart-ban-ai-9.7319875) - CBC News
+- [Australia bans AI-made music from its charts unless humans wrote, performed, and created most of it](https://www.techspot.com/news/113609-wholly-ai-generated-music-excluded-australian-charts.html) - TechSpot
+- [Keep It Real: AI-Generated Songs Banned from Australian Music Charts](https://www.breitbart.com/entertainment/2026/08/25/ai-generated-songs-banned-from-australian-music-charts/) - Breitbart News
+- [Beyoncé Pays Tribute To Dolly Parton Following Her Death: ‘You Were The Barometer’](https://bossip.com/4621924/beyonce-dolly-parton-death-tribute/) - Bossip
+- [Beyonce Breaks Silence on Country Music Icon Dolly Parton's Death](https://www.usmagazine.com/celebrity-news/news/beyonce-breaks-silence-on-dolly-partons-death-at-80/) - Us Weekly
+- [Beyoncé pays tribute to Dolly Parton (via beyonce.com). ...](https://www.instagram.com/p/DceyPJADJzy) - Instagram
+- [Beyoncé shares heartfelt tribute to late Dolly Parton](http://www.azcentral.com/story/entertainment/music/2026/08/25/beyonce-dolly-parton-country-music/91441854007) - Azcentral
+- [Beyoncé remembers Dolly Parton as 'one of one' following Parton's death](https://cw39.com/news/local/beyonce-tribute-dolly-parton) - Cw39
+- [Beyoncé Pays Tribute To Dolly Parton Following Her Death](https://bossip.com/4621924/beyonce-dolly-parton-death-tribute) - Bossip
+- [Beyoncé Mourns Dolly Parton’s Death, Calls Icon an ‘Angel’ 2 Years After “Cowboy Carter” Collab: ‘I Will Treasure That Forever’](https://www.yahoo.com/entertainment/music/articles/beyonc-mourns-dolly-parton-death-010905953.html) - Yahoo
+- [Tech Optimism Has a Hold Over Hip-Hop’s Mogul Generation](http://www.rollingstone.com/music/music-features/dr-dre-raekwon-ai-palantir-hip-hop-1235614549/) - Rolling Stone
+- [Dr. Dre, Raekwon and Hip-Hop’s Growing Embrace of AI](https://www.rollingstone.com/music/music-features/dr-dre-raekwon-ai-palantir-hip-hop-1235614549) - Rollingstone
+- [Dr. Dre Admits He Uses AI to Produce Music \| Daily Music Roll](https://www.dailymusicroll.com/latest-news/dr-dre-admits-he-uses-ai-to-produce-music.html) - Dailymusicroll
+- [Dr. Dre: If AI Scares You, Maybe You “Have Trouble Creating” \| Thought Catalog](https://thoughtcatalog.com/xstockton/2026/08/dr-dre-if-ai-scares-you-maybe-you-have-trouble-creating) - Thoughtcatalog
+- [Jack White Covers “Jolene” Live in Tribute to Dolly Parton: Watch](https://consequence.net/2026/08/jack-white-dolly-parton-jolene-cover/) - Consequence.net
+- [Jack White paid tribute to Dolly Parton by performing “Jolene ...](https://www.tiktok.com/@bigmouthrocknews/video/7678176024479288609) - Tiktok
+- [Jack White plays 'Joelene' at London show in tribute to Dolly Parton](https://www.northjersey.com/story/entertainment/music/2026/08/25/jack-white-joelene-tribute-dolly-parton-song-london/91467496007) - Northjersey
+- [Jack White Covers “Jolene” Live in Tribute to Dolly Parton: Watch](https://consequence.net/2026/08/jack-white-dolly-parton-jolene-cover) - Consequence
+- [Jack White plays 'Joelene' at London show in tribute to ...](https://www.yahoo.com/entertainment/music/articles/jack-white-plays-joelene-london-014419516.html) - Yahoo
+- [Watch Jack White Cover ‘Jolene’ in London Hours After Dolly Parton’s Death: ‘Instant Sainthood’](https://www.billboard.com/music/rock/jack-white-jolene-dolly-parton-death-london-cover-video-1236324671) - Billboard
+- [Watch Jack White Perform 'Jolene' to Honor Dolly Parton](https://wpdh.com/ixp/295/p/jack-white-jolene-dolly-parton) - Wpdh
+- [What Is Taylor Swift Cooking Up Now?](http://www.thecut.com/article/is-taylor-swift-teasing-new-country-album.html) - The Cut
+- [Taylor Swift talks Nashville roots, future goals at Grammy event](https://www.knoxnews.com/story/entertainment/music/taylor-swift/2026/08/25/taylor-swift-country-roots-grammy-museum/91455776007) - Knoxnews
+- [Taylor Swift said that she wants to honor her country roots more ...](https://www.instagram.com/reel/Dcem0X3gbx5) - Instagram
+- [Taylor Swift said that she wants to honor her country roots more ...](https://www.facebook.com/EntertainmentTonight/videos/is-taylor-swift-teasing-her-next-era/1791301788720799) - Facebook
+- [Is Taylor Swift Teasing a Country Album?](https://www.thecut.com/article/is-taylor-swift-teasing-new-country-album.html) - Thecut
+- [Taylor Swift talks 'country roots', plans for 'more' at Grammy Museum - AOL](https://www.aol.com/articles/taylor-swift-talks-country-roots-164811000.html) - Aol
+- [5 essential Dolly Parton songs](https://www.businessinsider.com/dolly-parton-songs-to-know-2026-8#article) - Business Insider
+- [Dolly Parton claimed gay people as family when country music wanted us invisible](https://www.advocate.com/opinion/dolly-parton-lgbtq-ally) - Advocate.com
+- [Dolly Parton: Hear 15 Essential Songs - The New York Times](https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-songs.html) - Nytimes
+- [freddie mercury’s iconic costumes to enter the V&A galleries in london](https://www.designboom.com/design/freddie-mercury-iconic-costumes-vam-victoria-albert-museum-galleries-london/) - Designboom
+- [The V&A celebrates Freddie Mercury with a free exhibition \| Wallpaper*](https://www.wallpaper.com/art/exhibitions-shows/freddie-mercury-exhibitionv-and-a-london-uk) - Wallpaper
+- [Queen frontman Freddie Mercury’s iconic costumes to be displayed at London exhibition \| The Independent](https://www.the-independent.com/arts-entertainment/music/queen-freddie-mercury-mary-austin-costume-b3038632.html) - The-independent
+- [Somebody to Love at the V&A as Freddie Mercury's costumes going on view](https://www.theartnewspaper.com/2026/08/25/somebody-to-love-at-the-va-as-freddie-mercurys-costumes-to-go-on-view) - Theartnewspaper
+- [V&A to display freddie mercury costumes in new london trail](https://www.designboom.com/design/freddie-mercury-iconic-costumes-vam-victoria-albert-museum-galleries-london) - Designboom
+- [Freddie Mercury costumes to go on display at London’s V&A \| UA.NEWS](https://ua.news/en/culture/kostiumi-freddi-merkiuri-pokazhut-u-muzeyi-v-a-v-londoni) - Ua
+- [The V&A Museum in London will showcase famous costumes worn by Freddie Mercury, including the outfit from the cover of the Queen album, between October 24, 2026, and January 17, 2027.](https://informat.ro/en/international/exhibition-dedicated-to-freddie-mercury-at-the-va-museum-in-london-136295) - Informat
+- [Corrosion of Conformity and The Sword Announce Fall 2026 US Tour](https://consequence.net/2026/08/corrosion-of-conformity-the-sword-2026-us-tour/) - Consequence.net
+- [Corrosion of Conformity and The Sword Announce Fall 2026 US Tour](https://consequence.net/2026/08/corrosion-of-conformity-the-sword-2026-us-tour) - Consequence
+- [CORROSION OF CONFORMITY And THE SWORD Announce November 2026 U.S. Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/corrosion-of-conformity-and-the-sword-announce-november-2026-u-s-tour) - Blabbermouth
+- [CORROSION OF CONFORMITY and THE SWORD announce co-headlining U.S. tour](https://lambgoat.com/news/54480/corrosion-of-conformity-and-the-sword-announce-co-headlining-us-tour) - Lambgoat
+- [Corrosion Of Conformity & The Sword Announce Fall 2026 North American Tour Dates - mxdwn Music](https://music.mxdwn.com/2026/08/25/news/corrosion-of-conformity-the-sword-announce-fall-2026-north-american-tour-dates) - Mxdwn
+- [CORROSION OF CONFORMITY And THE SWORD Announce US Co-Headlining Tour; Tickets On Sale This Friday](https://bravewords.com/news/corrosion-of-conformity-and-the-sword-announce-us-co-headlining-tour-tickets-on-sale-this-friday) - Bravewords
+- ["Well well welll… to all the... - Corrosion Of Conformity](https://www.facebook.com/corrosionofconformity/posts/well-well-welll-to-all-the-free-thinkers-and-beer-drinkers-the-corrosion-train-w/1616976773330249) - Facebook
+- [Corrosion Of Conformity & The Sword announce November 2026 US co-Headlining Tour](https://grande-rock.com/news/corrosion-of-conformity-and-the-sword-announce-november-2026-us-co-headlining-tour) - Grande-rock
+- [Lenny Kaye: “Once Things Get Figured Out, Then It’s Time to Change Them”](https://www.spinmagazine.com/2026/08/lenny-kaye-once-things-get-figured-out-then-its-time-to-change-them/) - Spinmagazine.com
+- [Lenny Kaye (Patti Smith Band)](https://www.songwritersonpodcast.com/lenny-kaye-patti-smith-band) - Songwritersonpodcast
+- [Lenny Kaye Reflects on a Lifetime in Music — and His First Solo Album, Goin' Local \| Arts \| thejewishnews.com](https://www.thejewishnews.com/culture/arts/lenny-kaye-reflects-on-a-lifetime-in-music-and-his-first-solo-album-goin-local/article_572c4718-5964-445c-9b08-a518e7e51434.html) - Thejewishnews
+- [Lenny Kaye (@lenny_kaye) is my guest on this episode ...](https://www.instagram.com/p/DbqTeKuAesL) - Instagram
+- [Bachman-Turner Overdrive Announce Winter 2027 US Tour](https://consequence.net/2026/08/bachman-turner-overdrive-2027-winter-tour/) - Consequence.net
+- [Bachman-Turner Overdrive Embarking On 'No Speed Limit Tour' In 2027 - Pollstar News](https://news.pollstar.com/2026/08/25/bachman-turner-overdrive-embarking-on-no-speed-limit-tour-in-2027) - Pollstar
+- [Bachman-Turner Overdrive Announce 2027 Tour Dates](https://therockrevival.com/rock-news/bachman-turner-overdrive-announce-2027-tour-dates) - Therockrevival
+- [Bachman-Turner Overdrive Announce Winter 2027 US Tour](https://consequence.net/2026/08/bachman-turner-overdrive-2027-winter-tour) - Consequence
+- [Bachman-Turner Overdrive Announce Winter 2027 US Tour](https://www.imdb.com/news/ni65987310?ref_=nmnw_art_perm) - Imdb
+- [Bachman-Turner Overdrive Announces 2027 ‘No Speed Limit’ Tour](https://rockcellarmagazine.com/bachman-turner-overdrive-tour-dates-2027-no-speed-limit) - Rockcellarmagazine
+- [Rio Da Yung OG announces new album with “Finna Drop (Tour)”](https://www.thefader.com/2026/08/25/rio-da-yung-og-new-album-announce-finna-drop) - The FADER
+- [Rio Da Yung OG Announces New Album 'The World Is Yours'](https://www.yardbarker.com/entertainment/articles/rio_da_yung_og_announces_new_album_the_world_is_yours/s1_17431_44202749) - Yardbarker
+- [Rio Da Yung OG Announces New Album ‘The World Is Yours’](https://www.musictimes.com/articles/112631/20260821/rio-da-yung-og-announces-new-album-world-yours.htm) - Musictimes
