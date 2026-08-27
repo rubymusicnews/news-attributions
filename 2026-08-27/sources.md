@@ -1,0 +1,70 @@
+# Sources for 2026-08-27 News Episode 
+- [Strategy Spotlight: Country Profile South Korea](https://musically.com/2026/08/26/strategy-spotlight-country-profile-south-korea/) - Music Ally
+- [South Korea remains a top-10 global music market ...](https://www.facebook.com/musicallyfb/posts/south-korea-remains-a-top-10-global-music-market-and-a-powerhouse-for-superfan-m/1474366101403126) - Facebook
+- [Olivia Rodrigo’s Chart Comeback Involves Several Of Her Biggest Singles](https://www.forbes.com/sites/hughmcintyre/2026/08/26/olivia-rodrigos-chart-comeback-involves-several-of-her-biggest-singles/) - Forbes
+- [Olivia Rodrigo’s Chart Comeback Involves Several Of Her Biggest Singles](https://www.yahoo.com/entertainment/music/articles/olivia-rodrigo-chart-comeback-involves-163000845.html) - Yahoo
+- [Olivia Rodrigo 's "The Cure" re-enters the top 10 in the UK ...](https://www.facebook.com/ItsPopData/posts/olivia-rodrigo-s-the-cure-re-enters-the-top-10-in-the-uk-this-week-at-8-with-191/1538961424915292) - Facebook
+- [Olivia Rodrigo’s Chart Comeback Involves Several Of Her Biggest Singles](https://www.forbes.com/sites/hughmcintyre/2026/08/26/olivia-rodrigos-chart-comeback-involves-several-of-her-biggest-singles) - Forbes
+- [Ayra Starr’s ‘Starrgirl’ debuts at No. 4 on Billboard World Albums](https://punchng.com/?p=2224531) - The Punch
+- [Ayra Starr's 'Starrgirl' Debuts at No. 4 on Billboard World](https://punchng.com/ayra-starrs-starrgirl-debuts-at-no-4-on-billboard-world-albums) - Punchng
+- [Ayra Starr debuts at No. 4 on Billboard World Albums chart ...](https://thenationonlineng.net/ayra-starr-debuts-at-no-4-on-billboard-world-albums-chart-with-starrgirl) - Thenationonlineng
+- [Nigerian singer Ayra Starr has achieved a major ...](https://www.facebook.com/dailytimesnigeria/posts/nigerian-singer-ayra-starr-has-achieved-a-major-international-chart-milestone-as/1492683462885047) - Facebook
+- [Ayra Starr's 'Starrgirl' lands No. 4 spot on Billboard World ...](https://thesun.ng/ayra-starrs-starrgirl-lands-no-4-spot-on-billboard-world-albums) - Thesun
+- [Nigerian singer Ayra Starr has achieved a major ...](https://www.instagram.com/p/DcgkWI0MItj) - Instagram
+- [Official Trailer for 'JAŸ-Z in 8' Doc Series - In Convo with Rick Rubin](https://www.firstshowing.net/2026/official-trailer-for-jay-z-in-8-doc-series-in-convo-with-rick-rubin/) - First Showing
+- ["Jay-Z in 8," An HBO Original Documentary Series, Debuts September 18](http://www.thefutoncritic.com/news/2026/08/26/jay-z-in-8-an-hbo-original-documentary-series-debuts-september-18-524411/20260826hbo01/) - Thefutoncritic.com
+- [Life. Lyrics. Music. #JAŸZin8, an 8-part documentary series ...](https://www.facebook.com/RocNation/posts/life-lyrics-musicja%C3%BFzin8-an-8-part-documentary-series-featuring-ja%C3%BF-z-in-convers/1659976565693068) - Facebook
+- [Life. Lyrics. Music. #JAŸZin8, an 8-part Documentary ...](https://www.instagram.com/p/Dcgmj8FRNi-) - Instagram
+- [JAŸ-Z & Rick Rubin HBO Max Docuseries Release Date & ...](https://www.billboard.com/culture/tv-film/jay-z-rick-rubin-hbo-max-docuseries-release-date-trailer-1236324532) - Billboard
+- [Jay-Z’s New HBO TV Show Gets Trailer, Release Date, & Tons of New Details](https://www.yahoo.com/entertainment/tv/articles/jay-z-hbo-tv-show-191505164.html) - Yahoo
+- [HBO Rick Rubin 'JAŸ-Z IN 8' Official Trailer New ...](https://hypebeast.com/2026/8/hbo-max-rickrubin-jay-z-in-8-new-documentary-series-official-trailer) - Hypebeast
+- [Official Trailer for 'JAŸ-Z in 8' Doc Series](https://www.firstshowing.net/2026/official-trailer-for-jay-z-in-8-doc-series-in-convo-with-rick-rubin) - Firstshowing
+- [One of Pop’s Hottest Stars Has Been Years in the Making. I Think I Know the Secret to Her Success.](https://slate.com/culture/2026/08/zara-larsson-midnight-sun-lush-life-concert-meme-pukkelpop.html) - Slate Magazine
+- [Zara Larsson Rising Sung Rebranding](https://www.tiktok.com/discover/zara-larsson-rising-sung-rebranding) - Tiktok
+- [Depop’s Steve Dool breaks down its Zara Larsson collab - Retail Gazette](https://www.retailgazette.co.uk/blog/2026/08/depop-steve-dool/) - Retailgazette
+- [A Behind-the-Scenes Look at Zara Larsson’s Lollapalooza Stop During Her ‘Midnight Sun’ Tour - Vogue](https://www.vogue.com/article/soundcheck-zara-larsson) - Vogue
+- [Zara Larsson said she agrees her ticket prices are 'very expensive' and she'll help price her next tour - Business Insider](https://www.businessinsider.com/zara-larsson-agrees-concert-ticket-prices-very-expensive-2026-8) - Businessinsider
+- [“A blur of Rhinestones sparkling in the spotlights”: Ghost offer a rare, stylish glimpse behind the curtain with concert film/documentary 2 Big To Rig](https://www.loudersound.com/reviews/ghost-2-big-to-rig-film-review) - Louder
+- [University 16 Cinemas \| Ghost: 2 Big to Rig](https://www.gtcmovies.com/university/movie/ghost-2-big-to-rig) - Gtcmovies
+- [GHOST announces ‘2 Big To Rig (Original Motion Picture Soundtrack)’ – Arrow Lords of Metal](https://arrowlordsofmetal.nl/ghost-announces-2-big-to-rig-original-motion-picture-soundtrack) - Arrowlordsofmetal
+- [Ghost's 2 Big to Rig Concert Film is a Grandiose Spectacle](https://www.allthingsloud.com/ghosts-2-big-to-rig-concert-film-is-a-grandiose-spectacle) - Allthingsloud
+- [Ghost's 2 Big to Rig Soundtrack Collects 19 Live Tracks From Mexico City](https://www.rockumweb.com/reportes/2369/ghosts-2-big-to-rig-soundtrack-collects-19-live-tracks-from-mexico-city) - Rockumweb
+- [Deftones Return To The Charts With Multiple Bestsellers At Once](https://www.forbes.com/sites/hughmcintyre/2026/08/26/deftones-return-to-the-charts-with-multiple-bestsellers-at-once/) - Forbes
+- [Deftones Return To The Charts With Multiple Bestsellers At ...](https://www.forbes.com/sites/hughmcintyre/2026/08/26/deftones-return-to-the-charts-with-multiple-bestsellers-at-once) - Forbes
+- [Deftones Return To The Charts With Multiple Bestsellers At ...](https://ca.news.yahoo.com/deftones-return-charts-multiple-bestsellers-154500756.html) - Yahoo
+- [Eminem reveals Dolly Parton’s impactful letter she sent him detailing their ‘unexplained connection’](https://pagesix.com/2026/08/26/entertainment/eminem-reveals-dolly-partons-impactful-letter-she-sent-him-detailing-their-unexplained-connection/) - Page Six
+- [Dolly Parton’s letter to Eminem shows how to make a connection that lasts](https://www.businessinsider.com/dolly-parton-letter-to-eminem-networking-lesson-2026-8#article) - Business Insider
+- [Eminem opens up about letter Dolly Parton wrote to him after Rock Hall induction](https://www.yahoo.com/entertainment/music/articles/eminem-opens-letter-dolly-parton-234138781.html) - Yahoo
+- [Eminem Shares Letter From Dolly Parton Following Her Death \| HuffPost Entertainment](https://www.huffpost.com/entry/eminem-dolly-parton-letter-rock-hall-of-fame_n_6a8ecb8ce4b0229baac3d1dd) - Huffpost
+- [Eminem shares letter from Dolly Parton after induction into Rock & Roll Hall of Fame – WGAU](https://www.wgauradio.com/news/trending/eminem-shares-letter-dolly-parton-after-induction-into-rock-roll-hall-fame/RQLCT626DVHZTLFV4PZGW4O66M) - Wgauradio
+- [Dolly Parton tributes: Beyoncé, Eminem, Obama, and more](https://www.revolt.tv/article/beyonce-eminem-obama-dolly-parton-tributes) - Revolt
+- [Eminem and Dolly Parton never met, but the two shared an ...](https://www.facebook.com/koco5/posts/eminem-and-dolly-parton-never-met-but-the-two-shared-an-unexplained-connection-t/1507786238045450) - Facebook
+- [Becky G Recalls Industry “Eye Rolls” for Exploring Her Mexican Roots on Back-to-Back Albums](https://consequence.net/2026/08/becky-g-industry-eye-rolls-mexican-roots/) - Consequence.net
+- [Becky G Recalls Industry “Eye Rolls” Over Her Música Mexicana Albums](https://consequence.net/2026/08/becky-g-industry-eye-rolls-mexican-roots) - Consequence
+- [Becky G Recalls Industry “Eye Rolls” for Exploring Her Mexican Roots on Back to Back Albums ...Middle East](https://eng.pressbee.net/show4848918.html?title=) - Pressbee
+- [Harry Styles at MSG: How to Get Last-Minute Tickets to His “Together, Together” NYC Residency](https://consequence.net/2026/08/harry-styles-msg-nyc-residency-last-minute-tickets/) - Consequence.net
+- [Harry Styles at Madison Square Garden 2026 - Time Out](https://www.timeout.com/newyork/news/harry-styles-at-madison-square-garden-2026-stage-times-last-minute-tickets-and-ultimate-guide-082626) - Timeout
+- [How to Buy Harry Styles MSG Together, Together Tickets Online: Best Sites](https://www.rollingstone.com/product-recommendations/tickets/how-to-buy-harry-styles-tour-tickets-together-together-deals-discounts-1235503517) - Rollingstone
+- [Cheapest tickets for Harry Styles' sold-out MSG residency start as low as $230 - syracuse.com](https://www.syracuse.com/live-entertainment/2026/08/you-can-still-get-into-harry-styles-sold-out-msg-residency-for-under-250.html) - Syracuse
+- [Harry Styles at Madison Square Garden 2026: stage times, last-minute tickets and ultimate guide](https://www.yahoo.com/entertainment/music/articles/harry-styles-madison-square-garden-123011386.html) - Yahoo
+- [Harry Styles 2026 'Together, Together' tour comes to MSG](https://www.yahoo.com/entertainment/music/article/harry-styles-2026-together-together-tour-comes-to-msg-where-to-find-tickets-prices-and-more-181909539.html) - Yahoo
+- [Magnolia Sets 4K Theatrical Reissue Of Documentary ‘End Of The Century: The Story Of The Ramones’](http://deadline.com/2026/08/end-of-the-century-the-story-of-the-ramones-re-release-1237051742/) - Deadline
+- [Magnolia Sets 4K Theatrical Reissue Of Documentary ‘End Of The Century: The Story Of The Ramones’ - Yahoo Lifestyle Australia](https://au.lifestyle.yahoo.com/magnolia-sets-4k-theatrical-reissue-193823478.html) - Yahoo
+- [August 2026 – Page 2](https://deadline.com/2026/08/page/2) - Deadline
+- ['End Of The Century: The Story Of The Ramones' Set for Cinema Re-Release](https://deadline.com/2026/08/end-of-the-century-the-story-of-the-ramones-re-release-1237051742) - Deadline
+- ['People are people': How Dolly Parton became an unlikely 2SLGBTQ+ icon, ally and advocate](https://www.cbc.ca/news/world/dolly-parton-gay-rights-9.7320874) - CBC News
+- [HRC \| Human Rights Campaign Honors the Love, Advocacy and Legacy of…](https://www.hrc.org/press-releases/human-rights-campaign-honors-the-love-advocacy-and-legacy-of-legendary-singer-and-creator-dolly-parton) - Hrc
+- [Dolly Parton is an LGBT+ community hero who accepted ...](https://www.facebook.com/AmandaFMedia/posts/dolly-parton-is-an-lgbt-community-hero-who-accepted-and-loved-everybody-she-empa/1457427536208799) - Facebook
+- [Dolly Parton was special to LGBTQ+ people. She showed ...](https://www.latimes.com/entertainment-arts/story/2026-08-25/dolly-parton-was-special-to-lgbtq-people-she-showed-were-loved) - Latimes
+- [Gaydio - Dolly Parton has died at the age of 80. A true...](https://www.facebook.com/gaydio/posts/dolly-parton-has-died-at-the-age-of-80a-true-icon-beloved-by-the-lgbtq-community/1550782740425591) - Facebook
+- [11 Times Dolly Parton Said Exactly What The LGBTQ+ Community Needed To Hear](https://www.yahoo.com/entertainment/celebrity/articles/11-times-dolly-parton-said-191354184.html) - Yahoo
+- [What artist teams need to know about X’s feed algorithm updates](https://musically.com/2026/08/26/what-artist-teams-need-to-know-about-xs-feed-algorithm-updates/) - Music Ally
+- [What artist teams need to know about X's feed algorithm updates - Music Ally](https://musically.com/2026/08/26/what-artist-teams-need-to-know-about-xs-feed-algorithm-updates) - Musically
+- [X Open-Sources For You Feed Algorithm Code / X](https://x.com/i/trending/2087960858571792703) - X
+- [Teen Guitar Phenom Gets 'America's Got Talent' Golden Buzzer](https://loudwire.com/nene-royal-americas-got-talent-golden-buzzer-soundgarden-cover/) - Loudwire
+- [Teen Guitar Phenom Gets 'America's Got Talent' Golden Buzzer](https://loudwire.com/nene-royal-americas-got-talent-golden-buzzer-soundgarden-cover) - Loudwire
+- [16-year-old guitarist wins over America's Got Talent with ...](https://www.guitarworld.com/artists/guitarists/nene-royal-covers-soundgarden-on-americas-got-talent) - Guitarworld
+- [Nene Royal gets the golden buzzer on America's Got ...](https://www.facebook.com/Thepattayanews/posts/breaking-news-nene-royal-gets-the-golden-buzzer-on-americas-got-talent-after-an-/2005193763582528) - Facebook
+- [Nene Royal revives Soundgarden’s ‘Black Hole Sun’ on AGT](https://www.nationthailand.com/life/entertainment/40070286) - Nationthailand
+- [Nene Royal Rocks Into 'AGT' Final With Cover of 'Black ...](https://www.billboard.com/culture/tv-film/nene-royal-golden-buzzer-cover-soundgarden-black-hole-sun-1236324786) - Billboard
+- [330ToGO - Nene Royal just wrecked AGT with her LIVE...](https://www.facebook.com/330togo/posts/nene-royal-just-wrecked-agt-with-her-live-performance-mel-b-handing-out-the-gold/1524280656386573) - Facebook
