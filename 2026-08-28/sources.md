@@ -1,0 +1,74 @@
+# Sources for 2026-08-28 News Episode 
+- [ATEEZ, BTS, LE SSERAFIM Take Top Honors At 2026 K-World Dream Awards](https://www.forbes.com/sites/jeffbenjamin/2026/08/27/ateez-bts-le-sserafim-take-top-honors-at-2026-k-world-dream-awards/) - Forbes
+- [Winners Of 2026 K-World Dream Awards](http://www.soompi.com/article/1866285wpp/winners-of-2026-k-world-dream-awards) - soompi
+- [2026 K-World Dream Awards: ATEEZ, BTS, LE SSERAFIM ...](https://www.forbes.com/sites/jeffbenjamin/2026/08/27/ateez-bts-le-sserafim-take-top-honors-at-2026-k-world-dream-awards) - Forbes
+- [2026 K-World Dream Awards Winners List: ATEEZ, BTS, ILLIT, EVAN, and More Bag Major Awards (LIVE) - K-waves and Beyond](https://kwavesandbeyond.com/2026-k-world-dream-awards-winners-list) - Kwavesandbeyond
+- [Post](https://x.com/Jeff__Benjamin/status/2093076540858789981) - X
+- [Congratulations to @ateez_official_ for their four wins at the 2026 K-World Dream Awards, including the Best Artist Award and Best Stage Award, making them the most-awarded artist of the night ATEEZ's total wins at Soribada award ceremony comes to six now, which makes them one of the the most-awarded acts in show history Full winners list and more details via @forbes: https://www.forbes.com/sites/jeffbenjamin/2026/08/27/ateez-bts-le-sserafim-take-top-honors-at-2026-k-world-dream-awards/](https://www.threads.com/@jeff__benjamin/post/DcjqVSJEeRv/congratulations-to-ateez-official-for-their-four-wins-at-the-k-world-dream) - Threads
+- [ITZY’s Chaeryeong Confirmed To Make Solo Debut In November](http://www.soompi.com/article/1866247wpp/itzys-chaeryeong-confirmed-to-make-solo-debut-in-november) - soompi
+- [ITZY’s Chaeryeong Confirmed To Make Solo Debut In November \| Soompi](https://www.soompi.com/article/1866247wpp/itzys-chaeryeong-confirmed-to-make-solo-debut-in-november) - Soompi
+- [ITZY](https://www.facebook.com/TheTopKpop/photos/itzys-chaeryeong-is-officially-stepping-into-her-solo-career-according-to-jtbc-e/1104124275632950) - Facebook
+- [JYP Nation Picks](https://x.com/jype_basement/status/2092797138623443302) - X
+- [ITZY's Chaeryeong Confirmed To Make Solo Debut In ...](https://omonatheydidnt.livejournal.com/34798340.html) - Livejournal
+- [Grammy-winning singer Bruno Mars to perform in Singapore for 4 nights in April 2027](https://cnalifestyle.channelnewsasia.com/entertainment/bruno-mars-singapore-concert-2027-romantic-tour-587986) - CNA
+- [Grammy-winning singer Bruno Mars will return ...](https://www.facebook.com/sureboh.sg/posts/grammy-winning-singer-bruno-mars-will-return-to-singapore-in-april-2027-for-a-fo/1623997132423908) - Facebook
+- [Bruno Mars Is Bringing The Romantic Tour To Singapore ...](https://www.timeout.com/singapore/news/thats-what-i-like-bruno-mars-is-bringing-the-romantic-tour-to-singapore-for-four-nights-in-2027-082726) - Timeout
+- [Bruno Mars - The Romantic Tour, Singapore, 13 April - 18 April 2027, , Tickets – www.livenation.sg](https://www.livenation.sg/event/bruno-mars-the-romantic-tour-singapore-tickets-edp1692918) - Livenation
+- [Dolly Parton blazed a path that modern country stars can’t follow](https://www.salon.com/2026/08/27/dolly-parton-blazed-a-path-that-modern-country-stars-cant-follow/) - Salon
+- [Dolly Parton cut through politics and united a divided country](https://www.cnn.com/2026/08/25/politics/dolly-parton-politics-division) - Cnn
+- [What does Dolly Parton’s “Radical Neutrality” teach us about political polarization, and nonpartisan diplomacy in modern America? : r/Askpolitics](https://www.reddit.com/r/Askpolitics/comments/1vyeg2z/what_does_dolly_partons_radical_neutrality_teach) - Reddit
+- [Dolly Parton blazed a path that modern country stars can’t follow - Salon.com](https://www.salon.com/2026/08/27/dolly-parton-blazed-a-path-that-modern-country-stars-cant-follow) - Salon
+- [CNN - "At a time when no American celebrity seems immune...](https://www.facebook.com/cnn/posts/at-a-time-when-no-american-celebrity-seems-immune-from-the-countrys-many-divisio/1451924580133522) - Facebook
+- ["Not for the first time, they have snatched joy from the jaws of heartbreak." Mastodon triumph over tragedy with Marrow Deep](https://www.loudersound.com/mastodon-marrow-deep-album-review-metal-hammer) - Louder
+- [MASTODON Go Deeper Than Ever on Marrow Deep \| Album Review - Metal on Tap](https://metalontap.com/mastodon-marrow-deep-album-review) - Metalontap
+- [Mastodon - Marrow Deep (Album Review) - Wall Of Sound](https://www.wallofsoundau.com/reviews/mastodon-marrow-deep-album-review) - Wallofsoundau
+- [REVIEW: Mastodon honors Brent Hinds, surges forward with 'Marrow Deep'](https://riffmagazine.com/album-reviews/mastodon-marrow-deep) - Riffmagazine
+- [Album Review: Mastodon - Marrow Deep - The Razor's Edge](https://therazorsedge.rocks/2026-08-album-review-mastodon) - Therazorsedge
+- [Thai Superstar TEN Heads To The U.S. For Showcase Tour This Fall](https://www.forbes.com/sites/laurasirikul/2026/08/27/thai-superstar-ten-heads-to-the-us-for-showcase-tour-this-fall/) - Forbes
+- [TEN Announces First Solo U.S. Tour, Kicking Off in October](https://www.broadwayworld.com/bwwmusic/article/TEN-Announces-First-Solo-US-Tour-to-Kick-Off-in-October-in-Seattle-20260825) - Broadwayworld
+- [Thai Superstar TEN Heads To The U.S. For Showcase ...](https://www.forbes.com/sites/laurasirikul/2026/08/27/thai-superstar-ten-heads-to-the-us-for-showcase-tour-this-fall) - Forbes
+- [JUST ANNOUNCED: The TEN US Showcase Tour stops at ...](https://www.facebook.com/seattletheatregroup/posts/just-announced-the-ten-us-showcase-tour-stops-at-the-moore-theatre-on-saturday-o/1528531102409955) - Facebook
+- [Ten Marks 10th Anniversary With First U.S. Solo Showcase Tour, Set to Heat Up 14 Cities - MK](https://www.mk.co.kr/en/hot-issues/12136586) - Mk
+- [John Lydon On New PiL And Facing Off Against Sex Pistols At Riot Fest](https://www.forbes.com/sites/jimryan1/2026/08/27/john-lydon-on-new-pil-and-facing-off-against-sex-pistols-at-riot-fest/) - Forbes
+- [John Lydon On New Public Image Ltd, Return To Road And Riot Fest Debut](https://www.forbes.com/sites/jimryan1/2026/08/27/john-lydon-on-new-pil-and-facing-off-against-sex-pistols-at-riot-fest) - Forbes
+- [Public Image Ltd Announce First North American Tour in 8 Years - V13 Media](https://v13.net/2026/08/public-image-ltd-pil-announce-first-north-american-tour-in-8-years) - V13
+- [PUBLIC IMAGE LTD (PiL) First North American Tour In 8 ...](https://amplifymusicmag.com/public-image-ltd-pil-first-north-american-tour-in-8-years-begins-september-3rd) - Amplifymusicmag
+- [Public Image Unlimited: John Lydon On PiL's First US Tour In 8 Years - Pollstar News](https://news.pollstar.com/2026/08/25/public-image-unlimited-john-lydon-on-odds-sods-pils-first-u-s-tour-in-8-years) - Pollstar
+- [Alt.Latino: Cypress Hill en español](https://www.npr.org/2026/08/27/nx-s1-5946687/alt-latino-cypress-hill-en-espanol) - NPR
+- [Cypress Hill Drops Debut Spanish-Language Album 'Dios Bendiga'](https://www.yahoo.com/entertainment/music/articles/cypress-hill-drops-debut-spanish-164907593.html) - Yahoo
+- [B-Real on Cypress Hill’s First Original Spanish-Language Album: “We Wanted to Challenge Ourselves” \| Cypress Hill \| Official Website](https://cypresshill.com/2026/08/13/b-real-on-cypress-hills-first-original-spanish-language-album-we-wanted-to-challenge-ourselves) - Cypresshill
+- [NPR Music - Alt.Latino: Cypress Hill en español ...](https://podscripts.co/podcasts/npr-music/altlatino-cypress-hill-en-espanol) - Podscripts
+- [Pearl Jam Presses 2016 Philly ‘Ten’ Performance To Vinyl](https://www.spinmagazine.com/2026/08/pearl-jam-ten-live-album/) - Spinmagazine.com
+- [Pearl Jam Presses 2016 Philly ‘Ten’ Performance To Vinyl](https://www.yahoo.com/entertainment/music/articles/pearl-jam-presses-2016-philly-150200832.html) - Yahoo
+- [Pearl Jam - 35 years after Ten started it all, its...](https://www.facebook.com/PearlJam/posts/35-years-after-ten-started-it-all-its-complete-live-performance-is-coming-to-vin/1628964298592091) - Facebook
+- [Pearl Jam reveals 'Ten Live'](https://themusicuniverse.com/pearl-jam-reveals-ten-live) - Themusicuniverse
+- [pearljam - Ten Live 35 years after Ten started it all ...](https://www.instagram.com/p/DcjVlS9GuHP) - Instagram
+- [Post Malone scraps Australian tour leaving major festival without headline act - just days after American hip-hop star announced his engagement](https://www.dailymail.com/tvshowbiz/article-16084511/post-malone-australia-tour-cancelled-strummingbird-festival-tickets.html) - Dailymail.com
+- [Post Malone Postpones Australian and New Zealand Tour ...](https://www.facebook.com/bhavnishkakkar2026/posts/post-malone-postpones-australian-and-new-zealand-tour-and-drops-out-of-strumming/1495904902648835) - Facebook
+- [Post Malone Postpones Australian Tour, Drops Off Strummingbird Lineup](https://au.rollingstone.com/music/music-news/post-malone-postpones-australia-tour-100356) - Rollingstone
+- [Post Malone postpones Big Ass World Tour Australia dates](https://www.news.com.au/entertainment/music/tours/post-malone-postpones-entire-australian-tour-just-weeks-before-first-show/news-story/4da394acefb6ac63c98e58d147fd9949) - News
+- [Post Malone Cancels 2026 Strummingbird Festival Appearances](https://countrytown.com/news/post-malone-cancels-2026-strummingbird-festival-appearances/vTsD0dDT0tU/27-08-26) - Countrytown
+- [Post Malone Cancels Strummingbird 2026 Appearance As Australian Tour Postponed - Noise11 Music News](https://www.noise11.com/news/post-malone-cancels-strummingbird-2026-20260828) - Noise11
+- [Interpol – This Mirror Weighs a Ton (2026)](https://exystence.net/blog/2026/08/27/interpol-this-mirror-weighs-a-ton-2026/) - Exystence.net
+- [Interpol Return to New York to Record for the First Time in a Decade, and the City Sang Back](https://www.spinmagazine.com/2026/08/interpol-interview/) - Spinmagazine.com
+- [Interpol: This Mirror Weighs a Ton review - conjuring moodiness and that ache of broken love \| The Line of Best Fit](https://www.thelineofbestfit.com/albums/interpol-this-mirror-weighs-a-ton-return-to-reflective-thrilling-state) - Thelineofbestfit
+- [Interpol – ‘This Mirror Weighs A Ton’ review: their best album since ‘Antics’](https://www.nme.com/reviews/album/interpol-this-mirror-weighs-a-ton-album-review-lyrics-3964741) - Nme
+- [Interpol: This Mirror Weighs a Ton (Partisan) - review](https://www.undertheradarmag.com/reviews/this_mirror_weighs_a_ton_interpol) - Undertheradarmag
+- [Interpol Return to New York to Record for the First Time in a Decade, and the City Sang Back](https://www.yahoo.com/entertainment/music/articles/interpol-return-york-record-first-120000054.html) - Yahoo
+- [ALBUM REVIEW: Interpol - This Mirror Weighs a Ton](https://boolintunes.com/reviews/album-review-interpol-this-mirror-weighs-a-ton) - Boolintunes
+- [The Beatles Track Frank Sinatra Called One of the Best Love Songs Ever Written](https://www.mentalfloss.com/entertainment/music/frank-sinatra-favorite-beatles-love-song) - Mental Floss
+- [The Legendary Exchange Between Frank Sinatra and ...](https://www.facebook.com/groups/1250840562375397/posts/1866958424096938) - Facebook
+- [Best Beatles Love Songs: “Something” (1969) When Frank ...](https://www.facebook.com/AbbeyRoadTribute/posts/best-beatles-love-songs-something-1969when-frank-sinatra-calls-your-tune-the-gre/1437275381552394) - Facebook
+- [Book 11 of 2026. I have no idea how those Beatles movies ...](https://www.instagram.com/p/DcgRnUuDWqL) - Instagram
+- [The Beatles Abbey Road graphic with green tint](https://www.facebook.com/groups/124477007705550/posts/3583450261808190) - Facebook
+- [Colombia’s Rock al Parque Reveals 30th Anniversary Lineup Featuring Editors, Ministry, Mon Laferte](https://consequence.net/2026/08/rock-al-parque-2026-lineup-editors-ministry-mon-laferte/) - Consequence.net
+- [¡Rock al Parque 2026 ya tiene cartel! Estos son todos los artistas confirmados para celebrar sus 30 años](https://www.elcolombiano.com/cultura/musica/rock-al-parque-2026-ya-tiene-cartel-estos-son-todos-los-artistas-confirmados-para-celebrar-sus-30-anos-ID40345814) - Elcolombiano
+- [Rock al Parque 2026: Here Is the Complete Lineup ...](https://colombiaone.com/2026/08/27/rock-al-parque-2026-bogota) - Colombiaone
+- [Rock al Parque 2026 Lineup Revealed: Editors, Ministry, Mon Laferte](https://consequence.net/2026/08/rock-al-parque-2026-lineup-editors-ministry-mon-laferte) - Consequence
+- [Rock Al Parque Announces 2026 Lineup Featuring ...](https://music.mxdwn.com/2026/08/27/news/rock-al-parque-announces-2026-lineup-featuring-ministry-editors-between-the-buried-and-me-more) - Mxdwn
+- [Post](https://x.com/consequence/status/2092989510103531639) - X
+- [TikTok is livestreaming Alex Warren’s Sydney concert this week](https://musically.com/2026/08/27/tiktok-is-livestreaming-alex-warrens-sydney-concert-this-week/) - Music Ally
+- [TikTok is livestreaming Alex Warren’s Sydney concert this week - Music Ally](https://musically.com/2026/08/27/tiktok-is-livestreaming-alex-warrens-sydney-concert-this-week) - Musically
+- [Alex Warren Brings New Album to TikTok with Exclusive Live Event](https://www.digitalmusicnews.com/2026/08/26/alex-warren-tiktok-live-event-album-release) - Digitalmusicnews
+- [TikTok is giving Alex Warren's new album the full platform ...](https://www.threads.com/@mattnavarra/post/DcgNvDuCjLI/tik-tok-is-giving-alex-warrens-new-album-the-full-platform-treatment-hell) - Threads
+- [Alex Warren Brings WILDCHILD to TikTok with an Exclusive LIVE Event and New In-App Fan Experience - Newsroom \| TikTok](https://newsroom.tiktok.com/alex-warren-tiktok-live-wildchild-experience?lang=) - Tiktok
