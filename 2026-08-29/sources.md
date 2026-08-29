@@ -1,0 +1,58 @@
+# Sources for 2026-08-29 News Episode 
+- [Maluma Says Becoming a Father Changed How He Approaches His Career: “I’m Making Music Because I Love Creating Art”](https://consequence.net/2026/08/maluma-fatherhood-changed-approach-career/) - Consequence.net
+- [Maluma Says Fatherhood Changed How He Approaches His Career](https://consequence.net/2026/08/maluma-fatherhood-changed-approach-career) - Consequence
+- [Maluma Talks New Album, His Childhood and Hot Wheels Collab: Interview](https://www.billboard.com/culture/product-recommendations/maluma-hot-wheels-interview-pricing-aug-2026-buy-shop-online-1236327479) - Billboard
+- [Maluma: Fatherhood changed my focus on music](https://www.bgnes.com/entertainment/maluma-fatherhood-changed-my-focus-on-music) - Bgnes
+- [Prince's estate compiles unreleased recordings on Timeless](https://www.thelineofbestfit.com/news/princes-estate-compiles-unreleased-recordings-on-timeless) - Thelineofbestfit.com
+- [Prince - Timeless vault album arrives August 28, 2026](https://www.ad-hoc-news.de/unterhaltung/musik/prince-timeless-vault-album-arrives-august-28-2026/69998849) - Ad-hoc-news
+- [Prince - Timeless vault album set for August 28, 2026](https://www.ad-hoc-news.de/unterhaltung/musik/prince-timeless-vault-album-set-for-august-28-2026/69990969) - Ad-hoc-news
+- [Prince Estate Releases ‘Timeless,’ A New Collection of Rare and Unreleased Vault Recordings, Out Now](https://www.sonymusic.com/sonymusic-labels/prince-estate-releases-timeless-a-new-collection-of-rare-and-unreleased-vault-recordings-out-now) - Sonymusic
+- [Prince’s ‘Timeless’ Opens the Vault Across Five Decades](https://thesource.com/2026/08/28/prince-timeless) - Thesource
+- [Celine Dion makes her first public appearance in two years as she shares an emotional reunion with fans outside Paris hotel ahead of her stage comeback](https://www.dailymail.com/tvshowbiz/article-16087375/Celine-Dion-makes-public-appearance-two-years-shares-emotional-reunion-fans-outside-Paris-hotel-ahead-stage-comeback.html) - Dailymail.com
+- [Emotional Celine Dion makes first public appearance in 2 years ahead of stage return](https://www.hellomagazine.com/us/920551/emotional-celine-dion-first-public-appearance-2-years-ahead-of-paris-stage-return) - Hellomagazine
+- [Celine Dion Paris 2026 appearance – Celine Dion concert 2026 photos](https://www.usatoday.com/story/entertainment/music/2026/08/28/celine-dion-paris-2026-concert-appearance/91512097007) - Usatoday
+- [Céline Dion Steps Out for First Public Appearance of the Year in Paris](https://www.instyle.com/celine-dion-first-public-appearance-2026-greeting-fans-paris-12071218) - Instyle
+- [13 New Albums You Should Listen to Now: Turnstile, Erykah Badu and the Alchemist, and More](https://pitchfork.com/story/13-new-albums-you-should-listen-to-now-turnstile-interpol-erykah-badu-billy-strings/) - Pitchfork
+- [13 New Albums You Should Listen to Now: Turnstile ...](https://pitchfork.com/story/13-new-albums-you-should-listen-to-now-turnstile-interpol-erykah-badu-billy-strings) - Pitchfork
+- [Turnstile, Erykah Badu and the Alchemist, and More](https://blazinstreetz.com/51215_13-new-albums-you-should-listen-to-now-turnstile-erykah-badu-and-the-alchemist-and-more-news.html) - Blazinstreetz
+- [What are you listening to first tonight? New Releases: Interpol](https://www.facebook.com/albumoftheyear/posts/what-are-you-listening-to-first-tonightnew-releasesinterpol-this-mirror-weighs-a/1623557886447235) - Facebook
+- [Cardi B Says “Ah Ha” Targets Those Who Think She’s Worried About Them: “There’s a Lot of Jealousy Around Me”](https://consequence.net/2026/08/cardi-b-explains-ah-ha-single/) - Consequence.net
+- [Cardi B Shares Action-Packed Video for "AH HA"](https://www.complex.com/music/a/backwoodsaltar/cardi-b-ah-ha-video) - Complex
+- [Iron Maiden’s 2026 North American Tour: How to Get Last-Minute Tickets](https://consequence.net/2026/08/iron-maiden-2026-north-american-tour-how-to-get-last-minute-tickets/) - Consequence.net
+- [Iron Maiden kick off their North... - Heavy Consequence](https://www.facebook.com/heavyconsequence/posts/iron-maiden-kick-off-their-north-american-run-for-your-lives-tour-this-weekend-w/1675783354111770) - Facebook
+- [Iron Maiden's 2026 North American Tour: How to Get Last-Minute Tickets](https://consequence.net/2026/08/iron-maiden-2026-north-american-tour-how-to-get-last-minute-tickets) - Consequence
+- [Fontaines D.C. announce biggest headline tour to date for autumn, including London O2 Arena](https://www.thelineofbestfit.com/news/fontaines-dc-announce-biggest-headline-tour-to-date-for-autumn-including-o2-arena) - Thelineofbestfit.com
+- [Fontaines D.C.](https://www.ao-arena.com/events/detail/fontaines-dc) - Ao-arena
+- [Fontaines D.C. To Support Fifth Album 'Dopamine Chamber' With Autumn UK And European Arena Tour - Stereoboard](https://www.stereoboard.com/content/view/252693/9) - Stereoboard
+- [Fontaines DC announce huge arena tour – here’s how to get tickets](https://www.independent.co.uk/bulletin/culture/fontaines-dc-tour-tickets-presale-b3040989.html) - Independent
+- [Fontaines D.C. announce 2026 UK and European arena tour](https://www.nme.com/news/music/fontaines-dc-2026-uk-and-european-arena-tour-buy-tickets-3965190) - Nme
+- [Fears that KATSEYE's sold-out world tour could be canceled as girl group loses THREE members](https://www.dailymail.com/tvshowbiz/article-16088609/katseye-world-tour-hiatus-canceled.html) - Dailymail.com
+- [Fears that KATSEYE's sold-out world tour could be canceled as girl group loses THREE members](https://www.dailymail.com/tvshowbiz/article-16088609/amp/katseye-world-tour-hiatus-canceled.html) - Dailymail
+- [KATSEYE Cancels Daisy Chain Fields After Megan Skiendiel Sprains Ankle](https://people.com/megan-skiendiel-heartbroken-to-cancel-katseye-festival-appearance-after-spraining-ankle-during-rehearsal-12070798) - People
+- [KATSEYE Cancels Olivia Rodrigo’s Daisy Chain Festival Show, Megan Injured](https://www.eonline.com/news/1435481/katseye-cancels-olivia-rodrigos-daisy-chain-festival-show-megan-injured) - Eonline
+- [Is Zak Starkey Returning To The Who?](https://www.spinmagazine.com/2026/08/is-zak-starkey-returning-to-the-who/) - Spinmagazine.com
+- [Is Zak Starkey Returning To The Who?](https://www.yahoo.com/entertainment/music/articles/zak-starkey-returning-200000170.html) - Yahoo
+- [The Who Rehearsed For a Tour With Zak Starkey After Bitter Split](https://www.rollingstone.com/music/music-news/the-who-rehearsed-with-zak-starkey-1235617418) - Rollingstone
+- [The Who Seemingly Rehire Zak Starkey After Messy Split](https://stereogum.com/2509744/the-who-seemingly-rehire-zak-starkey-after-messy-split/news) - Stereogum
+- [Ariana Grande shares poignant pre-show tribute to Dolly Parton during her Eternal Sunshine concert in London just five days before taking break from showbusiness](https://www.dailymail.com/tvshowbiz/article-16086549/Ariana-Grande-poignant-tribute-Dolly-Parton-concert-London-break-showbusiness.html) - Dailymail.com
+- [Ariana Grande shares touching Dolly Parton tribute ahead of dramatic career pause](https://jang.com.pk/en/72013-ariana-grande-shares-touching-dolly-parton-tribute-ahead-of-dramatic-career-pause-news) - Jang
+- [Ariana Grande Honors Dolly Parton... - Music Promotion Club](https://www.facebook.com/MusicPromotionClub/posts/ariana-grande-honors-dolly-parton-with-heartfelt-pre-show-tribute-at-london-conc/1470584245103523) - Facebook
+- [Ariana Grande Sends ‘Love’ to the Late Dolly Parton With Pre-Show Tribute at London Concert](https://www.billboard.com/music/music-news/ariana-grande-dolly-parton-tribute-london-concert-1236326766) - Billboard
+- [Overwhelmed' Ariana Grande leaves fans saying the same thing as she returns to stage ahead of hiatus](https://www.hellomagazine.com/celebrities/918256/ariana-grande-thanks-fans-support-london-stage-return) - Hellomagazine
+- [Erykah Badu & The Alchemist – Before The World Blows // Psychedelischer Neo-Soul trifft auf rohe Boom-Bap-Beats](https://www.whudat.de/erykah-badu-the-alchemist-before-the-world-blows-psychedelischer-neo-soul-trifft-auf-rohe-boom-bap-beats/) - Whudat.de
+- [Erykah Badu and The Alchemist's 'Before the World Blows' - Complex](https://www.complex.com/music/a/dimassanfiorenzo/erykah-badu-alchemist-before-world-blows-tracklist) - Complex
+- [Erykah Badu and The Alchemist Release Joint Album ‘Before the World Blows’](https://ratedrnb.com/2026/08/erykah-badu-the-alchemist-before-the-world-blows) - Ratedrnb
+- [Album Review: Before the World Blows by Erykah Badu & The Alchemist](https://www.shatterthestandards.com/p/album-review-before-the-world-blows) - Shatterthestandards
+- [Reading and Leeds Festival unveils major overhaul, but will it draw in a new crowd?](https://www.bbc.co.uk/news/articles/ckgw5el7n9lo) - BBC News
+- [Reading and Leeds Festival unveils major overhaul, but will it draw in a new crowd?](https://www.bbc.com/news/articles/ckgw5el7n9lo) - Bbc
+- [Reading and Leeds Festival unveils major overhaul, but will it draw in a new crowd? - Yahoo News Canada](https://ca.news.yahoo.com/reading-leeds-festival-unveils-major-064216776.html) - Yahoo
+- [In This Moment Premiere New Single & Music Video "I Want To Believe" From Upcoming New Album "Witch" - Dayseeker's Rory Rodriguez Guests](http://www.metalunderground.com/news/details.cfm?newsid=161974) - Metalunderground.com
+- [In This Moment / YouTube](https://www.instagram.com/p/DclcQZzRg2s) - Instagram
+- [In This Moment Premiere New Single & Music Video](https://www.metalunderground.com/news/details.cfm?newsid=161974) - Metalunderground
+- [Rock Documented - In This Moment have released the...](https://www.facebook.com/rockdocumented/posts/in-this-moment-have-released-the-official-video-for-i-want-to-believe-their-coll/1356037426512244) - Facebook
+- [In This Moment Celebrate "Witch" Album Release By Sharing Music Video For "I Want To Believe" Feat Dayseeker - NEWS](https://www.liveinlimbo.com/2026/08/28/news/in-this-moment-celebrate-witch-album-release-by-sharing-music-video-for-i-want-to-believe-feat-dayseeker.html/amp) - Liveinlimbo
+- [Olivia Rodrigo Fest Raises $10M For Women, Girls](https://www.spinmagazine.com/2026/08/olivia-rodrigo-festival-fundraising/) - Spinmagazine.com
+- [Olivia Rodrigo’s Daisy Chain Fields highlights women-focused nonprofits – Orange County Register](https://www.ocregister.com/2026/08/25/olivia-rodrigos-daisy-chain-fields-puts-women-focused-nonprofits-at-the-forefront) - Ocregister
+- [Olivia Rodrigo is donating $10 million to 10 nonprofits ...](https://www.instagram.com/p/DcmdaOpARLw) - Instagram
+- [Daisy Chain Fields - Olivia Rodrigo Presents \| City of Irvine](https://cityofirvine.gov/news-media/calendar-of-events/event/daisy-chain-fields-olivia-rodrigo-presents) - Cityofirvine
+- [Olivia Rodrigo's Daisy Chain Fields is a $10 million roar for ...](https://www.latimes.com/entertainment-arts/story/2026-08-27/olivia-rodrigos-daisy-chain-fields-is-festival-scale-roar-for-abortion-rights-womens-health) - Latimes
