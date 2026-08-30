@@ -1,0 +1,66 @@
+# Sources for 2026-08-30 News Episode 
+- [Dolly Parton Songs' Streams Rocket After Her Death, up 2,109% in the U.S. and 1,280% Globally](https://www.breitbart.com/entertainment/2026/08/29/dolly-parton-songs-streams-rocket-after-her-death-up-2109-in-the-u-s-and-1280-globally/) - Breitbart News
+- [Searches for Dolly Parton T-Shirts Are Up 10,000 Percent in Wake of Singer’s Death](http://www.rollingstone.com/product-recommendations/style/best-dolly-parton-t-shirts-official-vintage-fan-merch-2026-1235616851/) - Rolling Stone
+- [Dolly Parton streams skyrocket after her death, making her the most streamed artist globally - ABC News](https://abcnews.com/Entertainment/wireStory/dolly-parton-streams-skyrocket-after-death-2109-us-136032638) - Abcnews
+- [Dolly Parton's Songs See 2,000 Percent Streaming Bump After Death](https://www.rollingstone.com/music/music-news/dolly-partons-music-2000-percent-audio-only-streams-1235616785) - Rollingstone
+- [Following the recent death of country music legend Dolly ...](https://www.facebook.com/kolotv/posts/following-the-recent-death-of-country-music-legend-dolly-parton-fans-are-honorin/1662978219197669) - Facebook
+- [Dolly Parton streams skyrocket after death: Her top 10 songs](https://usa.inquirer.net/207766/dolly-parton-streams-skyrocket-after-death-her-top-10-songs) - Inquirer
+- [Dolly Parton streams skyrocket after her death, up 2,109% in the US and 1,280% globally](https://www.bozemandailychronicle.com/wire/lifestyles/dolly-parton-streams-skyrocket-after-her-death-up-2-109-in-the-us-and-1/article_78c5b94e-14cc-5682-9aa8-a0ca0f56144d.html) - Bozemandailychronicle
+- [Nickelback Scores A Debut Hit On One Chart With A Decades-Old Song](https://www.forbes.com/sites/hughmcintyre/2026/08/29/nickelback-scores-a-debut-hit-on-one-chart-with-a-decades-old-song/) - Forbes
+- [Nickelback Scores A Debut Hit On One Chart With A Decades-Old Song](https://www.forbes.com/sites/hughmcintyre/2026/08/29/nickelback-scores-a-debut-hit-on-one-chart-with-a-decades-old-song) - Forbes
+- [Nickelback Scores A Debut Hit On One Chart With A Decades-Old Song - Yahoo News Canada](https://ca.news.yahoo.com/nickelback-scores-debut-hit-one-133000188.html) - Yahoo
+- [Nipsey Hussle Returns To The Charts With A New Posthumous Album](https://www.forbes.com/sites/hughmcintyre/2026/08/29/nipsey-hussle-returns-to-the-charts-with-a-new-posthumous-album/) - Forbes
+- [Nipsey Hussle Returns To The Charts With A New Posthumous Album - Forbes](https://www.forbes.com/sites/hughmcintyre/2026/08/29/nipsey-hussle-returns-to-the-charts-with-a-new-posthumous-album) - Forbes
+- [Nipsey Hussle's Posthumous Album 'Prolific' Hits Billboard ...](https://fixitfeed.com/article/nipsey-hussle-s-posthumous-album-prolific-hits-billboard-charts-full-breakdown) - Fixitfeed
+- [Tyler, The Creator & Turnstile Conquer All Points East: Best Moments](http://www.billboard.com/lists/tyler-the-creator-best-moments-all-points-east/) - Billboard
+- [Tyler, The Creator & Turnstile Conquer All Points East](https://www.billboard.com/lists/tyler-the-creator-best-moments-all-points-east) - Billboard
+- [Tyler, The Creator Concert Setlist at All Points East 2026 on August 29, 2026 \| setlist.fm](https://www.setlist.fm/setlist/tyler-the-creator/2026/victoria-park-london-england-134ea5dd.html) - Setlist
+- [Tyler, The Creator Setlist at All Points East 2026](https://www.setlist.fm/setlist/tyler-the-creator/2026/victoria-park-london-england-b4ea5fe.html) - Setlist
+- [Kylie Minogue, 58, shares throwback snaps in her iconic Can't Get You Out Of My Head jumpsuit 25 years on as it reaches a billion streams on Spotify](https://www.dailymail.com/tvshowbiz/article-16090003/Kylie-Minogue-58-shares-throwback-snaps-iconic-You-Head-jumpsuit-25-years-reaches-billion-streams-Spotify.html) - Dailymail.com
+- [Kylie Minogue celebrates Can't Get You Out Of My Head](https://www.canberratimes.com.au/story/9339951/kylie-minogue-celebrates-cant-get-you-out-of-my-head) - Canberratimes
+- [Kylie Minogue smashes new music record as Can’t Get You Out Of My Head hits one billion streams](https://www.thesun.co.uk/tvandshowbiz/40195616/kylie-minogue-music-record-smashed-billion-streams) - Thesun
+- [Kylie Minogue, 58, shares incredible 25-year-old throwback photos in revealing white jumpsuit](https://www.hellomagazine.com/us/920676/kylie-minogue-58-shares-incredible-25-year-old-throwback-photos-in-revealing-white-jumpsuit) - Hellomagazine
+- [Kylie Minogue celebrates one billion streams for Can’t Get You Out Of My Head – The Irish News](https://www.irishnews.com/entertainment/kylie-minogue-celebrates-one-billion-streams-for-cant-get-you-out-of-my-head-43SFKBOVB5NB3OGCZECWTXDQQQ) - Irishnews
+- [Best Michael Jackson Videos Ranked by Viral Views, In Honor of His Birthday](https://www.theroot.com/best-michael-jackson-videos-ranked-by-viral-views-in-h-2000059299) - The Root
+- [Fontaines D.C.: the rise and rise of Ireland's best band](https://www.rte.ie/entertainment/2026/0829/1589639-fontaines-d-c-the-rise-and-rise-of-irelands-best-band/) - RTE
+- [NME](https://www.nme.com?p=%2Fdiscussions%2Fp208) - Nme
+- [Fontaines D.C. at Electric Picnic 2026: The Road To The Main Stage \| Hotpress](https://www.hotpress.com/music/fontaines-d-c-at-electric-picnic-the-road-to-the-main-stage-23157529) - Hotpress
+- [Fontaines D.C. Announce Fifth Album 'Dopamine Chamber'](https://www.rollingstone.com/music/music-news/fontaines-dc-new-album-song-dopamine-chamber-marianne-1235610335) - Rollingstone
+- [Fontaines D.C. set 'Dopamine Chamber' for 16 October](https://www.side-line.com/fontaines-dc-dopamine-chamber) - Side-line
+- [Fontaines D.C. Announce New Album ‘Dopamine Chamber’](https://www.xsnoize.com/fontaines-dc-dopamine-chamber-marianne) - Xsnoize
+- [“There’s a poignant sense of us being on the brink of some other kind of form of humanity, or non-humanity": Fontaines D.C. detail new album, Dopamine Chamber \| The Line of Best Fit](https://www.thelineofbestfit.com/news/fontaines-d-c-detail-new-album-dopamine-chamber) - Thelineofbestfit
+- [Cardi B Says 'AH HA' Music Video Cost Over $1 Million Due to Permits](http://www.billboard.com/music/rb-hip-hop/cardi-b-ah-ha-music-video-1-million-nypd-permits-1236328019/) - Billboard
+- [Cardi B Says She Was 'Overcharged' by NYPD for Permits to Make Her "AH HA" Music Video](https://www.complex.com/music/a/backwoodsaltar/cardi-b-nypd-permit-overcharge) - Complex
+- [Cardi B Says 'AH HA' Music Video Cost Over $1 Million Due to Permits](https://www.billboard.com/music/rb-hip-hop/cardi-b-ah-ha-music-video-1-million-nypd-permits-1236328019) - Billboard
+- [Cardi B Says ‘AH HA’ Video Cost Over $1 Million, Questions NYC Permit Charges - 24Hip-Hop](https://24hip-hop.com/cardi-b-ah-ha-video-costs-nyc-permits) - 24hip-hop
+- [Cardi B Says ‘AH HA’ Music Video Cost More Than $1M, Claims She Was ‘Overcharged’ by NYPD for Permits: ‘They Was Doing Too Much’](https://www.yahoo.com/entertainment/music/articles/cardi-b-says-ah-music-002128459.html) - Yahoo
+- [Alabama Shakes Are Back — and Breaking New Ground — on ‘I Must Be Dreaming’](http://www.rollingstone.com/music/music-album-reviews/alabama-shakes-i-must-be-dreaming-album-review-1235616760/) - Rolling Stone
+- [Alabama Shakes Trade Grit for Groove on 'I Must Be Dreaming' (ALBUM REVIEW) - Glide Magazine](https://glidemagazine.com/329645/alabama-shakes-trade-grit-for-groove-on-i-must-be-dreaming-album-review) - Glidemagazine
+- [‘I Must Be Dreaming’ by Alabama Shakes Review: A Roots-Rock Return Worth the Wait - WSJ](https://www.wsj.com/arts-culture/music/i-must-be-dreaming-by-alabama-shakes-review-a-roots-rock-return-worth-the-wait-8f4e3ac5) - Wsj
+- [FOUR-TIME GRAMMY® AWARD-WINNING ALABAMA SHAKES RELEASE FIRST NEW ALBUM IN OVER A DECADE, I MUST BE DREAMING • Red Light Management](https://redlightmanagement.com/four-time-grammy-award-winning-alabama-shakes-release-first-new-album-in-over-a-decade-i-must-be-dreaming) - Redlightmanagement
+- [Biggie Smalls’ still-unsolved killing keeps surfacing in a courtroom where no one is charged with it. Why?](https://www.cnn.com/2026/08/29/us/tupac-biggie-smalls-murder-trial) - CNN
+- ['RIP King': Fans pay respect to Tupac Shakur, hope for justice as murder trial nears the end](https://abcnews.com/US/wireStory/rip-king-fans-pay-respect-tupac-shakur-hope-136051152) - Abcnews.com
+- [29K views · 325 reactions \| A former detective who was part of a 2009 proffer agreement with Duane Davis, also known as “Keffe D,” gave his perspective on why he thinks Davis wasn't lying about his involvement in Tupac Shakur's murder. Daryn Dupree testified that Davis admitted to his involvement during an interview with law enforcement that was originally focused on the murder of Christopher Wallace, also known as The Notorious B.I.G. 
+
+Under a proffer agreement, a suspect gives potentially useful information to police under the condition that police cannot use it against them, with some exceptions. \| CNN International](https://www.facebook.com/cnninternational/posts/a-former-detective-who-was-part-of-a-2009-proffer-agreement-with-duane-davis-als/1429146005747113) - Facebook
+- [Biggie Smalls’ still-unsolved killing keeps surfacing in a courtroom where no one is charged with it. Why? \| U.S. News \| kten.com](https://www.kten.com/news/national/biggie-smalls-still-unsolved-killing-keeps-surfacing-in-a-courtroom-where-no-one-is-charged/article_8c028a56-9861-546b-a386-442c1d33591c.html) - Kten
+- [Marilyn Manson Expands "One Assassination Under God – Chapter 2" With New Bonus Track "You Can’t Die Young"](http://www.metalunderground.com/news/details.cfm?newsid=161984) - Metalunderground.com
+- [Marilyn Manson Adds Bonus Track To ‘One Assassination Under God – Chapter 2’](https://themosh.net/marilyn-manson-you-cant-die-young-chapter-2) - Themosh
+- [Marilyn Manson Expands His Latest Album "One Assassination Under God - Chapter 2" With A Bonus Track "You Can't Die Young" - Theprp.com](https://www.theprp.com/2026/08/28/news/marilyn-manson-expands-his-latest-album-one-assassination-under-god-chapter-2-with-a-bonus-track-you-cant-die-young) - Theprp
+- [Instagram](https://www.instagram.com/p/Dclv1MWR-z9) - Instagram
+- [Marilyn Manson releases expanded album, stream ‘You Can’t Die Young’](https://nextmosh.com/marilyn-manson-releases-expanded-album-stream-you-cant-die-young) - Nextmosh
+- [PAIN Premiere New Single & Music Video "I Don't Give A Fukk" Featuring Peter Stormare ('John Wick', Fargo, Etc.)](http://www.metalunderground.com/news/details.cfm?newsid=161986) - Metalunderground.com
+- [PAIN Drops “I Don't Give A Fukk” Video With Peter Stormare](https://comiccrusaders.com/pop-culture/hot-music-and-music-videos/pain-i-dont-give-a-fukk-peter-stormare-video) - Comiccrusaders
+- [PAIN Releases Music Video For New Single 'I Don't Give A F***' - BLABBERMOUTH.NET](https://blabbermouth.net/news/pain-releases-music-video-for-new-single-i-dont-give-a-f) - Blabbermouth
+- [PAIN Return With "I Don't Give A Fukk" Video Featuring 'John Wick', Fargo, Etc. Star Peter Stormare](https://www.theprp.com/2026/08/28/news/pain-return-with-i-dont-give-a-fukk-video-featuring-john-wick-fargo-etc-star-peter-stormare) - Theprp
+- [PAIN announce new song, new music video and a ...](https://chaoszine.net/pain-announce-new-song-new-music-video-and-a-youtube-live-stream-for-tomorrow) - Chaoszine
+- [Pain Shares a New Single and Music Video for “I Don’t Give A Fukk”](https://ghostcultmag.com/pain-shares-a-new-single-and-music-video-for-i-dont-give-a-fukk) - Ghostcultmag
+- [Grace Jones canta al Kalorama Music Fest di Lisbona](https://www.ansa.it/sito/photogallery/people/2026/08/29/grace-jones-canta-al-kalorama-music-fest-di-lisbona_a7f6ebf1-fcdd-449e-86ee-9fced81ea66f.html) - ANSA.it
+- [Grace Jones canta al Kalorama Music Fest di Lisbona](https://www.ansa.it/amp/sito/photogallery/people/2026/08/29/grace-jones-canta-al-kalorama-music-fest-di-lisbona_a7f6ebf1-fcdd-449e-86ee-9fced81ea66f.html) - Ansa
+- [Grace Jones Perform At MEO Kalorama 2026](https://www.reutersconnect.com/item/grace-jones-perform-at-meo-kalorama-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDM0MzlKRQ) - Reutersconnect
+- [Instagram](https://www.instagram.com/reel/Dcol2Vao8Hn) - Instagram
+- [Grace Jones Perform At MEO Kalorama 2026](https://www.reutersconnect.com/item/grace-jones-perform-at-meo-kalorama-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDM0M09UNQ) - Reutersconnect
+- [The Weeknd’s Music Gets A Final Fantasy Makeover By Legendary Artist Yoshitaka Amano](https://kotaku.com/the-weeknds-music-gets-a-final-fantasy-makeover-by-yoshitaka-amano-2000728638) - Kotaku
+- [Instagram](https://www.instagram.com/p/Dce_opCkXaz) - Instagram
+- [The Weeknd Announces Four Commemorative Japan-Exclusive Releases Featuring Artwork by Yoshitaka Amano and a Guest Appearance by Tomoko Aran｜uDisocver（音楽サイト）](https://note.com/udiscover/n/n138ca0191e1a?hl=en) - Note
+- [The Weeknd "AFTER HOURS TIL DAWN COLLECTION"](https://www.cdjapan.co.jp/feature/The-Weeknd-After-Hours-Til-Dawn-Collection) - Cdjapan
