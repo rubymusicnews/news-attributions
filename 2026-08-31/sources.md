@@ -1,0 +1,63 @@
+# Sources for 2026-08-31 News Episode 
+- [Dolly Parton is on course for her first ever UK number one as her hit 1980 song 9 To 5 soars into the charts days after icon died](https://www.dailymail.com/tvshowbiz/article-16091357/Dolly-Parton-UK-number-one-9-5-died.html) - Dailymail.com
+- [Dolly Parton’s music returns to Official Charts as fans celebrate her legacy](https://www.officialcharts.com/chart-news/dolly-parton-jolene-9-to-5-islands-in-stream-charts) - Officialcharts
+- [Soompi’s K-Pop Music Chart 2026, August Week 5](http://www.soompi.com/article/1866753wpp/soompis-k-pop-music-chart-2026-august-week-5) - soompi
+- [Soompi's K-Pop Music Chart 2026, August Week 5 \| Soompi](https://www.soompi.com/article/1866753wpp/soompis-k-pop-music-chart-2026-august-week-5) - Soompi
+- [Soompi's K-Pop Music Chart 2026, August Week 5](https://www.kpopangel.com/news/soompis-k-pop-music-chart-2026-august-week-5) - Kpopangel
+- [KiiiKiii zůstávají na 1. místě Soompi žebříčku za 5. týden ...](https://kpophouse.eu/cz/blog/kiiikiii-hold-no-1-on-soompi-s-august-week-5-chart) - Kpophouse
+- [Soompi's K-Pop Music Chart 2026, August Week 4 \| Soompi](https://www.soompi.com/article/1864825wpp/soompis-k-pop-music-chart-2026-august-week-4) - Soompi
+- [Pop Smoke’s “Welcome to the Party” Was an Anthem, Then an Elegy](https://www.newyorker.com/culture/songs-of-summer/pop-smokes-welcome-to-the-party-was-an-anthem-then-an-elegy) - The New Yorker
+- [Pop Smoke’s “Welcome to the Party” Was an Anthem, Then an Elegy \| Gazer Daily](https://www.gazerdaily.com/articles/pop-smokes-welcome-to-the-party-was-an-anthem-then-an-elegy) - Gazerdaily
+- [Pop Smoke (born Bashar Barakah Jackson ...](https://www.instagram.com/reel/Dbnm4mrAJUF) - Instagram
+- [Rivers Cuomo Is Piecing It All Together](https://www.newyorker.com/culture/the-new-yorker-interview/rivers-cuomo-is-piecing-it-all-together) - The New Yorker
+- [Weezer Previews Self-Titled 'Gold Album,' Out Aug. 21 Ahead of Tour - Rock Cellar Magazine](https://rockcellarmagazine.com/weezer-gold-album-new-album-listen-preview-tour-2026/) - Rockcellarmagazine
+- [Weezer (The Gold Album)](https://www.weezerpedia.com/w/index.php?title=Weezer_%28The_Gold_Album%29&mobileaction=toggle_view_desktop) - Weezerpedia
+- [Weezer: Weezer (Gold Album) (Reprise/Warner) - review \| Under the Radar Magazine](https://www.undertheradarmag.com/reviews/weezer_gold_album) - Undertheradarmag
+- [Hearts2Hearts’ ‘ICONIC HEART’ Sets High Debut on Billboard Japan Charts](http://www.billboard.com/music/chart-beat/hearts2hearts-iconic-heart-billboard-japan-chart-debut-1236327893/) - Billboard
+- [Hearts2Hearts' 'ICONIC HEART' Sets High Debut on ...](https://www.billboard.com/music/chart-beat/hearts2hearts-iconic-heart-billboard-japan-chart-debut-1236327893) - Billboard
+- [Post](https://x.com/billboard/status/2094078398540763357) - X
+- [Hearts2Hearts' 'ICONIC HEART' debuted... - Billboard Charts](https://www.facebook.com/BillboardCharts/posts/hearts2hearts-iconic-heart-debuted-at-no-2-on-billboard-japans-weekly-top-single/1675168937943377) - Facebook
+- [Hearts2Hearts Debuts in Japan With 'Iconic Heart'](https://www.chosun.com/english/kpop-culture-en/2026/08/12/WG2HSMUZAFGNTHSDI6TNGKEHFU) - Chosun
+- [EBiDAN's 'Yes! Tokyo' Tops Japan Hot 100 as Florence Road Makes Debut](https://www.billboard.com/music/chart-beat/ebidan-yes-tokyo-tops-japan-hot-100-florence-road-debut-1236321589) - Billboard
+- [Miley Cyrus Is Seemingly Teasing a Major New Music Announcement](https://www.justjared.com/2026/08/30/miley-cyrus-is-seemingly-teasing-a-major-new-music-announcement/) - Just Jared
+- [Miley Cyrus Is Seemingly Teasing a Major New Music ...](https://www.justjared.com/2026/08/30/miley-cyrus-is-seemingly-teasing-a-major-new-music-announcement) - Justjared
+- [Miley Cyrus teases new album](https://www.yahoo.com/entertainment/music/articles/miley-cyrus-teases-album-035117494.html) - Yahoo
+- [Will Miley Cyrus delay the release of her new album to grieve godmother, Dolly Parton?](https://www.laineygossip.com/will-miley-cyrus-delay-release-new-album-to-grieve-godmother-dolly-parton) - Laineygossip
+- [Squeeze, Adam Ant And Haircut 100 Bring A British Music Invasion To N.Y.C.](https://www.forbes.com/sites/davidchiu/2026/08/30/squeeze-adam-ant-and-haircut-100-bring-a-british-music-invasion-to-nyc/) - Forbes
+- [Squeeze, Adam Ant And Haircut 100 Bring A British Music Invasion To N.Y.C.](https://www.forbes.com/sites/davidchiu/2026/08/30/squeeze-adam-ant-and-haircut-100-bring-a-british-music-invasion-to-nyc) - Forbes
+- [Squeeze live concert with Adam Ant and Haircut 100](https://www.facebook.com/Unsteadyfreddiemanabouttown/posts/tonight-radio-city-music-hall-seeing-squeeze-adam-ant-haircut-one-hundred-should/1727633006032468) - Facebook
+- [Midnight Train To Georgia: Gladys Knight Announces Retirement From Music To Focus On Family & Next Chapter](https://bossip.com/4623993/gladys-knight-announces-retirement/) - Bossip
+- [Gladys Knight 'easing into fewer' concerts after health concerns - Los Angeles Times](https://www.latimes.com/entertainment-arts/story/2026-08-28/gladys-knight-easing-into-fewer-concerts-after-health-concerns) - Latimes
+- [Gladys Knight Taking a Step Back from Performing to Focus on ‘Transitioning into the Next Stage’ of Her Career and Life](https://people.com/gladys-knight-announces-she-is-taking-a-step-back-from-performing-12071068) - People
+- [Gladys Knight Plans Fewer Shows, More Time With Family](https://www.aarp.org/entertainment/music/gladys-knight-scaling-back-performances) - Aarp
+- [Gladys Knight to wind down live performances \| NEWS10 ABC](https://www.news10.com/news/national/gladys-knight-to-wind-down-live-performances/amp) - News10
+- [Karen O Misses Daisy Chain Fields Appearance Due to ‘Family Emergency’](http://www.rollingstone.com/music/music-news/karen-o-misses-daisy-chain-fields-family-emergency-1235618039/) - Rolling Stone
+- [Karen O Misses Daisy Chain Fields Appearance Due to ' ...](https://www.rollingstone.com/music/music-news/karen-o-misses-daisy-chain-fields-family-emergency-1235618039) - Rollingstone
+- [Howtofeelgood.net](https://www.facebook.com/howtofeelgood.net/posts/karen-o-of-yeah-yeah-yeahs-was-pictured-at-louise-m-davies-symphony-hall-on-july/1064267426489299) - Facebook
+- [Karen O was forced to cancel her appearance at Olivia ...](https://www.facebook.com/RollingStone/posts/karen-o-was-forced-to-cancel-her-appearance-at-olivia-rodrigos-daisy-chain-field/1429419082379487) - Facebook
+- [Olivia Rodrigo reveals future of her Daisy Chain Fields festival](https://www.usatoday.com/story/entertainment/music/2026/08/30/olivia-rodrigo-daisy-chain-fields-festival-performance-stevie-nicks/91512325007) - Usatoday
+- [Daisy Chain Fields Triumphs as Olivia Rodrigo Unites Peers and Forebears](https://variety.com/2026/music/concert-reviews/daisy-chain-fields-olivia-rodrigo-chappell-roan-concert-review-1236846844) - Variety
+- [Olivia Rodrigo & Alanis Morissette Rework 'Ironic' Lyric After Karen O Exits Daisy Chain Fields](https://www.billboard.com/music/pop/olivia-rodrigo-alanis-morissette-rework-ironic-daisy-chain-fields-1236328211) - Billboard
+- [Lola Young surprises Reading Festival with final day set](https://www.bbc.co.uk/news/articles/c6247yv8564o) - BBC News
+- [Reading Festival: Messy singer Lola Young makes surprise final day appearance](https://www.bbc.com/news/articles/c6247yv8564o) - Bbc
+- [Lola Young steps onstage with a surprise Reading festival ...](https://ca.news.yahoo.com/lola-young-steps-onstage-surprise-165320376.html) - Yahoo
+- [Lola Young thrills fans at Reading Festival a year after ...](https://www.aol.co.uk/articles/lola-young-thrills-fans-reading-163023000.html) - Aol
+- [Emerson, Lake & Palmer – Brain Salad Surgery (1973, MFSL 2026)](https://exystence.net/blog/2026/08/30/emerson-lake-palmer-brain-salad-surgery-1973-mfsl-2026/) - Exystence.net
+- [Kacey Musgraves' stage catches FIRE mid-concert as country star performs in Boston](https://www.dailymail.com/tvshowbiz/article-16090381/kacey-musgraves-stage-fire-concert-boston.html) - Dailymail.com
+- [Kacey Musgraves Ignites the Stage in Boston, Literally](https://consequence.net/2026/08/kacey-musgraves-stage-fire-in-boston/) - Consequence.net
+- [Kacey Musgraves suffers dangerous setback as stage sets ablaze during concert](https://www.thenews.com.pk/latest/1414176-kacey-musgraves-suffers-dangerous-setback-as-stage-sets-ablaze-during-concert) - Thenews
+- [Kacey Musgraves’ stage bursts into flames at Boston concert](https://pagesix.com/2026/08/29/entertainment/kacey-musgraves-stage-bursts-into-flames-at-boston-concert) - Pagesix
+- [Kacey Musgraves Jokingly Requests a “Bedazzled Fire Extinguisher” as Fire Breaks Out Onstage in Boston - American Songwriter](https://americansongwriter.com/kacey-musgraves-jokingly-requests-a-bedazzled-fire-extinguisher-as-fire-breaks-out-onstage-in-boston) - Americansongwriter
+- [Kacey Musgraves’s Stage Literally Caught on Fire in Boston](https://consequence.net/2026/08/kacey-musgraves-stage-fire-in-boston) - Consequence
+- [Kacey Musgraves Continues Boston Show As Fire Breaks ...](https://www.yahoo.com/entertainment/music/articles/kacey-musgraves-continues-boston-show-194158849.html) - Yahoo
+- [At Electric Picnic, Florence Road combine old-school rock-star aura with a fresh new voice](https://www.irishtimes.com/culture/music/review/2026/08/30/at-electric-picnic-florence-road-combine-old-school-rock-star-aura-with-a-fresh-new-voice/) - The Irish Times
+- [Florence Road rocked it on Three Ireland Main Stage at ...](https://www.facebook.com/LeinsterExpress/posts/florence-road-rocked-it-on-three-ireland-main-stage-at-the-electric-picnic-press/1916793019446369) - Facebook
+- [At Electric Picnic, Florence Road combine old-school rock ...](https://www.threads.com/@irishtimesnews/post/Dcrd8j8kq2K/at-electric-picnic-florence-road-combine-old-school-rock-star-aura-with-a-fresh) - Threads
+- [Live Report: Florence Road put on a ferocious show at Electric Picnic \| Hotpress](https://www.hotpress.com/music/live-report-florence-road-put-on-a-ferocious-show-at-electric-picnic-23159134) - Hotpress
+- [At Electric Picnic, Florence Road combine old-school rock-star aura with a fresh new voice – The Irish Times](https://www.irishtimes.com/culture/music/review/2026/08/30/at-electric-picnic-florence-road-combine-old-school-rock-star-aura-with-a-fresh-new-voice) - Irishtimes
+- [Electric Picnic 2026: Biblical rain, bopping families, surprise acts and popular covers](https://www.irishtimes.com/culture/music/2026/08/30/electric-picnic-2026-biblical-rain-bopping-families-surprise-acts-and-popular-covers/) - The Irish Times
+- [Electric Picnic 2026: In a jammed Rankins Wood, Geese pause their set. There’s a moment of confusion](https://www.irishtimes.com/culture/music/review/2026/08/30/electric-picnic-2026-in-a-jammed-rankins-wood-geese-pause-their-set-theres-a-moment-of-confusion/) - The Irish Times
+- [Gallery: Electric Picnic Day 2](https://www.rte.ie/entertainment/2026/0830/1589660-gallery-electric-picnic-day-2/) - RTE
+- [Electric Picnic: DJ cancelled over crowd safety, CMAT confirms she’s playing](https://www.thejournal.ie/electric-picnic-dj-cancelled-crowd-safety-cmat-7146041-Aug2026) - Thejournal
+- [Electric Picnic: CMAT said it — this is as good as we'll get](https://www.irishexaminer.com/lifestyle/artsandculture/arid-41904310.html) - Irishexaminer
+- [Electric Picnic, Day 2 review: Lola Young surprise ...](https://www.irishexaminer.com/lifestyle/artsandculture/arid-41904079.html) - Irishexaminer
