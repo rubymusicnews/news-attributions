@@ -1,0 +1,65 @@
+# Sources for 2026-09-01 News Episode 
+- [Taylor Swift Could Make Grammy History — And Ariana Grande May Join Her](https://www.forbes.com/sites/hughmcintyre/2026/08/31/taylor-swift-could-make-grammy-history---and-ariana-grande-may-join-her/) - Forbes
+- [Taylor Swift Could Make Grammy History — And Ariana Grande May Join Her](https://www.forbes.com/sites/hughmcintyre/2026/08/31/taylor-swift-could-make-grammy-history---and-ariana-grande-may-join-her) - Forbes
+- [Drake Ties His Own No. 1 Record With His Latest Champion](https://www.forbes.com/sites/hughmcintyre/2026/08/31/drake-ties-his-own-no-1-record-with-his-latest-champion/) - Forbes
+- [Drake Transforms Into Iron Man in Mysterious Toronto ...](https://uk.news.yahoo.com/drake-transforms-iron-man-mysterious-003920480.html) - Yahoo
+- [Drake Ties His Own No. 1 Record With His Latest Champion](https://www.forbes.com/sites/hughmcintyre/2026/08/31/drake-ties-his-own-no-1-record-with-his-latest-champion) - Forbes
+- [Drake makes history with 140 billion Spotify streams](https://rollingout.com/2026/08/31/drake-140-billion-spotify-streams) - Rollingout
+- [Drake Ties One Of His Longest Runs At No. 1 As He Dominates One Chart](https://www.forbes.com/sites/hughmcintyre/2026/08/12/drake-ties-one-of-his-longest-runs-at-no-1-as-he-dominates-one-chart) - Forbes
+- [A Voice Across the World: Hokkien Music & Culture Concert Gives New Voice to a Thousand-Year-Old Tradition Heritage](https://www.prnewswire.com/news-releases/a-voice-across-the-world-hokkien-music--culture-concert-gives-new-voice-to-a-thousand-year-old-tradition-heritage-302864792.html) - PRNewswire
+- [A Voice Across the World: Hokkien Music & Culture Concert Gives New Voice to a Thousand-Year-Old Tradition Heritage](https://finance.yahoo.com/media-advertising/articles/voice-across-world-hokkien-music-082200186.html) - Yahoo
+- [YUELAIMEI Hokkien Music Tour Holds First Mainland China ...](https://www.geneonline.com/yuelaimei-hokkien-music-tour-holds-first-mainland-china-performance-outside-traditional-regions-in-huizhou) - Geneonline
+- [A Voice Across the World: Hokkien Music & Culture Concert Gives New Voice to a Thousand-Year-Old Tradition Heritage \| Morningstar](https://www.morningstar.com/news/pr-newswire/20260831cn36778/a-voice-across-the-world-hokkien-music-culture-concert-gives-new-voice-to-a-thousand-year-old-tradition-heritage) - Morningstar
+- [Twisted Sister Perform First Show with Sebastian Bach as Singer: Watch](https://consequence.net/2026/08/twisted-sister-first-show-sebastian-bach/) - Consequence.net
+- [Watch: TWISTED SISTER Plays First Concert With SEBASTIAN BACH On Lead Vocals](https://blabbermouth.net/news/watch-twisted-sister-plays-first-concert-with-sebastian-bach-on-lead-vocals) - Blabbermouth
+- [Tour Setlist - Twisted Sister With Sebastian Bach, Aug....](https://www.facebook.com/toursetlist/posts/twisted-sister-with-sebastian-bach-aug-28-2026-starland-ballroom-sayreville-new-/122219690546493674) - Facebook
+- [Twisted Sister feat. Sebastian Bach Setlist at Starland ...](https://www.setlist.fm/setlist/twisted-sister-feat-sebastian-bach/2026/starland-ballroom-sayreville-nj-7b714e2c.html) - Setlist
+- [Twisted Sister Debuts Sebastian Bach at Bent Brother Show](https://axs.tv/news-story/twisted-sister-debuts-sebastian-bach-as-frontman-at-surprise-bent-brother-show) - Axs
+- [‘Choosin’ Texas’ is Now the Second Longest Running Number One Single on the Hot 100](http://www.rollingstone.com/music/music-country/ella-langleys-choosin-texas-billboard-hot-100-20th-week-1235618449/) - Rolling Stone
+- [People Keep Choosing ‘Choosin’ Texas’](http://www.vulture.com/article/ella-langley-choosin-texas-charts-drake.html) - Vulture
+- ['Choosin' Texas' Is Now the Second-Longest-Running ...](https://www.rollingstone.com/music/music-country/ella-langleys-choosin-texas-billboard-hot-100-20th-week-1235618449) - Rollingstone
+- [Ella Langley’s “Choosin’ Texas” Becomes The Second Song In American History To Spend 20 Weeks At #1 On The Billboard Hot 100 \| Whiskey Riff](https://www.whiskeyriff.com/2026/08/31/ella-langleys-choosin-texas-becomes-the-second-song-in-american-history-to-spend-20-weeks-at-1-on-the-billboard-hot-100) - Whiskeyriff
+- [Ella Langley's 'Choosin' Texas' holds No. 1 spot for 20th week on Billboard Hot 100](https://www.wnypapers.com/news/article/current/2026/08/31/166918/ella-langleys-choosin-texas-holds-no.-1-spot-for-20th-week-on-billboard-hot-100) - Wnypapers
+- ['Choosin' Texas' Is Now the Second-Longest-Running ...](https://www.yahoo.com/entertainment/music/articles/choosin-texas-now-second-longest-185847653.html) - Yahoo
+- [Ella Langley's 'Choosin' Texas' Breaks Hot 100 Chart Record](https://variety.com/2026/music/news/ella-langleys-choosin-texas-break-hot-100-chart-record-1236847519) - Variety
+- [Shakira to Shake Up Egypt’s Pyramids of Giza During World Tour](https://www.artnews.com/art-news/news/shakira-pyramids-of-giza-concert-1234796329/) - ARTnews
+- [Shakira Shakes Up Egypt's Pyramids of Giza with World Tour](https://www.artnews.com/art-news/news/shakira-pyramids-of-giza-concert-1234796329) - Artnews
+- [Shakira at the Pyramids: What fans can expect from her Egypt concert \| The National](https://www.thenationalnews.com/arts-culture/music-stage/2026/08/28/shakira-at-the-pyramids-what-fans-can-expect-from-her-egypt-concert) - Thenationalnews
+- [Promoters confirmed that Shakira’s... - Starlight Gallery](https://www.facebook.com/StarlightGallery5/posts/promoters-confirmed-that-shakiras-highly-anticipated-concert-at-the-pyramids-of-/122370407660066479) - Facebook
+- [Spotify and YouTube Profiles of Legendary Jazz Musicians Hijacked by AI Waifu Spam](https://futurism.com/artificial-intelligence/spotify-youtube-music-jazz-musicians-ai-waifu-spam) - Futurism
+- [Streaming Profiles of Jazz Legends Have Been Hijacked by AI Slop](https://www.digitalmusicnews.com/2026/08/31/jazz-legends-streaming-profiles-ai-slop) - Digitalmusicnews
+- [Prince Michael Jackson Says a ‘Michael’ Sequel Needs ‘Same Degree of Care’ (Exclusive)](https://extratv.com/2026/08/31/prince-michael-jackson-says-a-michael-sequel-needs-same-degree-of-care-exclusive/) - Extra
+- [Prince Michael Jackson Says a ‘Michael’ Sequel Needs ‘Same Degree of Care’ (Exclusive)](https://extratv.com/2026/08/31/prince-michael-jackson-says-a-michael-sequel-needs-same-degree-of-care-exclusive) - Extratv
+- [A Music Festival Celebrating Dolly Parton is Heading to Nashville and London](http://www.rollingstone.com/music/music-country/dolly-parton-music-festival-2027-announcement-1235618190/) - Rolling Stone
+- [Dolly Parton's Estate Announces DollyFest Celebrations in Nashville ...](https://consequence.net/2026/08/dollyfest-2027-nashville-london) - Consequence
+- [A Dolly Parton Music Festival is Heading to Nashville and ...](https://www.rollingstone.com/music/music-country/dolly-parton-music-festival-2027-announcement-1235618190) - Rollingstone
+- [Instagram](https://www.instagram.com/p/DctiO2-kdtQ) - Instagram
+- [Dolly Parton's Estate Announces Dollyfest Celebrations in ...](https://www.ticketnews.com/2026/08/dolly-partons-estate-announces-dollyfest-celebrations-in-nashville-and-london-for-2027) - Ticketnews
+- [Dollyfest festival announced to celebrate Dolly Parton’s legacy in Nashville and London \| The Independent](https://www.independent.co.uk/arts-entertainment/music/dollyfest-dolly-parton-festival-london-nashville-b3042239.html) - Independent
+- [VOTE: Better AC/DC Album - 'Let There Be Rock' vs. 'Back in Black](https://loudwire.com/better-acdc-album-let-there-be-rock-vs-back-in-black/) - Loudwire
+- [Loudwire on X: "VOTE: Better AC/DC Album](https://x.com/Loudwire/status/2094524903290503406) - X
+- [Better AC/DC Album - 'Let There Be Rock' vs. 'Back in Black](https://loudwire.com/better-acdc-album-let-there-be-rock-vs-back-in-black) - Loudwire
+- [Lionel Richie Hospitalized in ICU: 'Hello' Singer Begged Team for Chair to Sit Down While 'Struggling' on Stage](https://radaronline.com/p/lionel-richie-hospitalized-icu-singer-struggle-on-stage/) - Radaronline.com
+- [Lionel Richie Hospitalized After St. Louis Concert](https://www.tmz.com/2026/08/31/lionel-richie-hospitalized) - Tmz
+- [Lionel Richie health update: Singer, 77, hospitalized after St. Louis concert; what happened? \| Hindustan Times](https://www.hindustantimes.com/world-news/us-news/lionel-richie-health-update-singer-77-hospitalized-after-st-louis-concert-what-happened-101788205928107.html) - Hindustantimes
+- [Lionel Richie checks into St. Louis-area ICU for precuationary mesasure following concert](https://thegrio.com/2026/08/31/lionel-richie-health-icu-st-louis) - Thegrio
+- [Lionel Richie, 77, hospitalized in ICU after suffering second health crisis in two months](https://www.hellomagazine.com/us/920945/lionel-richie-hospitalized-icu-health-scare) - Hellomagazine
+- [Lionel Richie hospitalized in ICU after struggling to finish St. Louis concert](https://pagesix.com/2026/08/31/celebrity-news/lionel-richie-hospitalized-in-icu-after-st-louis-show-weeks-after-dizzy-spell) - Pagesix
+- [Lionel Richie admitted to ICU after St. Louis concert](https://ew.com/lionel-richie-admitted-to-hospital-icu-after-st-louis-concert-12074624) - Ew
+- [Cretin Family's Ramones tribute gig featured The Linda Lindas, Fred Armisen, Billy Idol](https://www.thelineofbestfit.com/news/cretin-familys-ramones-tribute-gig-brought-out-the-linda-lindas-fred-armisen-billy-idol) - Thelineofbestfit.com
+- [Ramones All-Star Tribute Concert in Los Angeles: Set List, Photos](https://ultimateclassicrock.com/ramones-tribute-concert-2026/) - Ultimate Classic Rock
+- [Punk supergroup raises the dead for the Ramones at Hollywood Forever Cemetery](https://ktla.com/entertainment/punk-supergroup-raises-the-dead-for-the-ramones-at-hollywood-forever-cemetery) - Ktla
+- [Ramones All-Star Tribute Concert in Los Angeles: Set List, Photos](https://ultimateclassicrock.com/ramones-tribute-concert-2026) - Ultimateclassicrock
+- [Photos: CRETIN FAMILY, Billy Idol Headline Ramones 50th Anniversary Tribute \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/CRETIN-FAMILY-Billy-Idol-Headline-Ramones-50th-Anniversary-Tribute-20260831) - Broadwayworld
+- [Setlist from supergroup Cretin Family 50th anniversary Ramones tribute](https://www.yahoo.com/entertainment/music/articles/setlist-supergroup-cretin-family-50th-051722846.html) - Yahoo
+- [Billie Joe Armstrong, Tim Armstrong, Travis Barker, CJ Ramone Rock Ramones Classics at 50th Anniversary Bash](https://consequence.net/2026/08/cretin-family-ramones-50th-anniversary-celebration) - Consequence
+- [Watch Longtime Steve Perry Impersonator Hugo Valenti Finally Guest With Journey](http://www.rollingstone.com/music/music-news/steve-perry-impersonator-hugo-valenti-journey-1235618173/) - Rolling Stone
+- [Watch Steve Perry Impersonator Hugo Valenti Finally Guest With Journey](https://www.rollingstone.com/music/music-news/steve-perry-impersonator-hugo-valenti-journey-1235618173) - Rollingstone
+- [Journey surprises fans with Steve Perry look-alike](https://www.sfchronicle.com/entertainment/music/article/journey-steve-perry-lookalike-22411530.php) - Sfchronicle
+- [Not the best pic, but here's Hugo Valenti singing for ...](https://www.instagram.com/p/DcoZDSsHzVL) - Instagram
+- [Journey performed in Japan with Steve Perry's doppelgänger - Chaoszine](https://chaoszine.net/journey-performed-in-japan-with-steve-perrys-doppelganger) - Chaoszine
+- [In A Groove, Beyond Time, Chelsea Wolfe Explores ‘The Dark’](https://www.spinmagazine.com/2026/08/in-a-groove-beyond-time-chelsea-wolfe-explores-the-dark/) - Spinmagazine.com
+- [Chelsea Wolfe Takes Us Behind The Scenes Making Her New Album 'The Dark'](https://scenestr.com.au/music/chelsea-wolfe-takes-us-behind-the-scenes-making-her-new-album-the-dark-20260828) - Scenestr
+- [CHELSEA WOLFE Releases New Album 'The Dark' Out Now Via Loma Vista + Releases New Single 'Seethe'](https://www.therockpit.net/2026/chelsea-wolfe-releases-new-album-the-dark-out-now-via-loma-vista-releases-new-single-seethe) - Therockpit
+- [Chelsea Wolfe: The Stories Behind Every Song On New Album ‘The Dark’](https://www.yahoo.com/entertainment/videos/chelsea-wolfe-stories-behind-every-184037524.html) - Yahoo
+- [Chelsea Wolfe: The Dark Album Review](https://pitchfork.com/reviews/albums/chelsea-wolfe-the-dark) - Pitchfork
