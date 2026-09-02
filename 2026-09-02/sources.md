@@ -1,0 +1,44 @@
+# Sources for 2026-09-02 News Episode 
+- [Miley (No Last Name) Plans 10th Album, ‘Bass Persuades,’ Hollywood Bowl Dates](http://www.rollingstone.com/music/music-news/miley-cyrus-bass-persuades-hollywood-bowl-1235618977/) - Rolling Stone
+- [Miley Cyrus Announces New Album 'Bass Persuades,' Hollywood Bowl Shows](https://variety.com/2026/music/news/miley-cyrus-new-album-bass-persuades-hollywood-bowl-1236847024) - Variety
+- [J Balvin Says Success of Artists Like Karol G Proves He Doesn’t Need an Album in English: “It’s Our Moment”](https://consequence.net/2026/09/j-balvin-english-album-karol-g/) - Consequence.net
+- [George Michael Takes a Pop Star Victory Lap in New Trailer for ‘The Faith Tour’ Concert Film](http://www.rollingstone.com/music/music-news/george-michael-new-trailer-faith-tour-concert-film-1235618885/) - Rolling Stone
+- [George Michael Finally Gets His Big-Screen Moment](http://www.vulture.com/article/george-michael-documentary-father-figure.html) - Vulture
+- [George Michael: Watch New Trailer for 'The Faith Tour' Concert Film](https://www.rollingstone.com/music/music-news/george-michael-new-trailer-faith-tour-concert-film-1235618885) - Rollingstone
+- [▶️ George Michael: The Faith Tour - Trailer](https://www.imdb.com/video/vi1840106009) - Imdb
+- [Relive George Michael’s 1988 Live Performances in Stunning “The Faith Tour” Concert Movie Trailer](https://uk.news.yahoo.com/relive-george-michael-1988-live-142255328.html) - Yahoo
+- [‘George Michael: The Faith Tour’ Trailer: Rediscovered 1988 Paris Concert Hits Theaters December 11](https://theplaylist.net/george-michael-faith-tour-trailer-december-11-20260901) - Theplaylist
+- [Yeah Yeah Yeahs Unveil Live Album Recorded at London’s Royal Albert Hall](http://www.rollingstone.com/music/music-news/yeah-yeah-yeahs-live-album-short-film-london-1235618795/) - Rolling Stone
+- [Yeah Yeah Yeahs Release New Live Album and Concert Film](https://consequence.net/2026/09/yeah-yeah-yeahs-release-new-live-album-concert-film/) - Consequence.net
+- [Yeah Yeah Yeahs Unveil ‘Hidden’ Live LP, Film](https://www.spinmagazine.com/2026/09/yeah-yeah-yeahs-live-album/) - Spinmagazine.com
+- [What You Should Be Listening to, According to SZA](http://www.rollingstone.com/music/music-features/sza-instagram-story-music-recommendations-1235616617/) - Rolling Stone
+- [SZA has been using her Instagram Story to spotlight rising ...](https://www.facebook.com/RollingStone/posts/sza-has-been-using-her-instagram-story-to-spotlight-rising-artists-and-peers-ali/1431230532198342) - Facebook
+- [Xiami Music & Arts Festival Returns for 5th Edition with The Cardigans Leading a Global Lineup](https://www.prnewswire.com/news-releases/xiami-music--arts-festival-returns-for-5th-edition-with-the-cardigans-leading-a-global-lineup-302866040.html) - PRNewswire
+- [Xiami Music & Arts Festival Returns for 5th Edition with The Cardigans Leading a Global Lineup \| The Manila Times](https://www.manilatimes.net/2026/09/01/tmt-newswire/pr-newswire/xiami-music-arts-festival-returns-for-5th-edition-with-the-cardigans-leading-a-global-lineup/2415805) - Manilatimes
+- [Mon Rovîa: Tiny Desk Concert](https://www.npr.org/2026/09/01/g-s1-139815/mon-rovia-tiny-desk-concert) - NPR
+- [Kiss Charts A Second New Album In 2026 After Splitting](https://www.forbes.com/sites/hughmcintyre/2026/09/01/kiss-charts-a-second-new-album-in-2026-after-splitting/) - Forbes
+- [Kiss Charts A Second New Album In 2026 After Splitting](https://www.yahoo.com/entertainment/music/articles/kiss-charts-second-album-2026-150005464.html) - Yahoo
+- [Kiss Charts A Second New Album In 2026 After Splitting](https://www.forbes.com/sites/hughmcintyre/2026/09/01/kiss-charts-a-second-new-album-in-2026-after-splitting) - Forbes
+- [Amorphis and Insomnium Announce Co-Headlining Fall 2026 North American Tour](https://consequence.net/2026/09/amorphis-insomnium-fall-2026-tour/) - Consequence.net
+- [AMORPHIS & INSOMNIUM Set For Co-Headlining Trek Across North America With Support From HINAYANA](https://www.sonicperspectives.com/news/amorphis-insomnium-set-for-co-headlining-trek-across-north-america-with-support-from-hinayana?amp=1) - Sonicperspectives
+- [Jason Isbell Sues Suno Alleging AI System Is Using Musicians’ Identities Without Consent](https://consequence.net/2026/09/jason-isbell-sues-suno/) - Consequence.net
+- [Villano Antillano’s Biggest Move Yet](http://www.rollingstone.com/music/music-latin/villano-antillano-new-album-ante-el-umbral-spain-1235618164/) - Rolling Stone
+- [Villano Antillano's Biggest Move Yet - Rolling Stone](https://www.rollingstone.com/music/music-latin/villano-antillano-new-album-ante-el-umbral-spain-1235618164) - Rollingstone
+- [New Music Friday: Kany García, Carín León, YEИDRY, Clarent, Omar Courtz,,and more](https://www.hola.com/us/entertainment/20260828920591/new-music-friday-august-28) - Hola
+- [During Ariana Grande's final stop of her 'Eternal Sunshine ...](https://www.facebook.com/RollingStone/posts/during-ariana-grandes-final-stop-of-her-eternal-sunshine-tour-the-star-paused-th/1431298245524904) - Facebook
+- [Dahi, Kendrick and Amber Mark, Dominic Fike, more](https://www.npr.org/2026/09/01/nx-s1-5950545/dahi-kendrick-and-amber-mark-dominic-fike-more) - NPR
+- [Dahi Steps Out From Behind the Boards With Star-Studded Debut Album Black Boy (Alternative)](https://www.babystepmagazine.com/single-post/dahi-steps-out-from-behind-the-boards-with-star-studded-debut-album-black-boy-alternative) - Babystepmagazine
+- [Dahi Releases “How to Pray” with Kendrick Lamar and Amber Mark](https://consequence.net/2026/08/dahi-how-to-pray-video-kendrick-lamar-amber-mark) - Consequence
+- [Dahi, In and Out the Circle: 12 Years In the Making, the Prolific Musician Drops his Debut Album ‘Black Boy (Alternative)’ - LA Weekly](https://www.laweekly.com/dahi-in-and-out-the-circle-12-years-in-the-making-the-prolific-musician-drops-his-debut-album-black-boy-alternative) - Laweekly
+- [Rumored Coachella 2027 Headliners Revealed (Plus One Act Who Reportedly Turned It Down!)](https://www.justjared.com/2026/09/01/rumored-coachella-2027-headliners-revealed-plus-one-act-who-reportedly-turned-it-down/) - Just Jared
+- [Report: Coachella 2027 Headliners Include Dua Lipa, Tame Impala](https://consequence.net/2026/09/coachella-2027-dua-lipa-tame-impala-fred-again-in-talks) - Consequence
+- [Rumored Coachella 2027 Headliners Revealed (Plus One Act Who Reportedly Turned It Down!) \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/01/rumored-coachella-2027-headliners-revealed-plus-one-act-who-reportedly-turned-it-down) - Justjared
+- [BTS, headliner at Coachella... even after Joo Choe-cheuk (CEO) Gwanghwamun concert [actively being recruited] [K-EYES] \| STARNEWS](https://www.starnewskorea.com/en/music/2026/09/02/2026090216342619257) - Starnewskorea
+- [Rumored Coachella 2027 Headliners Revealed (Plus One Act Who Reportedly Turned It Down!)](https://www.justjared.com/2026/09/01/rumored-coachella-2027-headliners-revealed-plus-one-act-who-reportedly-turned-it-down/3) - Justjared
+- [The Warning to Headline International NFL Halftime Show](https://loudwire.com/the-warning-nfl-mexico-city-2026-halftime-show/) - Loudwire
+- [The Warning to headline halftime show at Mexico City game between Vikings, 49ers in Week 11 \| Latest NFL News, Analysis & Updates \| NFL.com](https://www.nfl.com/news/the-warning-to-headline-halftime-show-at-mexico-city-game-between-vikings-49ers-in-week-11) - Nfl
+- [NFL Mexico 2026: The Warning headlining Vikings-49ers halftime show](https://www.dazn.com/en-US/news/american-football/nfl-mexico-2026-the-warning-halftime-show-vikings-49ers/1oj9wxgmpo6ss134e0sl58oi9s) - Dazn
+- [The Warning to Headline NFL Halftime at Mexico City International Game](https://www.billboard.com/music/latin/the-warning-nfl-halftime-show-mexico-city-vikings-49ers-1236329220) - Billboard
+- [Mexican rock powerhouse The Warning... - Digital Noise Mag](https://www.facebook.com/digitalnoisemag/posts/mexican-rock-powerhouse-the-warning-has-been-officially-announced-as-the-halftim/1731949678937697) - Facebook
+- [Loudwire - The Warning will play to one of their largest...](https://www.facebook.com/LoudWire/posts/the-warning-will-play-to-one-of-their-largest-global-viewing-audiences-to-date-t/1419659663368690) - Facebook
+- [The Warning Announce Massive Mexico City Show on the Heels of Landing NFL Halftime Spot](https://consequence.net/2026/09/the-warning-announce-mexico-city-concert) - Consequence
