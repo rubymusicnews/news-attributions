@@ -1,0 +1,68 @@
+# Sources for 2026-09-03 News Episode 
+- [Cassandra Wilson Dead: Grammy-Winning Jazz Musician Was 70](http://deadline.com/2026/09/cassandra-wilson-dead-1237066244/) - Deadline
+- [WBGO mourns the loss of NEA Jazz Master and two-time Grammy ...](https://www.wbgo.org/music/2026-09-02/wbgo-mourns-the-loss-of-nea-jazz-master-and-two-time-grammy-award-winning-vocalist-cassandra-wilson) - Wbgo
+- [Jazz singer Cassandra Wilson dies at 70](https://apnews.com/article/cassandra-wilson-dead-7bbf74ead70df41b8341be9e4969c3ce) - Apnews
+- [Cassandra Wilson Obituary Sep 1, 2026](https://www.legacy.com/legacy/notable-deaths/cassandra-wilson) - Legacy
+- [Cassandra Wilson, Grammy-winning jazz vocalist, dies at 70 - NPR](https://www.npr.org/2026/09/02/nx-s1-5954558/cassandra-wilson-grammy-winning-jazz-vocalist-dies-at-70) - Npr
+- [Cassandra Wilson, Jazz Singer Who Won Grammys, Dies at 70](https://www.newser.com/story/395769/cassandra-wilson-jazz-singer-who-won-grammys-dies-at-70.html) - Newser
+- [Kaskade, Electronic Music Icon, Signs With Pacific Music Group in Asia Partnership (EXCLUSIVE)](https://variety.com/2026/music/news/kaskade-signs-pacific-music-group-asia-1236849131/) - Variety
+- [Kaskade Signs With Pacific Music Group for Asia Expansion](https://variety.com/2026/music/news/kaskade-signs-pacific-music-group-asia-1236849131) - Variety
+- [Kaskade Signs With Pacific Music Group in Major Asia Partnership - EDMTunes](https://www.edmtunes.com/2026/09/kaskade-signs-with-pacific-music-group-in-major-asia-partnership) - Edmtunes
+- [Kaskade, Electronic Music Icon, Signs With Pacific Music Group in ...](https://passpar2.gr/kaskade-electronic-music-icon-signs-with-pacific-music-group-in-asia-partnership-exclusive) - Passpar2
+- [Photos: Pacific Music Group Signs Kaskade in Strategic Asia Partnership \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Photos-Pacific-Music-Group-Signs-Kaskade-in-Strategic-Asia-Partnership-20260902) - Broadwayworld
+- [EX.811 Jorja Smith](https://soundcloud.com/resident-advisor/ex-811-jorja-smith) - Soundcloud.com
+- [EX.811 Jorja Smith ⟋ RA Exchange](https://ra.co/exchange/852) - Ra
+- [Jorja Smith to headline London's O2 for first time as part of venue's 20th birthday celebrations](https://uk.news.yahoo.com/jorja-smith-headline-londons-o2-120637495.html) - Yahoo
+- [Jorja Smith Teases 'What Are The Odds' With New Single I Lied, You Lied - Stereoboard](https://www.stereoboard.com/content/view/252583/9) - Stereoboard
+- [‘So many people say things about my appearance – it’s not normal’: Jorja Smith on burnout, body-shaming and finding freedom \| Jorja Smith \| The Guardian](https://www.theguardian.com/music/2026/aug/23/jorja-smith-what-are-the-odds-interview) - Theguardian
+- [How to Identify AI Music](https://consequence.net/2026/09/how-to-identify-ai-music/) - Consequence.net
+- [How to Identify AI Music](https://consequence.net/2026/09/how-to-identify-ai-music) - Consequence
+- [Avalanches LP Boasts Cuomo, Patton, Haley Joel Osment](https://www.spinmagazine.com/2026/09/avalanches-album-track-list/) - Spinmagazine.com
+- [The Avalanches Announce Fourth Album No Bad Memories - Noise11 Music News](https://www.noise11.com/news/the-avalanches-announce-fourth-album-no-bad-memories-20260807) - Noise11
+- [The Avalanches Announce New Album No Bad Memories](https://pitchfork.com/story/the-avalanches-announce-new-album-no-bad-memories) - Pitchfork
+- [The Avalanches Reveal 31-Song Tracklist for New Album No Bad Memories](https://consequence.net/2026/09/the-avalanches-no-bad-memories-tracklist) - Consequence
+- [The Avalanches Reveal 'No Bad Memories' Tracklist Featuring Carly Simon, Mike Patton And More](https://www.stereoboard.com/content/view/252783/9) - Stereoboard
+- [The Avalanches Unveil 31-Song Tracklist For 'No Bad Memories'](https://themusic.com.au/news/the-avalanches-31-song-tracklist-no-bad-memories/rCgSvqGgo6I/03-09-26) - Themusic
+- [SPIN - The Avalanches are turning their fascination with...](https://www.facebook.com/SPIN/posts/the-avalanches-are-turning-their-fascination-with-the-detritus-of-modern-life-in/1511954764297698) - Facebook
+- [Not ‘Bad’: The Avalanches Announce New Album](https://www.yahoo.com/entertainment/music/articles/not-bad-avalanches-announce-album-154400815.html) - Yahoo
+- [Avalanches LP Boasts Cuomo, Patton, Haley Joel Osment - Yahoo](https://www.yahoo.com/entertainment/music/articles/avalanches-lp-boasts-cuomo-patton-160300032.html) - Yahoo
+- [Kacey Musgraves Performs ‘Easy’ With Troye Sivan for the First Time at MSG](http://www.rollingstone.com/music/music-news/kacey-musgraves-troye-sivan-madison-square-garden-perform-1235619385/) - Rolling Stone
+- [Troye Sivan Performs 'Easy' With Kacey Musgraves at MSG Show: Watch](https://www.billboard.com/music/country/troye-sivan-kacey-musgraves-msg-show-live-debut-easy-watch-1236331261) - Billboard
+- [SPIN](https://www.facebook.com/SPIN/posts/kacey-musgraves-celebrated-the-second-of-two-sold-out-shows-at-new-yorks-madison/1511994734293701) - Facebook
+- [Kacey Musgraves & Troye Sivan Offer 'Easy' Live Debut At ...](https://www.jambase.com/article/kacey-musgraves-troye-sivan-easy-madison-square-garden-video-setlist) - Jambase
+- [Kacey Musgraves brought out Troye Sivan for Easy but sadly no ...](https://www.threads.com/@lanikaps/post/DcxXOjDjrUw/video-kacey-musgraves-brought-out-troye-sivan-for-easy-but-sadly-no-mamdani) - Threads
+- [Weezer’s “The Gathering” Tour: How to Get Last-Minute Tickets](https://consequence.net/2026/09/weezer-the-gathering-tour-how-to-get-last-minute-tickets/) - Consequence.net
+- [Weezer's "The Gathering" Tour: How to Get Tickets](https://consequence.net/2026/09/weezer-the-gathering-tour-how-to-get-last-minute-tickets) - Consequence
+- [Weezer - The Gathering arena tour starts in Sacramento](https://www.ad-hoc-news.de/unterhaltung/musik/weezer-the-gathering-arena-tour-starts-in-sacramento/70047501) - Ad-hoc-news
+- [Weezer: The Gathering tour debuts in Sacramento Sept. 8](https://www.sacbee.com/entertainment/article317101647.html) - Sacbee
+- [Unsigned Only Music Awards Announces 2026 Winners: Brazilian Artist Artur Menezes Named Artist of the Year](https://www.prnewswire.com/news-releases/unsigned-only-music-awards-announces-2026-winners-brazilian-artist-artur-menezes-named-artist-of-the-year-302867259.html) - PRNewswire
+- [Instagram](https://www.instagram.com/p/DcwBC7xjr0u) - Instagram
+- [2026 Unsigned Only Music Awards Winners Announced - NZ Musician](https://nzmusician.co.nz/news/2026-unsigned-only-music-awards-winners-announced) - Nzmusician
+- [Michael Jackson, Beatles and Queen items to be auctioned](https://www.rte.ie/news/newslens/2026/0902/1590031-music-memorabilia-auction/) - RTE
+- [MICHAEL JACKSON, FREDDIE MERCURY, THE BEATLES, BRITNEY SPEARS & MORE HIT $4 MILLION MUSIC MEMORABILIA AUCTION - Kitsap Sun](https://www.kitsapsun.com/press-release/story/792852/michael-jackson-freddie-mercury-the-beatles-britney-spears-more-hit-4-million-music-memorabilia-auction) - Kitsapsun
+- [MICHAEL JACKSON, FREDDIE MERCURY, THE BEATLES, BRITNEY SPEARS & MORE HIT $4 MILLION MUSIC MEMORABILIA AUCTION - The Des Moines Register](https://www.desmoinesregister.com/press-release/story/119871/michael-jackson-freddie-mercury-the-beatles-britney-spears-more-hit-4-million-music-memorabilia-auction) - Desmoinesregister
+- [Music Memorabilia Live Auction - London Fall 2026](https://propstoreauction.com/auctions/catalog/id/522?page=16&cat=10522%2C10562%2C12079%2C12303&view=comp) - Propstoreauction
+- [Michael Jackson, Beatles and Queen Memorabilia to Headline €3.5 ...](https://www.nova.ie/michael-jackson-beatles-and-queen-memorabilia-to-headline-e3-5m-music-auction) - Nova
+- [E-40 Keeps It A Buck on the Streets, Larry June & More](https://www.xxlmag.com/e-40-interview/) - XXLMAG.COM
+- [E-40 Gets Real About Being Respected by the Streets, Why He No Longer Signs Rappers and Larry June's Success](https://www.xxlmag.com/e-40-interview) - Xxlmag
+- [E-40 Reflects on Longevity, No Longer Signing Rappers, and Larry June’s Rise](https://www.aceshowbiz.com/news/view/00261453.html) - Aceshowbiz
+- [Mike D Recalls Telling Ad-Rock He Was Making a Solo Album: “It Was Almost Like a Relationship”](https://consequence.net/2026/09/mike-d-ad-rock-reaction-debut-solo-album/) - Consequence.net
+- [Mike D Shares Ad-Rock’s Reaction to His Debut Solo Album](https://consequence.net/2026/09/mike-d-ad-rock-reaction-debut-solo-album) - Consequence
+- [Beastie Boys' Mike D Releases Debut Solo Album 'Thank You'](https://www.rttnews.com/amp/3687066/beastie-boys-mike-d-releases-debut-solo-album-thank-you.aspx) - Rttnews
+- [Universal Music Canada](https://www.universalmusic.ca/2026/08/28/mike-d-thank-you-debut-album-out-now) - Universalmusic
+- [Mike D of Beastie Boys' debut album 'Thank You' is out now](https://www.facebook.com/beastieboys/posts/mike-d-of-beastie-boys-debut-album-thank-you-is-out-now/1637253981095908) - Facebook
+- [Watch: Mark Lee Unveils Picturesque MV Teaser For New Solo Track “My Friend”](http://www.soompi.com/article/1867566wpp/watch-mark-lee-unveils-picturesque-mv-teaser-for-new-solo-track-my-friend) - soompi
+- ['NCT's Mark' Confirms Solo Comeback on September 10 with New Song 'My Friend' [Official] \| STARNEWS](https://www.starnewskorea.com/en/music/2026/09/02/2026090213330177322) - Starnewskorea
+- [MARK LEE is making his solo comeback with “My Friend”. The new ...](https://www.facebook.com/61554103336494/posts/mark-lee-is-making-his-solo-comeback-with-my-friendthe-new-single-is-set-to-be-r/122270041904136777) - Facebook
+- [Mark Lee (마크리) - My Friend (Official Video Teaser) - YouTube](https://youtube.com/watch?v=DVrGllbZiUI&si=e6mPNHr3Ig9y8Pva) - Youtube
+- [Mark to make solo comeback, tackle cyberbullying - The Korea Herald](https://www.koreaherald.com/article/10861360) - Koreaherald
+- [The Ocean Premiere New Single & Music Video "Ultima Esperanza" From Upcoming New Album "Solaris"](http://www.metalunderground.com/news/details.cfm?newsid=162001) - Metalunderground.com
+- [The Ocean release new music video for 'Ultima Esperanza' - Distorted Sound Magazine](https://distortedsoundmag.com/the-ocean-release-new-music-video-for-ultima-esperanza) - Distortedsoundmag
+- [Watch The Ocean's 'Ultima Esperanza' Video ::antiMusic.com](https://www.antimusic.com/p/26/r0902watch_the_oceans_ultima_esperanza_video.shtml) - Antimusic
+- [Ultima Esperanza - Metal Anarchy](https://metalanarchy.com/tag/ultima-esperanza) - Metalanarchy
+- [The Ocean Premiere New Single & Music Video "Ultima Esperanza" From Upcoming New Album "Solaris"](https://www.metalunderground.com/news/details.cfm?newsid=162001) - Metalunderground
+- [Ruthie Foster Always Sticks by Three Little Words: Just Say Yes](https://www.spinmagazine.com/2026/09/ruthie-foster-always-sticks-by-three-little-words-just-say-yes/) - Spinmagazine.com
+- [Ruthie Foster Releases New Album Just Say Yes](https://www.gratefulweb.com/articles/ruthie-foster-releases-new-album-just-say-yes) - Gratefulweb
+- [Ruthie Foster Always Sticks by Three Little Words: Just Say Yes](https://www.yahoo.com/entertainment/music/articles/ruthie-foster-always-sticks-three-130000761.html) - Yahoo
+- [Ruthie Foster – Just Say Yes - FEMMUSIC Magazine](https://femmusic.com/2026/08/28/ruthie-foster-just-say-yes-2) - Femmusic
+- [Interview: Ruthie Foster: The Long Road to Saying Yes](https://americanahighways.org/2026/08/19/interview-ruthie-foster-the-long-road-to-saying-yes) - Americanahighways
