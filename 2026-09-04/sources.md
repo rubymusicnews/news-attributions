@@ -1,0 +1,59 @@
+# Sources for 2026-09-04 News Episode 
+- [BEYONCÉ MARKS HER BIRTHDAY WITH THE RELEASE OF A REMASTERED DELUXE "B'DAY" ALBUM HER COMING-OF-AGE MASTERPIECE IS AMPLIFIED WITH UPGRADED VISUALS, SURPRISE NEW TRACKS, AND SPANISH LANGUAGE SONGS, INCLUDING COLLABORATIONS WITH MALUMA AND THE LATE SELENA](https://www.prnewswire.com/news-releases/beyonce-marks-her-birthday-with-the-release-of-a-remastered-deluxe-bday-album-her-coming-of-age-masterpiece-is-amplified-with-upgraded-visuals-surprise-new-tracks-and-spanish-language-songs-including-collaborations-with-malu-302869555.html) - PRNewswire
+- [Beyonce Announces 20th Anniversary Edition Of 'B'Day'](https://www.rttnews.com/amp/3687905/beyonce-announces-20th-anniversary-edition-of-b-day.aspx) - Rttnews
+- [Beyoncé Releases 'B'Day' Anniversary Edition With Unreleased Songs](https://variety.com/2026/music/news/beyonce-bday-20th-anniversary-duets-selena-maluma-1236851153) - Variety
+- [Beyoncé Unveils ‘B’Day’ Anniversary Album Featuring Selena, Maluma, and Celia Cruz](https://www.rollingstone.com/music/music-news/beyonce-bday-anniversary-album-selena-maluma-1235621124) - Rollingstone
+- [Odeal 'For A Good Time' Interview: Singer Talks New EP](http://www.billboard.com/music/rb-hip-hop/odeal-for-a-good-time-wizkid-interview-1236332707/) - Billboard
+- [Odeal on His New EP ‘For a Good Time,’ Wizkid’s Genius & Being Misunderstood](https://www.billboard.com/music/rb-hip-hop/odeal-for-a-good-time-wizkid-interview-1236332707) - Billboard
+- [Simple Minds Look Ahead With New LP ‘Sacrosanct’](https://www.spinmagazine.com/2026/09/simple-minds-new-album/) - Spinmagazine.com
+- [Simple Minds Announce New Album ‘Sacrosanct’ And Share ‘Beginner Boys’](https://www.xsnoize.com/simple-minds-sacrosanct-beginner-boys) - Xsnoize
+- [Simple Minds announce new album ‘Sacrosanct’, share single ‘Beginner Boys’ - RETROPOP](https://retropopmagazine.com/simple-minds-announce-new-album-sacrosanct-share-single-beginner-boys) - Retropopmagazine
+- [Simple Minds Announce New Album ‘Sacrosanct’ And 2027 Arena Tour With Gary Numan - That Eric Alper](https://www.thatericalper.com/2026/09/03/simple-minds-announce-new-album-sacrosanct-and-2027-arena-tour-with-gary-numan) - Thatericalper
+- [Simple Minds Look Ahead With New LP 'Sacrosanct' - SPIN](https://www.spinmagazine.com/2026/09/simple-minds-new-album) - Spinmagazine
+- [Simple Minds to release new album ‘Sacrosanct’ next year](https://www.classicpopmag.com/news/simple-minds-to-release-new-album-sacrosanct-next-year) - Classicpopmag
+- [Stray Kids' EP 'This & That' certified gold in France - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20260903/stray-kids-ep-this-that-certified-gold-in-france) - 코리아타임스
+- [Stray Kids achieves 6th Gold certification in France with album "THIS & THAT](https://news.laodong.vn/giai-tri/stray-kids-dat-chung-nhan-vang-thu-6-tai-phap-voi-album-this--that-1760796.ldo) - Laodong
+- [Stray Kids Earn Sixth Gold Album Certification in France - The Asia Business Daily](https://www.asiae.co.kr/en/article/entertainment-sports-all/2026090309373928367) - Asiae
+- [Stray Kids' EP 'This & That' certified gold in France - The Korea Times](https://www.koreatimes.co.kr/amp/entertainment/k-pop/20260903/stray-kids-ep-this-that-certified-gold-in-france) - Koreatimes
+- [Stray Kids Earns Sixth French Gold Certification](https://www.chosun.com/english/kpop-culture-en/2026/09/03/AJ77EP7WFZG5BJ2CUSFU72U4MU) - Chosun
+- [BABYMETAL Kick Off 2026 North American Tour with Halestorm: Video + Setlists](https://consequence.net/2026/09/babymetal-kick-off-2026-north-american-tour-halestorm/) - Consequence.net
+- [BABYMETAL Kick Off 2026 North American Tour with Halestorm: Video + Setlists](https://consequence.net/2026/09/babymetal-kick-off-2026-north-american-tour-halestorm) - Consequence
+- [BABYMETAL set to kick off 2026 North American tour \| NextMosh](https://nextmosh.com/babymetal-set-to-kick-off-2026-north-american-tour) - Nextmosh
+- [Halestorm and Babymetal's September 2026 tour schedule](https://www.facebook.com/iconmusicdaninformas/posts/lzzy-hale-and-halestorm-set-for-a-packed-september-with-babymetalafter-opening-t/1087729533776261) - Facebook
+- [Jesea Lee - BABYMETAL just kicked off their “biggest tour...](https://www.facebook.com/jesealee/posts/babymetal-just-kicked-off-their-biggest-tour-ever-on-wednesday-september-2ndafte/10164187983637545) - Facebook
+- [Twenty One Pilots Say Brazilian Fans May Be “Most Passionate in the World” Ahead of Rock in Rio Debut](https://consequence.net/2026/09/twenty-one-pilots-hail-brazilian-fans-rock-in-rio/) - Consequence.net
+- [Twenty One Pilots Say Brazilian Fans May Be “Most Passionate in the World”](https://consequence.net/2026/09/twenty-one-pilots-hail-brazilian-fans-rock-in-rio) - Consequence
+- [Twenty One Pilots dá spoiler do Rock in Rio em festival](https://billboard.com.br/twenty-one-pilots-spoiler-rock-in-rio) - Billboard
+- [Twenty One Pilots - 2026 festival run and Ohio Stadium finale](https://www.ad-hoc-news.de/unterhaltung/musik/twenty-one-pilots-2026-festival-run-and-ohio-stadium-finale/70043130) - Ad-hoc-news
+- [Oasis Are Teasing Something](https://exclaim.ca/music/article/oasis-are-teasing-something) - Exclaim!
+- [Oasis share official trailer for new documentary Don’t Look Back In Anger](https://www.pastemagazine.com/music/oasis/oasis-share-official-trailer-for-new-documentary-dont-look-back-in-anger) - Pastemagazine
+- [Grimes 'Hazily' Recalls Writing the Song 'Witch v Witch' With Charli xcx](http://www.billboard.com/music/pop/grimes-hazily-remembers-recording-charli-xcx-song-witch-v-witch-1236332596/) - Billboard
+- [Grimes 'Hazily' Recalls Writing the Song 'Witch v Witch' With Charli xcx](https://www.billboard.com/music/pop/grimes-hazily-remembers-recording-charli-xcx-song-witch-v-witch-1236332596) - Billboard
+- [Charli xcx and Grimes think leaked track is their long‑lost collab Witch v Witch \| Contactmusic.com](https://www.contactmusic.com/story/467/3601760/charli-xcx-and-grimes-think-leaked-track-is-their-long-lost-collab-witch-v-witch) - Contactmusic
+- [‘Art Sex Music’: First Look At Caroline Catz’s Doc About British Artist & Musician Cosey Fanni Tutti](http://deadline.com/2026/09/art-sex-music-caroline-catz-doc-cosey-fanni-tutti-1237065453/) - Deadline
+- ['Art Sex Magic': First Look At Doc About Cosey Fanni Tutti](https://deadline.com/2026/09/art-sex-music-caroline-catz-doc-cosey-fanni-tutti-1237065453) - Deadline
+- [New Feature Documentary on Cosey Fanni Tutti Finishes Production](https://thequietus.com/news/new-feature-documentary-on-cosey-fanni-tutti-finishes-production) - Thequietus
+- [Cosey Fanni Tutti documentary, Art Sex Music, on the way · News ⟋ RA](https://ra.co/news/85934) - Ra
+- [COBRAH, Alien Chicks, Leith Ross and more complete line-up for Iceland Airwaves](https://www.thelineofbestfit.com/news/cobrah-alien-chicks-leith-ross-and-more-complete-line-up-for-iceland-airwaves) - Thelineofbestfit.com
+- [Third wave of Iceland Airwaves 2026 artists revealed](https://thefestivals.uk/third-wave-of-iceland-airwaves-2026-artists-revealed) - Thefestivals
+- [Iceland Airwaves 2026: Final wave of artists added to line-up and day splits revealed](https://www.nme.com/news/music/iceland-airwaves-2026-final-wave-artists-added-line-up-day-splits-revealed-3966787) - Nme
+- [ICELAND AIRWAVES to Add COBRAH, ALIEN CHICKS, LEITH ROSS to 2026 Lineup \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/ICELAND-AIRWAVES-to-Add-COBRAH-ALIEN-CHICKS-LEITH-ROSS-to-2026-Lineup-20260903) - Broadwayworld
+- [Maren Morris Is Happy With Where She’s Landed: ‘I Feel Vindicated’](http://www.rollingstone.com/music/music-features/maren-morris-interview-her-place-in-country-music-1235614509/) - Rolling Stone
+- [Maren Morris Feels ‘More at Peace’ After Speaking Out](https://www.vulture.com/article/maren-morris-country-music-reflection.html) - Vulture
+- [Maren Morris Marks 10 Years of HERO With Ryman Livestream](https://wilsoncountysource.com/maren-morris-marks-10-years-of-hero-with-ryman-livestream) - Wilsoncountysource
+- [Maren Morris Marks 10 Years of HERO With Ryman Livestream](https://rutherfordsource.com/maren-morris-marks-10-years-of-hero-with-ryman-livestream) - Rutherfordsource
+- [Maren Morris at the Ryman: HERO 10th Anniversary Celebration](https://www.tiktok.com/@jordycray/video/7674617614101957901) - Tiktok
+- [Maren Morris Is Happy With Where She’s Landed: ‘I Feel Vindicated’](https://www.rollingstone.com/music/music-features/maren-morris-interview-her-place-in-country-music-1235614509) - Rollingstone
+- [Michelle Branch Teams Up with Maren Morris for Surprise Performance of ‘Goodbye to You’](https://people.com/michelle-branch-maren-morris-surprise-performance-goodbye-to-you-12062380) - People
+- [Mac Ayres: Tiny Desk Concert](https://www.npr.org/2026/09/03/g-s1-139810/mac-ayres-tiny-desk-concert) - NPR
+- [Mac Ayres Finally Gets Behind The Tiny Desk](https://www.jambase.com/article/mac-ayres-tiny-desk-concert-2026) - Jambase
+- [Mac Ayres: Tiny Desk Concert](https://knpr.org/2026-09-03/mac-ayres-tiny-desk-concert) - Knpr
+- [Mac Ayres: Tiny Desk Concert \| New Hampshire Public Radio](https://www.nhpr.org/2026-09-03/mac-ayres-tiny-desk-concert) - Nhpr
+- [DIIV Share New Single “Kid” from Upcoming Album ZIRP!: Stream](https://consequence.net/2026/09/diiv-new-single-kid-upcoming-album-zirp/) - Consequence.net
+- [DIIV Share New Single “Kid” from Upcoming Album ZIRP!](https://consequence.net/2026/09/diiv-new-single-kid-upcoming-album-zirp) - Consequence
+- [Track: DIIV share new single ‘Kid’ ahead of fifth album ‘ZIRP!’](https://www.backseatmafia.com/track-diiv-share-new-single-kid-ahead-of-fifth-album-zirp) - Backseatmafia
+- [DIIV Share Anew A. G. Cook-produced Single "Kid": Listen](https://stereogum.com/2510227/diiv-kid/music) - Stereogum
+- [DIIV Share New Single ‘Kid’ From Forthcoming Album ‘ZIRP!’](https://www.xsnoize.com/diiv-kid-zirp-new-album) - Xsnoize
+- [ADRIAN THRILLS: After her divorce, pop's girl next door Ellie Goulding is back… older and wiser](https://www.dailymail.com/tvshowbiz/article-16103739/ADRIAN-THRILLS-Ellie-Goulding-older-wiser.html) - Dailymail.com
+- [Ellie Goulding Goes Solo With "Ravers"](https://thegroovecartel.com/news/ellie-goulding-ravers) - Thegroovecartel
+- [Ellie Goulding Releases Sixth Studio Album, 'I Know Too ... - Facebook](https://www.facebook.com/MPUofficial/posts/ellie-goulding-releases-sixth-studio-album-i-know-too-muchellie-goulding-has-off/1060321856745488) - Facebook
