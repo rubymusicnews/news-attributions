@@ -1,0 +1,68 @@
+# Sources for 2026-09-05 News Episode 
+- [Blackpink’s Lisa Returns to Her Rap Roots on Solo Single ‘SaWaDiKa’](http://www.rollingstone.com/music/music-news/lisa-sawadika-single-press-play-ep-1235620810/) - Rolling Stone
+- [Chart entries, documentaries and digital EPs: the latest solo releases by Blackpink members so far](https://www.tatlerasia.com/lifestyle/entertainment/latest-solo-releases-by-blackpink-members) - Tatlerasia
+- [LISA Drops ‘SaWaDiKa’ and New Music Video: Watch](https://inmusicblog.com/k-pop/lisa-sawadika-new-song-music-video) - Inmusicblog
+- [LISA Drops 'SaWaDiKa,' Lead Single From Her EP PRESS PLAY](https://billboardphilippines.com/music/news/lisa-sawadika-thai-roots-new-single) - Billboardphilippines
+- [BLACKPINK Lisa champions her Thai roots in ‘SaWaDiKa’ music video](https://push.abs-cbn.com/entertainment/showbiz/music/2026/9/5/blackpink-lisa-champions-her-thai-roots-in-sawadika-music-video-1546) - Abs-cbn
+- [Drake Gives His Elusive ‘FOMO’ Project a Release Date](http://www.rollingstone.com/music/music-news/drake-fomo-fear-of-missing-out-release-date-1235621125/) - Rolling Stone
+- [Drake Sets Release Date for Elusive 'FOMO' Project: September 15 - That Grape Juice](https://thatgrapejuice.net/2026/09/drake-sets-release-date-for-elusive-fomo-project-september-15?amp=) - Thatgrapejuice
+- [Drake Announces 'Fear of Missing Out' Project Release Date](https://www.rollingstone.com/music/music-news/drake-fomo-fear-of-missing-out-release-date-1235621125) - Rollingstone
+- [Drake Announces 'Fear of Missing Out' YouTube Event - WiLD 94.1](https://wild941.com/2026/09/04/drake-announces-fear-of-missing-out-youtube-event) - Wild941
+- [FOMO: Drake Fans Rave Over Potential New Album](https://stanisland.com/drake-fomo-news) - Stanisland
+- [Listen to Amelie Lens' debut album, 'AURA'](https://djmag.com/news/listen-amelie-lens-debut-album-aura) - DJ Mag
+- [Win Tickets To Amelie Lens 'EXHALE' Antwerp Event This Saturday 5th September \| News \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/news/win-tickets-to-amelie-lens-exhale-antwerp-event-this-saturday-5th-september) - Clashmusic
+- [Today's Release Highlights (9/4/26)](https://theneedledrop.com/todays-release-highlights-9-4-26) - Theneedledrop
+- [Amelie Lens: Artist of the Month \| September 2026](https://www.beatportal.com/articles/1592123-artist-of-the-month-amelie-lens) - Beatportal
+- [Metaverse music update: Kacey Musgraves, Soapbox, Young Roddo](https://musically.com/2026/09/04/metaverse-music-update-kacey-musgraves-soapbox-young-roddo/) - Music Ally
+- [Metaverse music update: Kacey Musgraves, Soapbox, Young Roddo](https://musically.com/2026/09/04/metaverse-music-update-kacey-musgraves-soapbox-young-roddo) - Musically
+- [Streaming platforms are starting to police AI-generated music: real audiophiles should be pleased](https://www.livemint.com/opinion/online-views/streaming-platforms-starting-to-police-ai-generated-music-real-audiophiles-should-be-pleased-11788501280935.html) - Livemint
+- [Apple Music to Label AI-Made Tracks Later This Year](https://variety.com/2026/music/news/apple-music-to-label-ai-made-tracks-1236839371) - Variety
+- [How Each Music Listening Platform Is Treating AI Music (Updating)](https://www.billboard.com/lists/how-each-music-listening-platform-treats-ai-music) - Billboard
+- [Spotify to label 'AI personas' and exclude AI music from personal recommendations \| Entertainment News \| recorderonline.com](https://www.recorderonline.com/features/entertainment_news/spotify-to-label-ai-personas-and-exclude-ai-music-from-personal-recommendations/article_c64e13b8-4b9a-593c-927b-6e62babc2c57.html) - Recorderonline
+- [Songs created by AI banned from Australia's music charts - BBC](https://www.bbc.com/news/articles/c20vl4vm2pno) - Bbc
+- [ARIA Introduces New Rules for AI-Generated Music - Variety Australia](https://au.variety.com/2026/music/news/aria-introduces-new-rules-for-ai-generated-music-39662/) - Variety
+- [Australia’s music charts ban AI-made songs amid backlash over Madonna cover - Al Jazeera](https://www.aljazeera.com/economy/2026/8/25/australias-music-charts-ban-ai-made-songs-amid-backlash-over-madonna-cover) - Aljazeera
+- [Girl group Katseye are missing two members, but their tour still dazzles](https://www.bbc.co.uk/news/articles/cqxv49z84ppo) - BBC News
+- [Katseye Underline Their Worth At London’s The O2 Arena](https://www.clashmusic.com/live/katseye-underline-their-worth-at-londons-the-o2-arena) - Clashmusic
+- [Katseye in London: A showcase of real talent deserving of the deafening screams](https://www.thepinknews.com/2026/09/04/katseye-in-london-the-o2-review) - Thepinknews
+- [Yeat Appears to Diss Travis Scott on New Track “On Nothing”](https://pitchfork.com/story/yeat-appears-to-diss-travis-scott-on-new-track-on-nothing/) - Pitchfork
+- [Yeat seemingly responds to Travis Scott controversy in new song "ON NOTHING" - SSBCrack News](https://news.ssbcrack.com/yeat-seemingly-responds-to-travis-scott-controversy-in-new-song-on-nothing) - Ssbcrack
+- [Yeat Takes Aim at Travis Scott on New Track: 'You a Muthaf*ckin' Puppet'](https://www.complex.com/music/a/treyalston/yeat-travis-scott-diss-on-nothing-listen) - Complex
+- [Yeat Disses Travis Scott On New Song "On Nothing"](https://www.hotnewhiphop.com/1008615-yeat-disses-travis-scott-new-song-on-nothing) - Hotnewhiphop
+- [Yeat Takes Aim at Travis Scott on Surprise Diss Track “On Nothing”](https://24hip-hop.com/yeat-on-nothing-travis-scott-diss) - 24hip-hop
+- [Yeat Appears to Diss Travis Scott on Surprise New Song “ON NOTHING”](https://inmusicblog.com/rap/yeat-travis-scott-on-nothing-diss) - Inmusicblog
+- [Yeat Appears to Diss Travis Scott on New Track “On Nothing”](https://www.yahoo.com/entertainment/music/articles/yeat-appears-diss-travis-scott-213948854.html) - Yahoo
+- [9 Albums You Should Listen to Now: Chat Pile, Melissa Auf der Maur, and More](https://pitchfork.com/story/9-new-albums-you-should-listen-to-now-chat-pile-melissa-auf-der-maur-and-more/) - Pitchfork
+- [9 Albums Out This Week You Should Listen to Now](https://pitchfork.com/story/9-new-albums-you-should-listen-to-now-chat-pile-melissa-auf-der-maur-and-more) - Pitchfork
+- [Friday New Music 9/4 – The Avocado](https://the-avocado.org/2026/09/04/friday-new-music-9-4-2) - The-avocado
+- [Suno Pulls Mary J. Blige Ad, Says She Never Authorized Campaign](https://consequence.net/2026/09/suno-pulls-mary-j-blige-ad-says-she-never-authorized-campaign/) - Consequence.net
+- [Mary J. Blige Caught in Another Ad Mess as Suno Pulls Unauthorized Campaign](https://www.complex.com/music/a/bernadette-giacomazzo/suno-pulls-mary-j-blige-ai-ad) - Complex
+- [AI music generator Suno removes advert starring Mary J. Blige](https://www.yahoo.com/entertainment/music/articles/ai-music-generator-suno-removes-095607932.html) - Yahoo
+- [Suno Pulls Mary J. Blige Ad, Says She Never Authorized Campaign](https://consequence.net/2026/09/suno-pulls-mary-j-blige-ad-says-she-never-authorized-campaign) - Consequence
+- [Suno Pulls Mary J. Blige Ad Calling AI Music Generator Pretty Dope](https://se7en.ws/suno-pulls-mary-j-blige-ad-calling-ai-music-generator-pretty-dope?lang=en) - Se7en
+- [AI music company Suno pulls Mary J. Blige advertisement, says singer was ‘uncomfortable’](https://thegrio.com/2026/09/03/ai-music-company-suno-pulls-mary-j-blige-advertisement-says-singer-was-uncomfortable) - Thegrio
+- [The top 10 freakum dresses from Beyoncé’s hyper-glam B’Day era](https://www.dazeddigital.com/fashion/article/70906/1/beyonce-bday-20th-anniversary-freakum-dress-best-looks?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=the-top-10-freakum-dresses-from-beyonce-s-hyper-glam-b-day-era) - Dazed
+- [Beyoncé's 'B'Day' Album Turns 20: Look Back at Her 2006 Shoe Style](https://wwd.com/footwear-news/shoe-trends/gallery/beyonces-bday-album-turns-20-a-look-back-at-her-2006-shoe-style-1239178142) - Wwd
+- [The top 10 freakum dresses from Beyoncé’s hyper-glam B’Day era](https://www.dazeddigital.com/fashion/article/70906/1/beyonce-bday-20th-anniversary-freakum-dress-best-looks) - Dazeddigital
+- [Kelly Clarkson Hits Every Note Flawlessly in ‘Golden’ Cover From ‘KPop Demon Hunters’](https://mymodernmet.com/kelly-clarkson-golden-kpop-demon-hunters/) - My Modern Met
+- [Kelly Clarkson says goodbye to ‘The Kelly Clarkson Show’ after a successful 7-year run](https://ew.com/kelly-clarkson-ends-the-kelly-clarkson-show-after-7-years-12073591) - Ew
+- [Kelly Clarkson Sings KPop Demon Hunters' "Golden" for Final Kellyoke](https://www.nbc.com/nbc-insider/kelly-clarkson-singing-kpop-demon-hunters-golden) - Nbc
+- [Kelly Clarkson Sings Her Final 'Kellyoke' as Her Talk Show ...](https://people.com/kelly-clarkson-sings-her-final-kellyoke-as-her-talk-show-wraps-seven-season-run-12074713) - People
+- ['Golden' from Kpop Demon Hunters \| Kelly Clarkson Kellyoke Cover](https://www.youtube.com/watch?v=py_P2TI-gNg) - Youtube
+- [Kelly Clarkson Performs “Golden” From ‘Kpop Demon Hunters’ for Final Talk Show](https://www.hollywoodreporter.com/music/music-news/kelly-clarkson-golden-kpop-demon-hunters-watch-1236686374) - Hollywoodreporter
+- [Kelly Clarkson FINALLY Covers KPop Demon Hunters' 'Golden' for ...](https://www.facebook.com/EntertainmentTonight/videos/kelly-clarkson-finally-covers-kpop-demon-hunters-golden-for-last-show/1851137146260040) - Facebook
+- [Why The No Limit Records Reunion Means Everything to Hip-Hop Culture](https://www.theroot.com/why-the-no-limit-records-reunion-means-everything-to-hi-2000124405) - The Root
+- [Master P live at Smoothie King Center in New Orleans, LA - Facebook](https://www.facebook.com/groups/347727984527716/posts/1054920923808415) - Facebook
+- [How Master P built wealth through independent music deals](https://www.facebook.com/stephen.counts.9/posts/this-episode-breaks-down-how-master-p-rejected-a-major-label-advance-kept-owners/29001288906125502) - Facebook
+- [No Limit Records is Living Proof of Hip-Hop Longevity. The Tour is Legacy in Action.](https://creators.yahoo.com/lifestyle/story/no-limit-records-hip-hop-004930034.html) - Yahoo
+- [Adéla’s Risk-Taking Pays Off on ‘Prima’](http://www.rollingstone.com/music/music-album-reviews/adela-prima-album-review-1235620983/) - Rolling Stone
+- [The 5 best tracks from Adéla’s debut album, Prima](https://www.dazeddigital.com/music/article/70904/1/the-5-best-tracks-from-adela-s-debut-album-prima?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=the-5-best-tracks-from-adela-s-debut-album-prima) - Dazed
+- [Adela 'Prima' Album Review: Pop Phenom's Debut Sets Sights on Stardom](https://www.rollingstone.com/music/music-album-reviews/adela-prima-album-review-1235620983) - Rollingstone
+- [Album Review: Adela "Prima" — Showbiz by PS](https://www.showbizbyps.com/music/adela-prima-album-review) - Showbizbyps
+- [Adéla’s debut album PRIMA released on Sept. 4](https://themaneater.com/136320/move/review-adelas-debut-album-prima-redefines-what-it-means-to-love-yourself-flaws-and-all) - Themaneater
+- [ADÉLA – ‘Prima’ review: pop star’s enthralling bid for a seat at the table](https://www.nme.com/reviews/album/adela-prima-review-3966971) - Nme
+- [Adéla Jergová’s debut album is a manifesto for the pop star she intends to become](https://vogueadria.com/adela-jergova-prima-debut-album) - Vogueadria
+- [Dizzee Rascal refuses to slow down on 'We Want Bass'](https://theartsdesk.com/new-music/dizzee-rascal-refuses-slow-down-we-want-bass) - Theartsdesk
+- [Conociendo Rusia’s Mateo Sujatovich Might Be the Busiest Man in Latin Music. And That’s Just How He Likes It.](https://consequence.net/2026/09/conociendo-rusia-mateo-sujatovich-busiest-man-latin-music/) - Consequence.net
+- [Conociendo Rusia's Mateo Sujatovich Might Be the Busiest Man in Latin Music. And That's Just How He Likes It.](https://consequence.net/2026/09/conociendo-rusia-mateo-sujatovich-busiest-man-latin-music) - Consequence
+- [Mateo Sujatovich se presenta en Rosario y Santa Fe - RTS Medios](https://rtsmedios.com.ar/conociendo-rusia-mateo-sujatovich-se-presenta-en-rosario-y-santa-fe) - Rtsmedios
