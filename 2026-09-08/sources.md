@@ -1,0 +1,59 @@
+# Sources for 2026-09-08 News Episode 
+- [JISOO's 'Click' Voted Best New Music This Week](http://www.billboard.com/music/music-news/jisoo-click-best-new-music-poll-results-1236335367/) - Billboard
+- [Fans Choose JISOO’s ‘Click’ as This Week’s Favorite New Music](https://www.billboard.com/music/music-news/jisoo-click-best-new-music-poll-results-1236335367) - Billboard
+- [BLACKPINK's Lisa and Jisoo release solo singles on same day \| Yonhap News Agency](https://en.yna.co.kr/view/AEN20260904007600315) - Yna
+- [Radiohead Announce 2027 Tour Dates in Australia, Japan](https://consequence.net/2026/09/radiohead-2027-tour-dates-australia-japan/) - Consequence.net
+- [Radiohead’s Only 2027 Shows Will Be In Australia, Japan](https://www.spinmagazine.com/2026/09/radioheads-2027-concerts/) - Spinmagazine.com
+- [Radiohead announce 16 Australian shows for 2027](https://www.abc.net.au/news/2026-09-07/radiohead-australian-tour-2027-sydney-melbourne-perth/107125744) - ABC News (AU)
+- [Radiohead Announce 2027 Australia And Japan Shows](https://www.xsnoize.com/radiohead-australia-japan-2027-shows) - Xsnoize
+- [Radiohead announce 21 shows in Australia and Japan for 2027](https://nextmosh.com/radiohead-announce-21-shows-in-australia-and-japan-for-2027) - Nextmosh
+- [Radiohead announce long run of 2027 residency shows in Australia and Japan](https://www.nme.com/news/music/radiohead-announce-long-run-of-2027-residency-shows-in-australia-and-japan-buy-tickets-3967312) - Nme
+- [Radiohead reveals 2027 Australian & Japanese tour dates - The Music Universe](https://themusicuniverse.com/radiohead-reveals-2027-australian-japanese-tour-dates) - Themusicuniverse
+- [Radiohead Announce 2027 Shows In Australia & Japan](https://stereogum.com/2510566/radiohead-announce-2027-shows-in-australia-japan/news) - Stereogum
+- [Radiohead Announce 2027 Tour Dates in Australia, Japan](https://consequence.net/2026/09/radiohead-2027-tour-dates-australia-japan) - Consequence
+- [Did Jay-Z Really Get Outrapped by Eminem on ‘Renegade’?](http://www.rollingstone.com/music/music-features/jay-z-eminem-renegade-25-years-later-1235621292/) - Rolling Stone
+- [Did Jay-Z really get outrapped by Eminem on Renegade](https://rollingout.com/2026/09/07/jay-z-eminem-renegade-debate) - Rollingout
+- [Did Jay-Z Really Get Outrapped by Eminem on ‘Renegade’?](https://www.rollingstone.com/music/music-features/jay-z-eminem-renegade-25-years-later-1235621292) - Rollingstone
+- [Did Jay-Z Really Get Outrapped by Eminem on 'Renegade'?](https://au.rollingstone.com/music/music-features/jay-z-eminem-renegade-25-years-later-100745) - Rollingstone
+- [An emotional Jon Bon Jovi lights up London on his band's triumphant return to England's national stadium](https://www.loudersound.com/bands-artists/bon-jovi-light-up-london-on-triumphant-return-to-wembley-stadium) - Louder
+- [Gig Review: Bon Jovi Make A Triumphant Return To Wembley Stadium](https://www.metaltalk.net/gig-review-bon-jovi-make-a-triumphant-return-to-wembley-stadium.php) - Metaltalk
+- [Jon Bon Jovi reassures fans they will be back](https://www.rte.ie/entertainment/2026/0907/1590567-jon-bon-jovi-reassures-fans-they-will-be-back) - Rte
+- [Rauw Alejandro Shows Full Artistic Evolution During Triumphant Forest Hills Concert](http://www.rollingstone.com/music/music-latin/rauw-alejandro-live-show-forest-hills-1235622472/) - Rolling Stone
+- [Rauw Alejandro on Red Bull Chapters, NYC Show and 2027 Plans](https://www.billboard.com/music/latin/rauw-alejandro-red-bull-chapters-forest-hills-stadium-interview-1236335190) - Billboard
+- [Rauw Alejandro Evolves as an Artist During Forest Hills Performance](https://www.rollingstone.com/music/music-latin/rauw-alejandro-live-show-forest-hills-1235622472) - Rollingstone
+- [Rauw Alejandro is headlining two shows at Forest Hills. Get last-minute tickets](https://nypost.com/2026/09/01/ticket-sales/get-tickets-to-see-rauw-alejandro-at-forest-hills-stadium) - Nypost
+- [Rauw Alejandro adds another New York show as ticket demand soars](https://latination.com/rauw-alejandro-red-bull-chapters-new-york-concert) - Latination
+- [Brothers Osborne Are Taking a ‘Sellout’ Approach to Social Media](http://www.rollingstone.com/music/music-features/brothers-osborne-interview-cody-johnson-collab-social-media-1235622304/) - Rolling Stone
+- [Brothers Osborne Are Taking a ‘Sellout’ Approach to Releasing Music](https://www.rollingstone.com/music/music-features/brothers-osborne-interview-cody-johnson-collab-social-media-1235622304) - Rollingstone
+- [Brothers Osborne to Release 'Watertown' Album Honoring Maryland Hometown - WKML 95.7](https://wkml.com/2026/08/26/brothers-osborne-to-release-watertown-album-honoring-maryland-hometown) - Wkml
+- [Brothers Osborne Head Home To Their Roots On Fifth Album 'Watertown' - That Eric Alper](https://www.thatericalper.com/2026/08/24/brothers-osborne-head-home-to-their-roots-on-fifth-album-watertown) - Thatericalper
+- [Master craftsman Haruomi Hosono has a message from the heart](https://www.thelineofbestfit.com/features/interviews/haruomi-hosono-message-from-the-heart) - Thelineofbestfit.com
+- [Listen to Haruomi Hosono’s Cover of Doo-Wop Classic “Sincerely”](https://www.yahoo.com/entertainment/music/articles/listen-haruomi-hosono-cover-doo-152025998.html) - Yahoo
+- [Wizkid headlines Afro Plus Fest, marks 15 years in music](https://punchng.com/wizkid-headlines-afro-plus-fest-marks-15-years-in-music/) - The Punch
+- [Instagram](https://www.instagram.com/p/Dc_MbCqjDHB) - Instagram
+- [Wizkid headlines Afro Plus Fest, marks 15 years in music - QED.NG](https://www.qed.ng/wizkid-headlines-afro-plus-fest-marks-15-years-in-music) - Qed
+- [Wizkid thrills fans at Afro Plus Fest, celebrates 15-year music career – The Sun Nigeria](https://thesun.ng/wizkid-thrills-fans-at-afro-plus-fest-celebrates-15-year-music-career) - Thesun
+- [Wizkid Headlines Afro Plus Fest, Marks 15 Years in Music](https://punchng.com/wizkid-headlines-afro-plus-fest-marks-15-years-in-music) - Punchng
+- [Sara Landry's HEKATE label and Change The Beat launch remix competition](https://djmag.com/news/sara-landrys-hekate-label-and-change-beat-launch-remix-competition) - DJ Mag
+- [Remix contest for Sara Landry's 'Angel Dust' with Hekate Records](https://www.facebook.com/changethebeatofficial/posts/-massive-remix-contest-incoming-change-the-beat-is-incredibly-excited-to-join-fo/1114359437781177) - Facebook
+- [SYDNEY BLU - Another huge day for Change the Beat! ❤️...](https://www.facebook.com/djsydneyblu/posts/another-huge-day-for-change-the-beat-%EF%B8%8F-weve-just-announced-one-of-our-biggest-re/1623524952467339) - Facebook
+- [Country Music Sure Was Horny This Summer](http://www.rollingstone.com/music/music-features/country-music-horny-sex-summer-2026-kacey-musgraves-1235621400/) - Rolling Stone
+- [Country Music Sure Was Horny This Summer](https://www.rollingstone.com/music/music-features/country-music-horny-sex-summer-2026-kacey-musgraves-1235621400) - Rollingstone
+- [Anyma issues statement after Istanbul show cancelled over “satanic” imagery claims](https://djmag.com/news/anyma-issues-statement-after-istanbul-show-cancelled-over-satanic-imagery-claims) - DJ Mag
+- [Anyma denies 'satanic' imagery claims following Istanbul show cancellation · News ⟋ RA](https://ra.co/news/85955) - Ra
+- [Anyma Speaks Out After Istanbul ‘ÆDEN’ Tour Stop Canceled Over Alleged "Satanic" Visuals - EDMTunes](https://www.edmtunes.com/2026/09/anyma-speaks-out-after-istanbul-aeden-tour-stop-canceled-over-alleged-satanic-visuals?amp=) - Edmtunes
+- [Turkey bans Anyma concert after 'satanic' imagery claims](https://www.turkishminute.com/2026/09/03/turkey-bans-anyma-concert-after-satanic-imagery-claims) - Turkishminute
+- [Anyma speaks out after Istanbul 'ÆDEN' show cancelled over alleged "satanic" imagery, plans to appeal](https://www.bandwagon.asia/articles/anyma-speaks-out-after-istanbul-den-show-cancelled-over-alleged-satanic-imagery-plans-to-appeal) - Bandwagon
+- [Billy Joel Announces Death of Early Bandmate Jon Small](http://www.rollingstone.com/music/music-news/jon-small-billy-joel-early-band-mate-dead-obituary-1235622476/) - Rolling Stone
+- [Billy Joel pays tribute to ex-bandmate Jon Small after music producer's death](https://www.thesun.co.uk/tvandshowbiz/40302276/jon-small-dead-billy-joel-pays-tribute-ex-bandmate) - Thesun
+- [Billy Joel's Former Bandmate, Longtime Collaborator Jon Small Dead](https://www.tmz.com/2026/09/07/jon-small-dead) - Tmz
+- [Billy Joel announces death of friend and longtime collaborator Jon Small](https://www.nme.com/news/music/billy-joel-announces-death-of-friend-and-longtime-collaborator-jon-small-3967477) - Nme
+- [Billy Joel mourns friend and former drummer Jon Small](https://www.nydailynews.com/2026/09/07/jon-small-dead-billy-joel-drummer) - Nydailynews
+- [Jon Small, Drummer In Early Billy Joel Bands, Has Died](https://stereogum.com/2510614/jon-small-drummer-in-early-billy-joel-bands-has-died/news) - Stereogum
+- [Billy Joel Announces Death of Early Bandmate Jon Small](https://www.rollingstone.com/music/music-news/jon-small-billy-joel-early-band-mate-dead-obituary-1235622476) - Rollingstone
+- [Billboard - 1942 Full Year](https://post.rlsbb.cc/billboard-1942-full-year/) - Rlsbb.cc
+- [Billboard - 1940 Full Year](https://post.rlsbb.cc/billboard-1940-full-year/) - Rlsbb.cc
+- [Xdinary Heroes Confirmed To Make October Comeback](http://www.soompi.com/article/1868700wpp/xdinary-heroes-confirmed-to-make-october-comeback) - soompi
+- [Xdinary Heroes Confirm October Comeback — Their First as a Five-Member Band](https://technosports.co.in/xdinary-heroes-confirm-october-comeback) - Technosports
+- [Xdinary Heroes Confirmed To Make October Comeback \| Soompi](https://www.soompi.com/article/1868700wpp/xdinary-heroes-confirmed-to-make-october-comeback) - Soompi
+- [Xdinary Heroes set an October comeback as a five-piece with a session drummer](https://www.allkpop.com/article/2026/09/xdinary-heroes-set-an-october-comeback-as-a-five-piece-with-a-session-drummer) - Allkpop
