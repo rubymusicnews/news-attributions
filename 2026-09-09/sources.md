@@ -1,0 +1,72 @@
+# Sources for 2026-09-09 News Episode 
+- [Burna Boy, Shakira’s “Dai Dai” hits 1 billion YouTube views](https://www.vanguardngr.com/2026/09/burna-boy-shakiras-dai-dai-hits-1-billion-youtube-views/) - Vanguard
+- [Burna Boy, Shakira’s ‘Dai Dai’ Video Hits 1 Billion YouTube Views](https://leadership.ng/burna-boy-shakiras-dai-dai-video-hits-1-billion-youtube-views) - Leadership
+- [Shakira, Burna Boy’s ‘Dai Dai’ surpasses one billion YouTube views](https://gazettengr.com/shakira-burna-boys-dai-dai-surpasses-one-billion-youtube-views) - Gazettengr
+- [Burna Boy, Shakira’s ‘Dai Dai’ surpasses one billion YouTube views](https://thenationonlineng.net/burna-boy-shakiras-dai-dai-surpasses-one-billion-youtube-views) - Thenationonlineng
+- [Bruce Springsteen Releasing Opening Songs on New Concert Film](https://consequence.net/2026/09/bruce-springsteen-releasing-song-on-new-concert-film/) - Consequence.net
+- [Bruce Springsteen releases trailer for new concert film (WATCH HERE) - NJArts.net](https://www.njarts.net/bruce-springsteen-releases-trailer-for-new-concert-film-watch-here/) - Njarts
+- [Bruce Springsteen Releasing Opening Songs from New Concert Film](https://consequence.net/2026/09/bruce-springsteen-releasing-song-on-new-concert-film) - Consequence
+- [Bruce Springsteen releases trailer for new concert film (WATCH HERE)](https://www.njarts.net/bruce-springsteen-releases-trailer-for-new-concert-film-watch-here) - Njarts
+- [Bruce Springsteen Land Of Hope And Dreams Philadelphia Concert Film Set For September 9](https://www.noise11.com/news/bruce-springsteen-land-of-hope-and-dreams-philadelphia-concert-film-set-for-september-9-20260907) - Noise11
+- [Stray Kids Label Hits Music Distributor With DMCA Subpoena Over Bootleg Track](https://torrentfreak.com/stray-kids-label-hits-music-distributor-with-dmca-subpoena-over-bootleg-track/) - Torrentfreak.com
+- [Stray Kids Label Hits Music Distributor With DMCA Subpoena Over Bootleg Track * TorrentFreak](https://torrentfreak.com/stray-kids-label-hits-music-distributor-with-dmca-subpoena-over-bootleg-track) - Torrentfreak
+- [THE Biz JYP Tracks Unauthorized Distribution of Stray Kids' 💥'Back to Life'💥 "...The draft subpoena submitted by JYP to the court is quite specific. It demands not only the account holder's legal real name, actual residence, mailing and billing addresses, email, and phone number, but also date of birth, gender, occupation, and profile picture..." http://www.the-biz.co.kr 🪷 ❗️ read the entire article](https://www.threads.com/@lilyptah/post/DdA2BD1iLm3/the-biz-jyp-tracks-unauthorized-distribution-of-stray-kids-back-to-life-the) - Threads
+- [TorrentFreak - News](https://torrentfreak.com) - Torrentfreak
+- [JYPE seeks info on unauthorized distribution of Han Jisung's song](https://www.facebook.com/boddaramjii/posts/according-to-a-report-jype-has-obtained-a-dmca-subpoena-through-a-us-court-over-/1392163816451640) - Facebook
+- [(@theace0914) / X](https://x.com/theace0914/all) - X
+- [Dolly Parton Estate Will Honor the Late Singer With “Dollyfest” Instead of a Public Memorial](https://mymodernmet.com/?p=847329) - My Modern Met
+- [Dolly Parton’s Estate Announces DollyFest Following Her Death](https://okmagazine.com/p/dolly-parton-legacy-honored-dollyfest-traditional-memorial) - Okmagazine
+- [Dolly Parton’s Manager Sides With Bad Wolves in Cover Song Dispute \| 94.5 The Buzz](https://thebuzz.iheart.com/alternate/amp/2026-09-01-music-dolly-partons-manager-sides-with-bad-wolves-in-cover-song-dispute) - Iheart
+- [This Is How Dolly Parton Will Be Celebrated Instead Of A Memorial Service - Yahoo News Malaysia](https://malaysia.news.yahoo.com/dolly-parton-celebrated-instead-memorial-211929803.html) - Yahoo
+- [Dolly Parton estate confirm inaugural “star-studded” two-day DollyFest 2027 for Nashville and London](https://www.nme.com/news/music/dolly-parton-estate-confirm-inaugural-star-studded-two-day-dollyfest-2027-for-nashville-and-london-3966360) - Nme
+- [Dolly Parton estate announces DollyFest 2027 \| KTLA](https://ktla.com/news/dolly-parton-estate-announces-dollyfest-2027) - Ktla
+- [EXCLUSIVE: Jay-Z 'Facing Huge Fine' After Breaking UK Concert Curfew by Just Six Minutes](https://radaronline.com/p/jay-z-london-concert-curfew-six-minutes-huge-fine/) - Radaronline.com
+- [EXCLUSIVE: Jay-Z 'Facing Huge Fine' After Breaking UK Concert Curfew by Just Six Minutes](https://radaronline.com/p/jay-z-london-concert-curfew-six-minutes-huge-fine) - Radaronline
+- [Jay-Z 'warned over strict curfew' at London shows - Yahoo News UK](https://uk.news.yahoo.com/jay-z-warned-over-strict-070000002.html) - Yahoo
+- [Jay-Z &#39;warned over strict curfew&#39; at London shows \| Yardbarker](https://www.yardbarker.com/entertainment/articles/jay_z_warned_over_strict_curfew_at_london_shows/s1_17464_44270137) - Yardbarker
+- [The Dance-Pop Singer That Argentines Treat As A Saint, Complete With Prayers, Shrines And Miracles](https://apnews.com/article/argentina-gilda-legend-popular-saints-francis-pope-leo-catholicism-c6163728973809aa5e952078cc256f2d) - Associated Press
+- [30 years after her death, Gilda embodies Argentina’s enduring faith in folk saints](https://abcnews.com/International/wireStory/30-years-after-death-gilda-embodies-argentinas-enduring-136264610) - Abcnews.com
+- [30 years after her death, Gilda embodies Argentina’s enduring faith in folk saints](https://abcnews.com/Entertainment/wireStory/30-years-after-death-gilda-embodies-argentinas-enduring-136264611) - Abcnews.com
+- [30 years after her death, Gilda embodies Argentina’s enduring faith in folk saints](https://www.krqe.com/news/world/ap-30-years-after-her-death-gilda-embodies-argentinas-enduring-faith-in-folk-saints) - Krqe
+- [30 years after her death, Gilda embodies Argentina’s enduring faith in folk saints](https://www.bozemandailychronicle.com/wire/international/30-years-after-her-death-gilda-embodies-argentina-s-enduring-faith-in-folk-saints/article_464789df-3eeb-5715-84f1-5d6f343a4892.html) - Bozemandailychronicle
+- [30 years after her death, Gilda remains a revered folk saint in Argentina](https://unb.com.bd/category/Entertainment/30-years-after-her-death-gilda-remains-a-revered-folk-saint-in-argentina/194943) - Unb
+- [30 years after her death, Gilda embodies Argentina’s enduring faith in folk saints \| National News \| ottumwacourier.com](https://www.ottumwacourier.com/news/national_news/30-years-after-her-death-gilda-embodies-argentina-s-enduring-faith-in-folk-saints/article_a0023798-c1b4-5db0-a51c-9ee9c1dc291e.html) - Ottumwacourier
+- [Where to buy iHeartRadio Music Festival tickets: BTS, Benson Boone, and more](https://www.businessinsider.com/guides/tickets/where-to-buy-iheartradio-music-festival-tickets#article) - Business Insider
+- [iHeartRadio Music Festival tickets 2026: Shop the best prices, dates, lineup for 2026 festival in Las Vegas \| Sporting News](https://www.sportingnews.com/us/tickets/news/iheartradio-music-festival-tickets-2026-prices-dates-lineup-2026/f11df00393fe263983be37bb) - Sportingnews
+- [Where to Buy IHeartRadio Music Festival Tickets: BTS, Benson Boone, and More - Business Insider](https://www.businessinsider.com/guides/tickets/where-to-buy-iheartradio-music-festival-tickets) - Businessinsider
+- [iHeartRadio Music Festival tickets on sale in Las Vegas](https://www.ticketnews.com/2026/06/iheartradio-music-festival-tickets-on-sale-in-las-vegas) - Ticketnews
+- [iHeartRadio Music Festival - Volatix](https://volatix.io/event/Z7r9jZ1A7OSvd) - Volatix
+- [Alex Van Halen Calls Sammy Hagar a “Complete Idiot,” Red Rocker Responds](https://consequence.net/2026/09/alex-van-halen-sammy-hagar-idiot-response/) - Consequence.net
+- [Alex Van Halen Calls Sammy Hagar a 'Complete Idiot' in Recent Interview](https://www.yahoo.com/entertainment/music/articles/alex-van-halen-calls-sammy-015951195.html) - Yahoo
+- [Alex Van Halen blasts Sammy Hagar as 'a complete idiot,' reigniting decades-long feud](https://pagesix.com/2026/09/08/entertainment/alex-van-halen-blasts-sammy-hagar-as-a-complete-idiot-reigniting-decades-long-feud) - Pagesix
+- [Alex Van Halen Calls Sammy Hagar a "Complete Idiot," Sammy Responds](https://consequence.net/2026/09/alex-van-halen-sammy-hagar-idiot-response) - Consequence
+- ["This comment is so unnecessary at this time in our lives, but I guess the truth hurts." Sammy Hagar responds to Alex Van Halen calling him "a complete idiot"](https://www.loudersound.com/bands-artists/sammy-hagar-responds-to-alex-van-halen-calling-him-a-complete-idiot) - Loudersound
+- [Alex Van Halen Calls Sammy Hagar an ‘Idiot’—Now the Red Rocker Has Responded](https://wcsx.com/2026/09/07/alex-van-halen-calls-sammy-hagar-an-idiot-now-the-red-rocker-has-responded) - Wcsx
+- [SAMMY HAGAR Responds To ALEX VAN HALEN's 'Idiot' Slam: 'I Guess The Truth Hurts Sometimes' - BLABBERMOUTH.NET](https://blabbermouth.net/news/sammy-hagar-responds-to-alex-van-halens-idiot-slam-i-guess-the-truth-hurts-sometimes) - Blabbermouth
+- [Bruce Springsteen's Favorite Song Is a Frank Sinatra Classic](https://www.mentalfloss.com/entertainment/music/bruce-springsteen-favorite-song) - Mental Floss
+- [Bruce Springsteen's Favorite Song Is a Frank Sinatra Classic - Yahoo News Canada](https://ca.news.yahoo.com/bruce-springsteens-favorite-song-frank-140004150.html) - Yahoo
+- [Spiritbox Unleash New Song “Mourning”: Stream](https://consequence.net/2026/09/spiritbox-mourning/) - Consequence.net
+- [Spiritbox Premiere New Single & Music Video "Mourning"](https://www.metalunderground.com/news/details.cfm?newsid=162036) - Metalunderground
+- [SPIRITBOX Surprise-Releases New Single 'Mourning' - BLABBERMOUTH.NET](https://blabbermouth.net/news/spiritbox-surprise-releases-new-single-mourning) - Blabbermouth
+- [Spiritbox Unleash New Song “Mourning”: Stream](https://consequence.net/2026/09/spiritbox-mourning) - Consequence
+- [Spiritbox Drop Surprise New Song "Mourning"](https://numetalagenda.com/spiritbox-drop-surprise-new-song-mourning) - Numetalagenda
+- [Spiritbox Unveil Atmospheric New Single “Mourning”](https://music.mxdwn.com/2026/09/08/news/spiritbox-unveil-atmospheric-new-single-mourning) - Mxdwn
+- [Karrahbooo Never Really Got a Chance. Now She Wants One](http://www.rollingstone.com/music/music-features/karrahbooo-yachty-new-album-not-da-2-1235622142/) - Rolling Stone
+- [Allow Karrahbooo to Reintroduce Herself - Rolling Stone](https://www.rollingstone.com/music/music-features/karrahbooo-yachty-new-album-not-da-2-1235622142) - Rollingstone
+- [9 Albums Out This Week You Should Listen to Now](https://pitchfork.com/story/9-new-albums-you-should-listen-to-now-chat-pile-melissa-auf-der-maur-and-more) - Pitchfork
+- [Karrahbooo Reveals “Not Da 2” Mixtape Tracklist](https://hip-hopvibe.com/news/karrahbooo-reveals-tracklist-for-debut-mixtape-not-da-2-monaleo-lil-yachty-and-more-featured) - Hip-hopvibe
+- [Trey Anastasio, Billy Strings Team For November Benefits](https://www.spinmagazine.com/2026/09/trey-anastasio-billy-strings-benefit/) - Spinmagazine.com
+- [Trey Anastasio, Billy Strings team for Divided Sky benefit at DCU](https://www.telegram.com/story/entertainment/music/2026/09/08/trey-anastasio-billy-strings-team-for-divided-sky-benefit-at-dcu/91664199007) - Telegram
+- [Trey Anastasio, Billy Strings unite for two special benefit concerts - The Music Universe](https://themusicuniverse.com/trey-anastasio-billy-strings-unite-for-two-special-benefit-concerts) - Themusicuniverse
+- [Trey Anastasio, Billy Strings Team For November Benefits - SPIN](https://www.spinmagazine.com/2026/09/trey-anastasio-billy-strings-benefit) - Spinmagazine
+- [Trey Anastasio & Billy Strings To Join Forces For Divided Sky Benefit Shows](https://liveforlivemusic.com/news/announce/trey-anastasio-billy-strings-divided-sky-benefit-shows) - Liveforlivemusic
+- [Arab Strap Stares Down Corrupt Leaders, Climate Change, and Jock Itch on ‘Half-Told Tales’](https://www.spinmagazine.com/2026/09/arab-strap-stares-down-corrupt-leaders-climate-change-and-jock-itch-on-half-told-tales/) - Spinmagazine.com
+- [Arab Strap - Half-Told Tales \| Album Reviews \| musicOMH](https://www.musicomh.com/reviews/albums/arab-strap-half-told-tales) - Musicomh
+- [Arab Strap - 'Half-Told Tales' album review](https://faroutmagazine.co.uk/arab-strap-half-told-tales-album-review) - Faroutmagazine
+- [Album review: Arab Strap - 'Half-Told Tales' - is this music?](https://www.isthismusic.com/arab-strap-15) - Isthismusic
+- [Arab Strap Stares Down Corrupt Leaders, Climate Change, and Jock Itch on ‘Half-Told Tales’ - SPIN](https://www.spinmagazine.com/2026/09/arab-strap-stares-down-corrupt-leaders-climate-change-and-jock-itch-on-half-told-tales) - Spinmagazine
+- [An Interview with Aidan Moffat & Malcolm Middleton of Arab Strap - On: Yorkshire Magazine](https://www.on-magazine.co.uk/arts/arts-interviews/aidan-moffat-malcolm-middleton-arab-strap) - On-magazine
+- [VOTE: Better '90s 3-Album Streak - Alice in Chains vs. Pearl Jam](https://loudwire.com/better-90s-3-album-streak-alice-in-chains-vs-pearl-jam/) - Loudwire
+- [VOTE: Better '90s 3-Album Streak - Alice in Chains vs. Pearl Jam](https://diffuser.fm/ixp/366/p/vote-better-90s-3-album-streak-alice-in-chains-vs-pearl-jam) - Diffuser
+- [Best 'Sophomore Slump' Busting Albums of Each Year of the 1990s](https://loudwire.com/best-sophomore-slump-busting-albums-each-year-1990s) - Loudwire
+- [VOTE: Better '90s 3-Album Streak - Alice in Chains vs. Pearl Jam](https://loudwire.com/better-90s-3-album-streak-alice-in-chains-vs-pearl-jam) - Loudwire
