@@ -1,0 +1,64 @@
+# Sources for 2026-09-10 News Episode 
+- [V on BTS, success and what he’d tell his younger self](https://www.dazeddigital.com/music/article/70914/1/v-dazed-cover-interview-bts-k-pop-veil-j-hope-rm?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=v-on-bts-success-and-what-he-d-tell-his-younger-self) - Dazed
+- [V on BTS, success and what he'd tell his younger self - Dazed](https://www.dazeddigital.com/music/article/70914/1/v-dazed-cover-interview-bts-k-pop-veil-j-hope-rm) - Dazeddigital
+- [Suno launches AI music models trained on licensed Warner and BMG catalogue](https://thenextweb.com/news/suno-v6-warner-bmg-believe-licensed-models) - The Next Web
+- [Suno launches v6 AI music models in partnership with WMG, BMG, and Believe](https://www.musicbusinessworldwide.com/suno-v6-ai-music-models-launch-in-partnership-with-wmg-bmg-and-believe) - Musicbusinessworldwide
+- [Suno Tries to Break Into Music Mainstream With New Label ...](https://variety.com/2026/music/news/suno-new-label-backed-model-v6-1236855351) - Variety
+- [Suno Launches New AI Model Trained on Licensed WMG, BMG Tracks](https://www.hollywoodreporter.com/music/music-industry-news/suno-launches-new-model-trained-on-licensed-songs-1236694047) - Hollywoodreporter
+- [Suno Debuts v6 AI Music Models Built With Warner Music and BMG, Paving Way for Artist-Led Experiences — BigGo Finance](https://finance.biggo.com/news/84a0607b-5ab9-4f5b-bbd4-8168b3ca335f) - Biggo
+- [Suno Launches First AI Music Models ‘in Partnership With the Music Industry’](https://www.billboard.com/pro/suno-launches-ai-music-models-partnership-with-music-biz) - Billboard
+- [See Slipknot’s Spooky Video for ‘Arsenal,’ Their First Song Since Sid Wilson Departure](http://www.rollingstone.com/music/music-news/slipknot-new-song-arsenal-1235623937/) - Rolling Stone
+- [Slipknot Unleash Surprise Single “ARSENAL,” First New Song in Three Years: Stream](https://consequence.net/2026/09/slipknot-new-song-arsenal/) - Consequence.net
+- [Slipknot Drop First New Song With Eloy Casagrande](https://loudwire.com/slipknot-arsenal-video/) - Loudwire
+- [Slipknot Fans React to Band's New Song 'Arsenal'](https://loudwire.com/slipknot-arsenal-reactions/) - Loudwire
+- [Slipknot's New Song 'Arensal' - Lyrics](https://loudwire.com/slipknot-arsenal-lyrics/) - Loudwire
+- [Comment JAŸ-Z a changé l’histoire de la musique, en 10 moments clés](https://www.lesinrocks.com/musique/comment-jay-z-a-change-lhistoire-de-la-musique-en-10-moments-cles-701923-09-09-2026/) - Les Inrocks
+- [Paris: The Most Anticipated Concerts of 2026 - Sortiraparis.com](https://www.sortiraparis.com/en/what-to-see-in-paris/concerts-music-festival/guides/103407-paris-the-most-anticipated-concerts-of-2026) - Sortiraparis
+- [Nirvana to Receive Video Vanguard Award at MTV VMAs 2026](https://www.justjared.com/2026/09/09/nirvana-to-receive-video-vanguard-award-at-mtv-vmas-2026/) - Just Jared
+- [Nirvana to Receive Video Vanguard Award at VMAs](http://www.rollingstone.com/music/music-news/nirvana-mtv-vmas-video-vanguard-award-1235623655/) - Rolling Stone
+- [Nirvana Set For VMAs Video Vanguard Award](http://deadline.com/2026/09/nirvana-2026-vma-video-vanguard-award-1237072477/) - Deadline
+- [MTV VMAs 2026 Set to Honor Nirvana with Video Vanguard Award](https://bleedingcool.com/tv/mtv-vmas-2026-set-to-honor-nirvana-with-video-vanguard-award/) - Bleeding Cool News
+- [Nirvana Tapped For Video Vanguard Award At MTV VMAs](https://www.spinmagazine.com/2026/09/nirvana-vmas-video-vanguard/) - Spinmagazine.com
+- [After Surviving the ‘Hurricane’ of Eurovision, Eden Golan Is Still Standing](http://www.rollingstone.com/music/music-features/eden-golan-interview-imperfections-eurovision-hurricane-1235623326/) - Rolling Stone
+- [Eden Golan discusses her debut album 'Imperfections,' the political ...](https://www.facebook.com/RollingStone/posts/eden-golan-discusses-her-debut-album-imperfections-the-political-firestorm-surro/1437841458203916) - Facebook
+- [After Surviving the 'Hurricane' of Eurovision, Eden Golan Is Still ...](https://www.rollingstone.com/music/music-features/eden-golan-interview-imperfections-eurovision-hurricane-1235623326) - Rollingstone
+- [Billy Joel Says Concerts Were ‘Causing Damage To My Brain Nerves’ Whenever He Played Live](http://www.rollingstone.com/music/music-news/billy-joel-concerts-damage-brain-nerves-1235623880/) - Rolling Stone
+- [Billy Joel: Loud Concerts Were “Causing Damage to My Brain”](https://consequence.net/2026/09/billy-joel-loud-concerts-damage-brain/) - Consequence.net
+- [Billy Joel discloses he underwent brain surgery after scary new diagnosis: ‘I’m not going anywhere’](https://pagesix.com/2026/09/09/celebrity-news/billy-joel-discloses-he-underwent-brain-surgery-after-scary-new-diagnosis/) - Page Six
+- [Billy Joel reveals brain surgery, says concerts gave him concussion-like damage](https://www.washingtontimes.com/news/2026/sep/9/billy-joel-reveals-brain-surgery-says-concerts-gave-concussion-like) - Washingtontimes
+- [Billy Joel addresses his health, tells fans not to worry: 'I'm still here'](https://abcnews.com/GMA/Culture/billy-joel-addresses-health-tells-fans-not-to-worry/story?id=136312343) - Abcnews
+- [Billy Joel Reveals Brain Surgery After Hydrocephalus Diagnosis](https://www.siriusxm.com/blog/billy-joel-health-update) - Siriusxm
+- [Billy Joel tells fans: Don't worry about me - Yahoo Style Canada](https://ca.style.yahoo.com/billy-joel-tells-fans-dont-010000629.html) - Yahoo
+- [Billy Joel says loud concerts were harming his brain as he details recovery from brain disorder \| Contactmusic.com](https://www.contactmusic.com/story/467/3606035/billy-joel-says-loud-concerts-were-harming-his-brain-as-he-details-recovery-from-brain-disorder) - Contactmusic
+- [Billy Joel reveals he underwent surgery that he initially said no to \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/billy-joel-health-latest-next-tour-b3047761.html) - Independent
+- [Tame Impala rocker issues apology after announcing that he will refuse to sign autographs: 'I love meeting fans'](https://www.dailymail.com/tvshowbiz/article-16117503/tame-impala-kevin-parker-autograph-fans-tour-instagram.html) - Dailymail.com
+- [Tame Impala’s Kevin Parker announces ban on autographs, explains decision: ‘Don’t be offended’  \| Nine.com.au](https://www.nine.com.au/entertainment/celebrity/tame-impala-kevin-parker-explains-ban-autographs-photos-in-public-20260909-p60vo3.html) - Nine
+- [Tame Impala’s Kevin Parker Explains Why He Won’t Sign Autographs Anymore: ‘Don’t Be Offended’](https://www.yahoo.com/entertainment/music/articles/tame-impala-kevin-parker-explains-203150343.html) - Yahoo
+- [Tame Impala' refuses autographs after 'aggressive' fan encounters \| The Express Tribune](https://tribune.com.pk/story/2628345/tame-impala-refuses-autographs-after-aggressive-fan-encounters?amp=1) - Tribune
+- [Tame Impala' refuses autographs after 'aggressive' fan encounters](https://tribune.com.pk/story/2628345/tame-impala-refuses-autographs-after-aggressive-fan-encounters) - Tribune
+- [Tame Impala’s Kevin Parker Reveals Why He Refuses To Sign Autographs: 'Don’t Be Offended'](https://www.iheart.com/content/2026-09-09-tame-impalas-kevin-parker-reveals-why-he-refuses-to-sign-autographs-dont-be-offended) - Iheart
+- [Miley Cyrus Draws Unprecedented Ticketmaster Demand for Hollywood Bowl Shows Amid New Music Era](https://www.justjared.com/2026/09/09/miley-cyrus-draws-unprecedented-ticketmaster-demand-for-hollywood-bowl-shows-amid-new-music-era/) - Just Jared
+- [Miley Hollywood Bowl tickets: How to get in during busy presale rush](https://www.cleveland.com/live-entertainment/2026/09/the-wild-scramble-for-miley-hollywood-bowl-tickets-and-how-you-can-still-get-seats.html) - Cleveland
+- [Miley Cyrus Draws Unprecedented Ticketmaster Demand for Hollywood Bowl Shows Amid New Music Era \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/09/miley-cyrus-draws-unprecedented-ticketmaster-demand-for-hollywood-bowl-shows-amid-new-music-era) - Justjared
+- [Miley Announces Two-Night Stand At LA's Hollywood Bowl To Promote Her Latest Album - Pollstar News](https://news.pollstar.com/2026/09/01/miley-cyrus-announces-two-night-stand-at-las-hollywood-bowl-to-promote-her-latest-album) - Pollstar
+- [Miley Cyrus Announces New Album Bass Persuades, Confirms Los Angeles Shows](https://consequence.net/2026/09/miley-cyrus-bass-persuades-new-album-los-angeles-shows) - Consequence
+- [Miley Cyrus Announces ‘Vulnerable’ New Album ‘Bass Persuades’ Along With Hollywood Bowl Shows](https://www.yahoo.com/entertainment/music/articles/miley-cyrus-announces-vulnerable-album-164152063.html) - Yahoo
+- [Miley Cyrus drops last name, announces Hollywood Bowl shows](https://www.nbclosangeles.com/news/local/miley-cyrus-drops-last-name-announces-hollywood-bowl-shows/3936733) - Nbclosangeles
+- [The War on Drugs Return, Not a Moment Too Soon, With ‘Who’s That’](http://www.rollingstone.com/music/music-news/the-war-on-drugs-new-song-whos-that-1235621784/) - Rolling Stone
+- [The War on Drugs Return with “Who’s That,” First New Studio Recording in Four Years: Stream](https://consequence.net/2026/09/the-war-on-drugs-whos-that-new-song/) - Consequence.net
+- [Listen to the War on Drugs‘ First Song in Four Years](https://pitchfork.com/story/listen-to-the-war-on-drugs-new-song-whos-that/) - Pitchfork
+- [‘Who’s’ Next? It’s A New War On Drugs Song](https://www.spinmagazine.com/2026/09/war-on-drugs-new-song/) - Spinmagazine.com
+- [The War On Drugs return with new song, "Who's That"](https://www.thelineofbestfit.com/news/the-war-on-drugs-return-with-new-song-whos-that) - Thelineofbestfit.com
+- [Spice Girls post cryptic video full of clues following months of reunion rumours as they send fans into a frenzy](https://www.dailymail.com/tvshowbiz/article-16118263/Spice-Girls-post-cryptic-video-clues-following-months-reunion-rumours-send-fans-frenzy.html) - Dailymail.com
+- [Spice Girls tease huge reunion as they send fans wild with cryptic announcement](https://www.thesun.co.uk/tvandshowbiz/40324677/spice-girls-tease-huge-reunion-with-cryptic-announcement) - Thesun
+- [Spice Girls tease comeback in cryptic post and fans are freaking out \| Metro News](https://metro.co.uk/2026/09/09/spice-girls-tease-comeback-cryptic-post-fans-freaking-29571468) - Metro
+- [Spice Girls ignite comeback speculation with cryptic callout to fans \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/spice-girls-cryptic-advert-fans-b3047394.html) - Independent
+- [Spice Girls reunion incoming? Cryptic 30th anniversary post sends fans into ‘panic mode’](https://m.economictimes.com/news/international/global-trends/spice-girls-reunion-incoming-cryptic-30th-anniversary-post-sends-fans-into-panic-mode/amp_articleshow/133995279.cms) - Economictimes
+- [The Beatles Album That Helped Inspire Otis Redding's Biggest Hit](https://www.mentalfloss.com/entertainment/music/beatles-album-inspired-otis-redding) - Mental Floss
+- [The Beatles Album That Helped Inspire Otis Redding's Biggest Hit - Yahoo News Canada](https://ca.news.yahoo.com/beatles-album-helped-inspire-otis-000004718.html) - Yahoo
+- [Fire in the Skies: the Story of Deep Purple’s “Smoke on the Water.”](https://anglotopia.net/british-music-british-entertainment/fire-in-the-skies-the-story-of-deep-purples-smoke-on-the-water/) - Anglotopia.net
+- [Fire in the Skies: the Story of Deep Purple’s “Smoke on the Water.”](https://anglotopia.net/british-music-british-entertainment/fire-in-the-skies-the-story-of-deep-purples-smoke-on-the-water) - Anglotopia
+- [Deep Purple's 'Smoke on the Water' Made Pavarotti Jealous, Says Ian Gillan](https://www.yahoo.com/entertainment/music/articles/deep-purples-smoke-water-made-111200099.html) - Yahoo
+- [Saint Abdullah and Eomac return to Planet Mu with new album, share single: Listen](https://djmag.com/news/saint-abdullah-and-eomac-return-planet-mu-new-album-share-single-listen) - DJ Mag
+- [Saint Abdullah & Eomac Announce New Album 'When The Sandbox Has No Edge'  \| News \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/news/saint-abdullah-eomac-announce-new-album-when-the-sandbox-has-no-edge) - Clashmusic
+- [Saint Abdullah & Eomac announce new album When The Sandbox Has No Edge](https://nialler9.com/saint-abdullah-eomac-when-the-sandbox-has-no-edge-album) - Nialler9
