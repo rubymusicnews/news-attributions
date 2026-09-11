@@ -1,0 +1,81 @@
+# Sources for 2026-09-11 News Episode 
+- [Harry Styles Announces 2027 “Together Together” Tour Dates](https://consequence.net/2026/09/harry-styles-2027-together-together-tour-dates/) - Consequence.net
+- [Harry Styles Announces Ticketing Details for 2027 “Together Together” Tour Dates](https://consequence.net/2026/09/harry-styles-2027-together-together-tour-ticket-details/) - Consequence.net
+- [Harry Styles Announces More 2027 Together, Together Tour Dates Are Coming: ‘I Hope to See You There’](http://www.rollingstone.com/music/music-news/harry-styles-2027-together-together-tour-dates-coming-1235624191/) - Rolling Stone
+- [Harry Styles Hints at Another Break When ‘Together, Together’ Tour Ends](https://www.usmagazine.com/celebrity-news/news/harry-styles-hints-at-taking-another-break-when-tour-ends/) - Us Weekly
+- [Harry Styles unveils 2027 Together, Together tour dates with Kylie Minogue and Tears For Fears among major support acts \| Contactmusic.com](https://www.contactmusic.com/story/469/3606249/harry-styles-unveils-2027-together-together-tour-dates-with-kylie-minogue-and-tears-for-fears-among-major-support-acts) - Contactmusic
+- [Harry Styles Announces 2027 "Together Together" Tour Dates](https://consequence.net/2026/09/harry-styles-2027-together-together-tour-dates) - Consequence
+- [Harry Styles 2027 tour dates – 25 new shows in North America, Europe](https://www.usatoday.com/story/entertainment/music/2026/09/10/harry-styles-2027-tour-dates/91686154007) - Usatoday
+- [Harry Styles expands "Together, Together" tour 2027](https://karlobag.eu/en/music/harry-styles-expands-together-together-with-25-stadium-concerts-across-north-ame-dihap) - Karlobag
+- [Harry Styles announces 2027 dates for the 'Together, Together' tour: When tickets go on sale, presale times, prices and more](https://www.yahoo.com/entertainment/music/article/harry-styles-announces-2027-dates-for-the-together-together-tour-when-tickets-go-on-sale-presale-times-prices-and-more-181909539.html) - Yahoo
+- [U2 Named MusiCares 2027 Persons of the Year](https://pitchfork.com/story/u2-named-musicares-2027-persons-of-the-year/) - Pitchfork
+- [U2 to Be Honored as MusiCares’ 2027 Persons of the Year](http://www.rollingstone.com/music/music-news/u2-musicares-2027-persons-of-the-year-1235624168/) - Rolling Stone
+- [U2 Honored as 2027 MusiCares Persons of the Year](https://consequence.net/2026/09/u2-2027-musicares-persons-of-the-year/) - Consequence.net
+- [MusiCares to honor U2 as 2027 Persons of the Year at star-studded Grammy-weekend gala](https://abcnews.com/Entertainment/wireStory/musicares-honor-u2-2027-persons-year-star-studded-136340212) - Abcnews.com
+- ['2027 Persons of the Year' – U2.com](https://www.u2.com/blogs/news/2027-persons-of-the-year) - U2
+- [U2 Named MusiCares 2027 Persons of the Year](https://variety.com/2026/music/news/u2-musicares-2027-persons-of-the-year-1236856791) - Variety
+- [MusiCares to honor U2 as 2027 Persons of the Year at a star-studded Grammy-weekend gala](https://www.bozemandailychronicle.com/wire/lifestyles/musicares-to-honor-u2-as-2027-persons-of-the-year-at-a-star-studded-grammy/article_3e913e29-4757-5a83-b246-6603ddbe3606.html) - Bozemandailychronicle
+- [Spice Girls announce The Singles Collection with unreleased recordings 'and a few surprises from the vault' to celebrate the 30th anniversary of the release of their debut single Wannabe](https://www.dailymail.com/tvshowbiz/article-16120749/Spice-Girls-announce-Singles-Collection-unreleased-recordings-surprises-vault-celebrate-30th-anniversary-release-debut-single-Wannabe.html) - Dailymail.com
+- [Spice Girls announce The Singles Collection with rare unreleased demo to mark Spice 30th anniversary - Castanet.net](https://www.castanet.net/news/Entertainment/630805/Spice-Girls-announce-The-Singles-Collection-with-rare-unreleased-demo-to-mark-Spice-30th-anniversary) - Castanet
+- [Spice Girls announce The Singles Collection with unreleased recordings 'and a few surprises from the vault' to celebrate the 30th anniversary of the release of their debut single Wannabe](https://www.dailymail.com/tvshowbiz/article-16120749/amp/Spice-Girls-announce-Singles-Collection-unreleased-recordings-surprises-vault-celebrate-30th-anniversary-release-debut-single-Wannabe.html) - Dailymail
+- [Spice Girls Announce ‘The Singles Collection’ With 4 Unreleased Demos - Release Date Revealed! - Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/video/ubc3o05b0biez) - Justjared
+- [Spice Girls unveil 30th anniversary singles box set as tour hopes dashed](https://www.inkl.com/news/spice-girls-unveil-30th-anniversary-singles-box-set-as-tour-hopes-dashed) - Inkl
+- [Spice Girls fans livid over group's merch drop after teasing major announcement](https://pagesix.com/2026/09/10/entertainment/spice-girls-fans-livid-over-groups-merch-drop-after-teasing-major-announcement) - Pagesix
+- [Migos Will Return With New Music and a Tour](https://www.xxlmag.com/migos-quavo-new-music-tour/) - XXLMAG.COM
+- [Quavo confirms final Migos album with Offset and reunion tour](https://streamlinefeed.co.ke/news/quavo-confirms-final-migos-album-with-offset-and-reunion-tour) - Streamlinefeed
+- [Quavo On "QRÖMELIFE," Working with Pharrell & Migos Reunion](https://hotspotatl.com/6822286/quavo-qromelife-interview-holiday-season-live) - Hotspotatl
+- [Migos Will Return With New Music and a Tour](https://www.xxlmag.com/migos-quavo-new-music-tour) - Xxlmag
+- [Quavo and Offset Reuniting for One Final Migos Album: 'We Coming Back'](https://www.complex.com/music/a/alex-ocho/quavo-migos-final-album-offset-reunion-tour) - Complex
+- [How Bonobo learned to get off the wheel](https://www.thelineofbestfit.com/features/interviews/bonobo-learned-to-get-off-the-wheel) - Thelineofbestfit.com
+- [Bonobo – Distance in Static (2026)](https://exystence.net/blog/2026/09/10/bonobo-distance-in-static-2026/) - Exystence.net
+- [Breaking the cycle: Bonobo’s evolution is entering a new phase - Mixmag.net](https://mixmag.net/feature/bonobo-distance-in-static-interview-cover-feature-dj) - Mixmag
+- [Bonobo Wanders Between the Future and Past on ‘Distance in Static’](https://rollingstoneindia.com/bonobo-new-album-distance-in-static-interview) - Rollingstoneindia
+- [10 New Albums Out Now From Sylvan Esso, This Is Lorelei, Bonobo & More](https://www.jambase.com/article/new-albums-sylvan-esso-this-is-lorelei-bonobo) - Jambase
+- [Tori Kelly: Tiny Desk Concert](https://www.npr.org/2026/09/10/g-s1-136138/tori-kelly-tiny-desk-concert) - NPR
+- [Watch: Tori Kelly performs 'Sing' cover, new songs at Tiny Desk concert](https://www.yahoo.com/entertainment/music/articles/watch-tori-kelly-performs-sing-134035588.html) - Yahoo
+- [Tori Kelly Delivers Soulfully Inspiring & Joyfully Stunning New Debut Tiny Desk Performance - The Hip Hop Democrat](https://thehiphopdemocrat.com/2026/09/10/tori-kelly-delivers-soulfully-inspiring-joyfully-stunning-new-debut-tiny-desk-performance) - Thehiphopdemocrat
+- [Tori Kelly Performs for NPR’s Tiny Desk Series](https://gospelmusic.org/news/tori-kelly-performs-for-nprs-tiny-desk-series) - Gospelmusic
+- [Tori Kelly: Tiny Desk Concert](https://www.ktep.org/2026-09-10/tori-kelly-tiny-desk-concert) - Ktep
+- [Fans outraged at Harry Styles over ‘insane’ NYC concert ticket with eerie nod to 9/11 — 2 days before 25th anniversary: ‘Who approved this?’](https://pagesix.com/2026/09/09/celebrity-news/fans-outraged-at-harry-styles-over-insane-nyc-concert-ticket-with-eerie-nod-to-9-11/) - Page Six
+- [Harry Styles sparks fury over 'insane' NYC concert ticket with eerie 9/11 nod ahead of 25th anniversary](https://www.dailymail.com/tvshowbiz/article-16119565/harry-styles-nyc-concert-ticket-september-11.html) - Dailymail.com
+- [Harry Styles’ tour ticket sparks outrage over 9/11 imagery \| news.com.au — Australia’s leading news site for latest headlines](https://www.news.com.au/entertainment/celebrity-life/fans-outraged-at-harry-styles-over-nyc-concert-ticket-with-eerie-nod-to-911-who-approved-this/news-story/518e8cf2a2758371242779c9d70c6d71) - News
+- [Fans outraged at Harry Styles over 'insane' NYC concert ticket with eerie nod to 9/11](https://pagesix.com/2026/09/09/celebrity-news/fans-outraged-at-harry-styles-over-insane-nyc-concert-ticket-with-eerie-nod-to-9-11) - Pagesix
+- [Harry Styles faces backlash over NYC concert ticket artwork ahead of 9/11 anniversary](https://www.wionews.com/entertainment/hollywood/harry-styles-faces-backlash-over-nyc-concert-ticket-artwork-ahead-of-9-11-anniversary-1789035377734) - Wionews
+- [Harry Styles Sparks Outrage Over 'Insane' NYC Ticket Artwork With Eerie 9/11 Echo Before 25th Anniversary \| IBTimes UK](https://www.ibtimes.co.uk/harry-styles-nyc-ticket-artwork-controversy-1818928) - Ibtimes
+- [Harry Styles faces backlash over concert ticket artwork amid 9/11 anniversary](https://tribune.com.pk/story/2628529/harry-styles-faces-backlash-over-concert-ticket-artwork-amid-911-anniversary) - Tribune
+- [Kings Of Leon Is ‘Whole’ On New LP](https://www.spinmagazine.com/2026/09/kings-of-leon-new-album/) - Spinmagazine.com
+- [Kings Of Leon Announce New Album ‘O My Beloved’](https://www.xsnoize.com/kings-of-leon-o-my-beloved-my-whole-world) - Xsnoize
+- [Kings of Leon Announce New Album O My Beloved, Unveil "My Whole World": Stream](https://consequence.net/2026/09/kings-of-leon-new-album-o-my-beloved-new-song-my-whole-world-stream) - Consequence
+- [Kings Of Leon announce nostalgic new album 'O My Beloved' with tender single 'My Whole World'](https://www.nme.com/news/music/kings-of-leon-new-album-o-my-beloved-single-my-whole-world-nashville-show-3968109) - Nme
+- [Kings Of Leon Announce New Album O My Beloved For November ...](https://music.mxdwn.com/2026/09/10/news/kings-of-leon-announce-new-album-o-my-beloved-for-november-2026-release-shares-new-single-video-my-whole-world) - Mxdwn
+- [Hear Kings of Leon's emotional new song "My Whole World" - Goldmine Magazine: Record Collector & Music Memorabilia](https://www.goldminemag.com/artist-news/hear-kings-of-leons-emotional-new-song-my-whole-world) - Goldminemag
+- [See Shania Twain Ride Pastel Unicorn in New ‘Still the One’ Video](http://www.rollingstone.com/music/music-news/shania-twain-zedd-youre-still-the-one-candy-crush-video-1235624601/) - Rolling Stone
+- [Shania Twain, Zedd Team for 'You're Still the One' Redux Video](https://www.rollingstone.com/music/music-news/shania-twain-zedd-youre-still-the-one-candy-crush-video-1235624601) - Rollingstone
+- [How Zedd Reimagined Shania Twain’s Biggest Hit Without Ever Having Heard It](https://edm.com/features/zedd-interview-shania-twain-youre-still-the-one-candy-crush) - Edm
+- [Shania Twain, Zedd remake ‘You’re Still the One’ for 2026 Candy Crush Music Season](https://themusicuniverse.com/shania-twain-zedd-remake-youre-still-the-one-for-2026-candy-crush-music-season) - Themusicuniverse
+- [Cancer, Covid, and ‘Sexually Explicit Videos’: Dave Mustaine Reflects on Megadeth’s Most Turbulent Album](http://www.rollingstone.com/music/music-features/dave-mustaine-in-my-darkest-hour-book-excerpt-1235621734/) - Rolling Stone
+- [Read Excerpt From Dave Mustaine's 'In My Darkest Hour' Memoir](https://www.rollingstone.com/music/music-features/dave-mustaine-in-my-darkest-hour-book-excerpt-1235621734) - Rollingstone
+- [Dave Mustaine's new memoir, In My Darkest Hour, has arrived, and he's embarking on a three-stop US book tour \| Guitar.com](https://guitar.com/news/music-news/dave-mustaine-megadeth-new-memoir) - Guitar
+- [Dave Mustaine (Megadeth) shares more details about the dismissal of David Ellefson from the band - Chaoszine](https://chaoszine.net/dave-mustaine-megadeth-shares-more-details-about-the-dismissal-of-david-ellefson-from-the-band) - Chaoszine
+- [EXCLUSIVE: Dave Grohl Reveals Heartbreak Over Kurt Cobain Loss](https://radaronline.com/p/dave-grohl-heartbreak-kurt-cobain-loss-music/) - Radaronline.com
+- [Dave Grohl recalls heartbreak of first time listening to Nirvana after Kurt Cobain's death - Yahoo News UK](https://uk.news.yahoo.com/dave-grohl-recalls-heartbreak-first-100000911.html) - Yahoo
+- [Dolly Parton's first posthumous song is released... two weeks after her death](https://www.dailymail.com/tvshowbiz/article-16121647/dolly-parton-posthumous-song-bound-ride-stanley-brothers.html) - Dailymail.com
+- [Dolly Parton's first posthumous song 'Bound to Ride' released](https://www.usatoday.com/story/entertainment/music/2026/09/10/dolly-parton-death-posthumous-song-bound-to-ride/91687741007) - Usatoday
+- [Dolly Parton song recorded before her death released  - WMUR](https://www.wmur.com/article/dolly-parton-posthumous-song-released-all-star-tribute-album/73671394) - Wmur
+- [Dolly Parton on Stanley Brothers Tribute 'Bound to Ride': Listen](https://www.billboard.com/music/country/dolly-parton-stanley-brothers-bound-to-ride-listen-1236336791) - Billboard
+- [Dolly Parton's first posthumous song 'Bound to Ride' released](https://www.freep.com/story/entertainment/music/2026/09/10/dolly-parton-death-posthumous-song-bound-to-ride/91687741007) - Freep
+- [Dolly Parton’s first posthumous song is out, and ‘she really did over-deliver’](https://www.independent.co.uk/arts-entertainment/music/news/dolly-parton-bound-to-ride-posthumous-music-b3048405.html) - Independent
+- [Mötley Crüe Announce 45th Anniversary Edition of Too Fast For Love](https://consequence.net/2026/09/motley-crue-45th-anniversary-too-fast-for-love-box-set/) - Consequence.net
+- [Rock Cellar Magazine  - Mötley Crüe: ‘Too Fast for Love’ 45th Anniversary Expanded Edition Oct. 30 — Pre-Order](https://rockcellarmagazine.com/motley-crue-too-fast-for-love-45th-anniversary-edition-listen-preview) - Rockcellarmagazine
+- [Mötley Crüe Announce Elaborate 45th Anniversary Edition Of "Too Fast For Love" - Theprp.com](https://www.theprp.com/2026/09/10/news/motley-crue-announce-elaborate-45th-anniversary-edition-of-too-fast-for-love) - Theprp
+- [MÖTLEY CRÜE Announce “Too Fast For Love” 45th-Anniversary Deluxe Box Set & Shares Unreleased 1981 Demo “Nobody Knows What It’s Like To Be Lonely”](https://www.sonicperspectives.com/news/motley-crue-announce-too-fast-for-love-45th-anniversary-deluxe-box-set-shares-unreleased-1981-demo-nobody-knows-what-its-like-to-be-lonely?amp=1) - Sonicperspectives
+- [Mötley Crüe Announce 45th Anniversary Edition of Too Fast For Love Featuring Loads of Rare Tracks](https://consequence.net/2026/09/motley-crue-45th-anniversary-too-fast-for-love-box-set) - Consequence
+- [What's Inside Motley Crue's New 'Too Fast for Love' Box Set](https://ultimateclassicrock.com/motley-crue-too-fast-love-anniversary) - Ultimateclassicrock
+- [Snoop Dogg Set To Host 2026 VMAs](http://deadline.com/2026/09/snoop-dogg-2026-vmas-host-1237072978/) - Deadline
+- [Snoop Dogg brings VMAs back to Los Angeles as host for Sept. 27 show](https://abcnews.com/Entertainment/wireStory/snoop-dogg-brings-vmas-back-los-angeles-host-136343727) - Abcnews.com
+- [Snoop Dogg to Host MTV VMAs 2026!](https://www.justjared.com/2026/09/10/snoop-dogg-to-host-mtv-vmas-2026/) - Just Jared
+- [Casting News: Snoop Dogg To Host VMAs, Tracker Promotion, And More](https://www.tvline.com/2254685/vmas-2026-host-snoop-dogg-tracker-season-4-cast-mel-series-regular/) - TVLine
+- [Snoop Dogg to host 2026 MTV Video Music Awards - UPI.com](https://www.upi.com/Entertainment_News/2026/09/10/Snoop-Dogg-MTV-Vide-Music-Awards-host/2201789061461) - Upi
+- [Snoop Dogg calls hosting 2026 VMAs a full-circle moment](https://www.revolt.tv/article/snoop-dogg-2026-vmas-host-full-circle-moment) - Revolt
+- [VMAs 2026 Host Is Snoop Dogg, Tracker Season 4 Cast Promotion](https://www.tvline.com/2254685/vmas-2026-host-snoop-dogg-tracker-season-4-cast-mel-series-regular) - Tvline
+- [Snoop Dogg named 2026 MTV Video Music Awards host - The Music Universe](https://themusicuniverse.com/snoop-dogg-named-2026-mtv-video-music-awards-host) - Themusicuniverse
