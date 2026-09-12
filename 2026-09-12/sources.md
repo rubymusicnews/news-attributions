@@ -1,0 +1,63 @@
+# Sources for 2026-09-12 News Episode 
+- [BTS to Broadcast Argentina and Brazil Concerts Live to Cinemas Worldwide](https://consequence.net/2026/09/bts-argentina-brazil-concerts-broadcast-cinemas-worldwide/) - Consequence.net
+- [BTS to Broadcast Argentina and Brazil Concerts Live to Cinemas](https://consequence.net/2026/09/bts-argentina-brazil-concerts-broadcast-cinemas-worldwide) - Consequence
+- [BTS WORLD TOUR 'ARIRANG' Live Viewing to Screen in October \| BroadwayWorld](https://www.broadwayworld.com/bwwtv/article/BTS-WORLD-TOUR-ARIRANG-Live-Viewing-to-Screen-in-October-20260910) - Broadwayworld
+- [BTS’ South American ‘Arirang’ concerts to screen live at Malaysian cinemas, tickets on sale Sept 17 - Yahoo News Malaysia](https://malaysia.news.yahoo.com/bts-south-american-arirang-concerts-085727797.html) - Yahoo
+- [BTS Arirang tour live cinema viewing in South America](https://uz.kursiv.media/en/2026-09-11/bts-broadcast-arirang-tour-argentina-brazil/amp) - Kursiv
+- [BTS’ Argentina and Brazil concerts to be screened worldwide as part of ARIRANG tour in October](https://www.moneycontrol.com/entertainment/korean/bts-argentina-and-brazil-concerts-to-be-screened-worldwide-as-part-of-arirang-tour-in-october-article-14028138.html) - Moneycontrol
+- [Blackpink's Jisoo hopes fans see more of her personality on new album](https://cnalifestyle.channelnewsasia.com/entertainment/blackpink-jisoo-new-album-588911) - CNA
+- [Blackpink's Jisoo talks about debut album](https://ua.news/en/znamenitosti/dzhisu-z-blackpink-rozpovila-pro-debiutnii-albom) - Ua
+- [Blackpink's Jisoo Finds the Romance on Solo Single 'Click'](https://www.rollingstone.com/music/music-news/blackpink-jisoo-click-single-1235621279) - Rollingstone
+- [BLACKPINK's Jisoo on Her "Strange and Dark" New Solo Album](https://www.interviewmagazine.com/music/jisoo-click-blackpink-solo-album-kpop) - Interviewmagazine
+- [Jisoo unveils cinematic 'Click' MV \| GMA Entertainment](https://www.gmanetwork.com/entertainment/showbiznews/jisoo-unveils-cinematic-click-mv/138001) - Gmanetwork
+- [Charli xcx announces Europe and UK arena tour for February 2027](https://www.thelineofbestfit.com/news/charli-xcx-announces-europe-and-uk-arena-tour-for-february-2027) - Thelineofbestfit.com
+- [Charli XCX to play Dublin in February 2017](https://www.rte.ie/entertainment/2026/0911/1591169-charli-xcx-to-play-dublin-in-february-2017/) - RTE
+- [Charli XCX 2027 European tour: six major arena dates](https://karlobag.eu/en/music/charli-xcx-announces-2027-european-tour-dates-for-london-paris-dublin-amsterdam-t0tp9) - Karlobag
+- [Charli XCX announces 2027 UK and European 'Music, Fashion, Film' tour](https://www.nme.com/news/music/charli-xcx-announces-2027-uk-european-music-fashion-film-tour-dates-buy-tickets-3968190) - Nme
+- [Charli xcx to Headline UK & EU Arena Tour \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Charli-xcx-to-Headline-UK-EU-Arena-Tour-20260911) - Broadwayworld
+- [Robert Plant and Saving Grace Announce Digital Release of All That Glitters…, Share “Two Coats”: Stream](https://consequence.net/2026/09/robert-plant-saving-grace-all-that-glitters-two-coats/) - Consequence.net
+- [ROBERT PLANT And SAVING GRACE: 'All That Glitters...' EP To Receive Digital Release In October - BLABBERMOUTH.NET](https://blabbermouth.net/news/robert-plant-and-saving-grace-all-that-glitters-ep-to-receive-digital-release-in-october) - Blabbermouth
+- [Robert Plant’s 'Saving Grace: All That Glitters...' Four-Track Digital EP out October 9 on Nonesuch \| Nonesuch Records](https://www.nonesuch.com/journal/robert-plant-saving-grace-all-glitters-four-track-digital-ep-out-october-9-nonesuch-2026-09-10) - Nonesuch
+- [Rock Cellar Magazine  - Robert Plant Shares “Two Coats”; New Digital EP ‘Saving Grace … All That Glitters’ Out Oct. 9](https://rockcellarmagazine.com/robert-plant-saving-grace-all-that-glitters-ep-listen-preview-2026) - Rockcellarmagazine
+- [Robert Plant and Saving Grace Announce Digital Release of All That Glitters…, Share “Two Coats”: Stream](https://consequence.net/2026/09/robert-plant-saving-grace-all-that-glitters-two-coats) - Consequence
+- [Elvis Costello](https://www.npr.org/2026/09/11/nx-s1-5963906/elvis-costello) - NPR
+- [Elvis Costello Announces My Aim Is True 49th Anniversary Box Set](https://www.gratefulweb.com/articles/elvis-costello-announces-my-aim-is-true-49th-anniversary-box-set) - Gratefulweb
+- [Photos: Elvis Costello Shares Unreleased Track I TURN AROUND From MY AIM IS TRUE Box Set \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Elvis-Costello-Shares-Unreleased-Track-I-TURN-AROUND-From-MY-AIM-IS-TRUE-Box-Set-20260904) - Broadwayworld
+- [Elvis Costello Unearths 1976 Song For Massive 'My Aim Is True' Box Set - That Eric Alper](https://www.thatericalper.com/2026/09/08/elvis-costello-unearths-1976-song-for-massive-my-aim-is-true-box-set) - Thatericalper
+- [September 2026's New Rock Music Releases](https://ultimateclassicrock.com/september-2026-new-music-releases) - Ultimateclassicrock
+- [Helena Gao, the Midnight Sun songwriter going viral in China](https://www.dazeddigital.com/music/article/70926/1/helena-gao-the-midnight-sun-songwriter-now-going-viral-in-china-zara-larsson?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=helena-gao-the-midnight-sun-songwriter-going-viral-in-china) - Dazed
+- [Helena Gao, the Midnight Sun songwriter going viral in China \| Dazed](https://www.dazeddigital.com/music/article/70926/1/helena-gao-the-midnight-sun-songwriter-now-going-viral-in-china-zara-larsson) - Dazeddigital
+- [Def Leppard Documentary Coming In Early ’27](https://www.spinmagazine.com/2026/09/def-leppard-documentary/) - Spinmagazine.com
+- ['Long Live Def Leppard' Set for 2027 Release From Crosswalk](https://variety.com/2026/film/news/def-leppard-documentary-bleecker-street-theatrical-release-1236857861) - Variety
+- [Def Leppard Doc Coming to Theaters in 2027 from Jeff Feuerzeig](https://www.indiewire.com/news/business/def-leppard-doc-theaters-2027-jeff-feuerzeig-1235216201) - Indiewire
+- [Def Leppard Documentary ‘Long Live Def Leppard’ Coming to Theaters in 2027 From Bleecker Street’s Crosswalk](https://www.imdb.com/news/ni66011712?ref_=nwc_art_perm) - Imdb
+- [Authorized DEF LEPPARD Documentary 'Long Live Def Leppard' Coming To Theaters In Early 2027 - BLABBERMOUTH.NET](https://blabbermouth.net/news/authorized-def-leppard-documentary-long-live-def-leppard-coming-to-theaters-in-early-2027) - Blabbermouth
+- [Def Leppard Is Getting an Authorized Documentary Next Year](https://www.rollingstone.com/music/music-news/long-live-def-leppard-authorized-documentary-2027-1235625190) - Rollingstone
+- [DEF LEPPARD Documentary "Long Live Def Leppard" Locks In Early 2027 Theatrical Release](https://www.sonicperspectives.com/news/def-leppard-documentary-long-live-def-leppard-locks-in-early-2027-theatrical-release?amp=1) - Sonicperspectives
+- [Endlich Satisfaction: Alle Alben der Rolling Stones im Ranking](https://laut.de/News/Endlich-Satisfaction-Alle-Alben-der-Rolling-Stones-im-Ranking-11-09-2026-21948) - Laut.de
+- [The Rolling Stones Best Albums - A Buyer's Guide \| Louder](https://www.loudersound.com/music/albums/rolling-stones-albums-ranked) - Loudersound
+- [Their Satanic Majesties Request - Wikipedia](https://en.wikipedia.org/wiki/Their_Satanic_Majesties_Request) - Wikipedia
+- [bbno$ follows up Roblox concert with Subway Surfers activation](https://musically.com/2026/09/11/bbno-follows-up-roblox-concert-with-subway-surfers-activation/) - Music Ally
+- [Subway Surfers Adds Viral Musician bbno$ As A Playable Character](https://bleedingcool.com/games/subway-surfers-adds-viral-musician-bbno-as-a-playable-character) - Bleedingcool
+- [bbno$ follows up Roblox concert with Subway Surfers activation - Music Ally](https://musically.com/2026/09/11/bbno-follows-up-roblox-concert-with-subway-surfers-activation) - Musically
+- [Revisiting Limp Bizkit's Strange Connection to 9/11](https://loudwire.com/limp-bizkit-world-trade-center-connection-9-11/) - Loudwire
+- [Revisiting Limp Bizkit's Strange Connection to 9/11](https://loudwire.com/limp-bizkit-world-trade-center-connection-9-11) - Loudwire
+- [Remembering the Twin Towers' Music Video History](https://ultimateclassicrock.com/twin-towers-world-trade-center-music-video-history) - Ultimateclassicrock
+- [Smart album formats now chart-eligible in the US](https://musically.com/2026/09/11/smart-album-formats-now-chart-eligible-in-the-us/) - Music Ally
+- [Billboard To Add Smart Media Albums As Chart-Eligible Sales Format](https://www.billboard.com/business/business-news/billboard-smart-media-albums-chart-eligible-sales-format-1236334638) - Billboard
+- [Serenade Approved For Billboard Chart Eligibility in the US \| Mediaweek](https://www.mediaweek.com.au/serenade-approved-for-billboard-chart-eligibility-in-the-us) - Mediaweek
+- [Smart album formats now chart-eligible in the US - Music Ally](https://musically.com/2026/09/11/smart-album-formats-now-chart-eligible-in-the-us) - Musically
+- [Serenade Approved For Billboard Chart Eligibility in the US](https://themusicnetwork.com/news/serenade-approved-for-billboard-chart-eligibility) - Themusicnetwork
+- [My Morning Jacket, Modest Mouse Unveil Neil Young Covers for Tribute Albums: Stream](https://consequence.net/2026/09/my-morning-jacket-modest-mouse-neil-young-covers/) - Consequence.net
+- [My Morning Jacket, Modest Mouse Release Neil Young Covers for Tribute Album: Stream](https://consequence.net/2026/09/my-morning-jacket-modest-mouse-neil-young-covers) - Consequence
+- [My Morning Jacket, Preservation Hall Jazz Band Cover Neil Young](https://www.rollingstone.com/music/music-news/my-morning-jacket-neil-young-like-a-hurricane-1235620798) - Rollingstone
+- [My Morning Jacket & Modest Mouse Share Their Covers From New Neil Young Tribute Albums](https://stereogum.com/2511076/my-morning-jacket-modest-mouse-share-their-covers-from-new-neil-young-tribute-albums/music) - Stereogum
+- [Fans outraged as Mexican superstar Carín León cancels Sphere concert over bizarre 'travel malfunction' just hours before taking the stage](https://www.dailymail.com/tvshowbiz/article-16124197/carin-leon-sphere-concert-cancelled-backlash.html) - Dailymail.com
+- [Carín León Apologizes for Missing Sphere Concert, Explains the Travel Mishap That Caused Last-Second Cancellation](https://www.justjared.com/2026/09/11/carin-leon-apologizes-for-missing-sphere-concert-explains-the-travel-mishap-that-caused-last-second-cancellation/) - Just Jared
+- [Mexican music star Carin Leon postpones Sphere Las Vegas debut over travel issue](https://news3lv.com/news/local/mexican-music-star-carin-leon-postpones-sphere-las-vegas-concert-travel-issue-entertainment-nevada) - News3lv
+- [Carín León Sphere Concert Postponed Due To A 'Transportation Issue' - Pollstar News](https://news.pollstar.com/2026/09/11/carin-leon-sphere-concert-postponed-due-to-a-transportation-issue) - Pollstar
+- [Artist Carín León addresses abrupt cancellation of Las Vegas Sphere performance](https://www.ktnv.com/news/artist-carin-leon-addresses-abrupt-cancellation-of-las-vegas-sphere-performance) - Ktnv
+- [When Blink-182 Was My Neighbor](http://www.vulture.com/article/blink-182-stay-together-for-the-kids-september-11-music-video.html) - Vulture
+- [When Blink-182 Was My Neighbor](https://www.vulture.com/article/blink-182-stay-together-for-the-kids-september-11-music-video.html) - Vulture
+- [Stay Together For The Kids - Vulture](https://www.vulture.com/tags/stay-together-for-the-kids) - Vulture
+- [Vulture - In late summer 2001, Blink-182 was looking to...](https://www.facebook.com/Vulture/posts/in-late-summer-2001-blink-182-was-looking-to-promote-stay-together-for-the-kids-/1442587394391296) - Facebook
