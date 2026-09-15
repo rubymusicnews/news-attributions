@@ -1,0 +1,70 @@
+# Sources for 2026-09-15 News Episode 
+- [Falling In Reverse Join Forces With System Of A Down's Serj Tankian & Slipknot's Corey Taylor For "Joseph" Music Video](http://www.metalunderground.com/news/details.cfm?newsid=162074) - Metalunderground.com
+- [Falling in Reverse Drop New Song With Corey Taylor + Serj Tankian](https://loudwire.com/falling-in-reverse-joseph-corey-taylor-serj-tankian-lyrics/) - Loudwire
+- [FALLING IN REVERSE Drop Video For New Single "Joseph" Feat. COREY TAYLOR And SERJ TANKIAN](https://bravewords.com/news/falling-in-reverse-drop-video-for-new-single-joseph-feat-corey-taylor-and-serj-tankian) - Bravewords
+- [Falling in Reverse Drop New Song With Corey Taylor + Serj Tankian](https://loudwire.com/falling-in-reverse-joseph-corey-taylor-serj-tankian-lyrics) - Loudwire
+- [Falling in Reverse une Corey Taylor e Serj Tankian pela 1° vez na história](https://www.wikimetal.com.br/en/falling-in-reverse-unites-corey-taylor-serj-tankian-1-time-in-history) - Wikimetal
+- [FALLING IN REVERSE RETURN WITH SCORCHING NEW SINGLE - Metal on Tap](https://metalontap.com/falling-in-reverse-return-with-scorching-new-single) - Metalontap
+- [Hear COREY TAYLOR and SERJ TANKIAN join FALLING IN ...](https://www.revolvermag.com/music/hear-corey-taylor-and-serj-tankian-join-falling-in-reverse-for-manic-new-song-joseph) - Revolvermag
+- [Paula Cole Doesn’t Want to Wait](https://www.newyorker.com/magazine/2026/09/21/paula-cole-doesnt-want-to-wait) - The New Yorker
+- [Paula Cole Retraces Unheard Tracks From 1989-1990](https://www.yahoo.com/entertainment/music/articles/paula-cole-retraces-unheard-tracks-130541319.html) - Yahoo
+- [Paula Cole On Reclaiming Her Narrative After ’90s Pop Stardom \| HuffPost Entertainment](https://www.huffpost.com/entry/paula-cole-90s-pop-star-fame-misogyny-music-industry-sonic-memoir_n_6a9af268e4b0e51a2d92b58a) - Huffpost
+- [“They’ve been haunting me”: Paula Cole revisits early demos for new deluxe box set](https://www.goldminemag.com/reviews/album-reviews/theyve-been-haunting-me-paula-cole-revisits-early-demos-for-new-deluxe-box-set) - Goldminemag
+- [Macklemore cut from Ed Sheeran U.S. tour after onstage 'Free Palestine' remarks](https://www.cbc.ca/news/entertainment/macklemore-dropped-ed-sheeran-tour-9.7343283) - CBC News
+- [Macklemore says U.S. stadium owners pressured Ed Sheeran to drop him from tour](https://www.cbc.ca/news/entertainment/macklemore-dropped-ed-sheeran-tour-united-states-venues-9.7343283) - CBC News
+- [Macklemore Dropped from U.S. Dates on Ed Sheeran’s Tour for Palestine Comments](http://www.vulture.com/article/macklemore-dropped-from-ed-sheerans-tour-for-gaza-comments.html) - Vulture
+- [Macklemore dropped from Ed Sheeran's US tour](https://www.rte.ie/entertainment/2026/0914/1591537-macklemore-dropped-from-ed-sheerans-us-tour/) - RTE
+- [A Major Artist Was Just Kicked Off a Tour For His Political Beliefs. Now I Have to Do the Unthinkable.](https://slate.com/life/2026/09/macklemore-ed-sheeran-tour-dropped-robert-kraft-pink-palestine.html) - Slate Magazine
+- [Macklemore Booted from Ed Sheeran Tour After Saying ‘Free Palestine’](https://www.thehollywoodgossip.com/2026/09/macklemore-booted-ed-sheeran-tour/) - The Hollywood Gossip
+- [Rapper Macklemore dropped from Ed Sheeran tour after anti-Israel rhetoric at concerts](https://nationalpost.com/news/macklemore-dropped-ed-sheeran-tour-anti-israel-rhetoric) - National Post
+- [Macklemore: Ed Sheeran and I had ‘painful disagreement’ over ‘Free Palestine’ speech backlash before tour firing](https://pagesix.com/2026/09/14/celebrity-news/macklemore-ed-sheeran-and-i-had-painful-disagreement-over-free-palestine-speech/) - Page Six
+- [NFL owner dragged into Macklemore's 'Free Palestine' scandal as rapper reveals billionaire's 'ultimatum' that saw him kicked off Ed Sheeran tour](https://www.dailymail.com/sport/nfl/article-16130711/nfl-robert-kraft-macklemore-palestine-ed-sheeran.html) - Dailymail.com
+- [Robert Kraft Defends Blocking Macklemore Shows After He Advocated for Palestine ‘At the Expense of the Jewish Community’](https://www.thewrap.com/culture-lifestyle/culture/robert-kraft-macklemore-free-palestine-ed-sheeran-loop-tour/) - TheWrap
+- [Robert Kraft says Macklemore’s Ed Sheeran show spread ‘divisiveness and hate’ — but extends olive branch to rapper](https://nypost.com/2026/09/14/us-news/robert-kraft-says-macklemores-ed-sheeran-show-spread-divisiveness-and-hate-but-extends-olive-branch-to-rapper/) - New York Post
+- [Patriots' Robert Kraft responds to Macklemore, says no 'hate speech' at stadium](https://www.usatoday.com/story/sports/nfl/patriots/2026/09/14/robert-kraft-says-hed-like-to-meet-with-macklemore-after-ed-sheeran-tour-removal/91763975007/) - USA Today
+- [Stagecoach Reveals 2027 Lineup with Garth Brooks, Zach Top, Willie Nelson & More](https://consequence.net/2026/09/stagecoach-2027-lineup-garth-brooks-zach-top-willie-nelson/) - Consequence.net
+- [Garth Brooks, Kelly Clarkson, Willie Nelson Set for Stagecoach 2027](http://www.rollingstone.com/music/music-country/stagecoach-2027-lineup-garth-brooks-1235625849/) - Rolling Stone
+- [Big Ears Festival 2027 Lineup Topped by Jeff Tweedy, Jim James, Thundercat](https://consequence.net/2026/09/big-ears-festival-2027-lineup/) - Consequence.net
+- [Stagecoach 2027: How to Get Tickets](https://consequence.net/2026/09/stagecoach-2027-how-to-get-tickets/) - Consequence.net
+- [Stagecoach 2027: Garth Brooks, Zach Top and Riley Green will ...](https://www.latimes.com/entertainment-arts/music/story/2026-09-14/stagecoach-2027-garth-brooks-zach-top-riley-green) - Latimes
+- [Stagecoach 2027 Lineup: Garth Brooks, Riley Green, Zach Top Headline](https://www.rollingstone.com/music/music-country/stagecoach-2027-lineup-garth-brooks-1235625849) - Rollingstone
+- [Stagecoach 2027 Lineup: Garth Brooks, Riley Green, Zach Top ...](https://variety.com/2026/music/news/stagecoach-2027-lineup-garth-brooks-riley-green-zach-top-headline-1236861248) - Variety
+- [Stagecoach reveals its 2027 lineup](https://ktla.com/news/california/stagecoach-reveals-its-2027-lineup) - Ktla
+- [Stagecoach 2027: How to Get Tickets](https://consequence.net/2026/09/stagecoach-2027-how-to-get-tickets) - Consequence
+- [The Warning Reveal Europe and North America Dates for 2027 “Everything’s Falling World Tour”](https://consequence.net/2026/09/the-warning-europe-north-america-world-tour-2027/) - Consequence.net
+- [The Warning Map Out 2027 World Tour](https://exclaim.ca/music/article/the-warning-map-out-2027-world-tour) - Exclaim!
+- [THE WARNING Announce The Everything’s Falling World Tour 2027](https://bravewords.com/news/the-warning-announce-the-everythings-falling-world-tour-2027) - Bravewords
+- [The Warning Expand 2027 World Tour With Europe and North America Dates](https://consequence.net/2026/09/the-warning-europe-north-america-world-tour-2027) - Consequence
+- [The Warning Announce 2027 UK, European And North American Shows For Everything's Falling Word Tour - Stereoboard](https://www.stereoboard.com/content/view/252927/9) - Stereoboard
+- [The Kolors, nuovo tour internazionale da aprile 2027 in Europa, Usa e Canada](https://www.ansa.it/sito/notizie/cultura/musica/2026/09/14/the-kolors-nuovo-tour-internazionale-da-aprile-2027-in-europa-usa-e-canada_998ee4d3-ba55-48fa-921b-4fb5a6a56b2d.html) - ANSA.it
+- [The Kolors @ La Madeleine](https://ticketlive.be/events/the-kolors-la-madeleine) - Ticketlive
+- [The Italian band THE KOLORS are bringing their infectious funk-pop ...](https://www.facebook.com/lamadeleineBE/posts/the-italian-band-the-kolors-are-bringing-their-infectious-funk-pop-sound-to-brus/1662319105701170) - Facebook
+- [The Kolors #stardustshowsentertainments #thekolors ... - Instagram](https://www.instagram.com/reel/DdS76KWjb-N) - Instagram
+- [Megadeth's Dave Mustaine Names a 'New' Alternative to 'Big 4'](https://loudwire.com/megadeth-dave-mustaine-new-big-4/) - Loudwire
+- [MEGADETH's Dave Mustaine Names the New 'Big Four' of Thrash Metal](https://metalinjection.net/news/megadeths-dave-mustaine-names-the-new-big-four-of-thrash-metal) - Metalinjection
+- [The Next 'Big Four', According to Megadeth's Dave Mustaine: 'There Are Ways to Do It' \| Ultimate Guitar](https://www.ultimate-guitar.com/news/general_music_news/dave-mustaine-on-his-pick-for-the-next-big-four-and-why-it-might-include-trivium-theyre-not-really-a-thrash-metal-band-so-id-have-to-think-about-that) - Ultimate-guitar
+- [MEGADETH's DAVE MUSTAINE Names Bands That He Thinks Would Be Included In New 'Big Four' Of Thrash Metal - BLABBERMOUTH.NET](https://blabbermouth.net/news/megadeths-dave-mustaine-names-bands-that-he-thinks-would-be-included-in-new-big-four-of-thrash-metal) - Blabbermouth
+- [Megadeth's Dave Mustaine Names a 'New' Alternative to 'Big 4'](https://loudwire.com/megadeth-dave-mustaine-new-big-4) - Loudwire
+- [FKJ – Tyber: Das neue Album zwischen New French House, Jazz und Soul](https://www.whudat.de/fkj-tyber-das-neue-album-zwischen-new-french-house-jazz-und-soul/) - Whudat.de
+- [French Kiwi Juice: The Joy of Missing Out French Kiwi Juice: The Joy of Missing Out](https://www.sleek-mag.com/de/article/french-kiwi-juice-the-joy-of-missing-out) - Sleek-mag
+- [FKJ on Movement, Musicality and Self-Discovery: Inside ‘Tyber’](https://www.newwavemagazine.com/single-post/fkj-on-movement-musicality-and-self-discovery-inside-tyber) - Newwavemagazine
+- [FKJ: FOLLOWING HIS HEART ON TYBER](https://www.fwordmag.com/single-post/fkj-following-his-heart-on-tyber) - Fwordmag
+- [French Kiwi Juice (Vincent Fenton) has released TYBER, his new ...](https://www.instagram.com/p/DdKaEMflVgR) - Instagram
+- [Behind One the Greatest Post-Punk Songs Ever Recorded](https://lithub.com/behind-one-the-greatest-post-punk-songs-ever-recorded/) - Lithub.com
+- [Literary Hub » Behind One the Greatest Post-Punk Songs Ever Recorded](https://lithub.com/behind-one-the-greatest-post-punk-songs-ever-recorded) - Lithub
+- [Claim](https://www.snopes.com//fact-check/eric-clapton-deaf-teen-1992/) - Snopes.com
+- [Eric Clapton allegedly invited a deaf teen onstage at a 1992 concert ...](https://www.facebook.com/snopes/posts/-eric-clapton-allegedly-invited-a-deaf-teen-onstage-at-a-1992-concert-in-birming/1494629396034444) - Facebook
+- [UK’s Official Charts Company debuts ‘homegrown’ albums chart](https://musically.com/2026/09/14/uks-official-charts-company-debuts-homegrown-albums-chart/) - Music Ally
+- [UK’s Official Charts Company debuts ‘homegrown’ albums chart - Music Ally](https://musically.com/2026/09/14/uks-official-charts-company-debuts-homegrown-albums-chart) - Musically
+- [Official Charts Company Launches New Homegrown Albums Chart](https://www.billboard.com/music/music-news/official-charts-company-new-homegrown-albums-chart-1236338105) - Billboard
+- [Official Charts launches brand-new Official Homegrown Albums Chart celebrating British music \| Official Charts](https://www.officialcharts.com/chart-news/official-charts-launches-brand-new-official-homegrown-albums-chart) - Officialcharts
+- [Kevin Rowland Reckons With His Past on New Album](https://www.spinmagazine.com/?p=670382) - Spinmagazine.com
+- [Kevin Rowland Reckons With His Past on New Album - SPIN](https://www.spinmagazine.com/2026/09/kevin-rowland-reckons-with-his-past-on-new-album) - Spinmagazine
+- [Dexys Midnight Runners – LOVE reviewed: Seventh (and last?) Dexys LP makes peace with the past](https://www.mojo4music.com/articles/new-music/dexys-midnight-runners-love-review) - Mojo4music
+- [Dexys Midnight Runners Share New Song 'Once A Man, Twice A Child' ::antiMusic.com](https://www.antimusic.com/p/26/r0903dexys_midnight_runners_share_new_song_once_a_man_twice_a_child.shtml) - Antimusic
+- [Accept's Wolf Hoffman Names His Favorite Riff From His Career](https://loudwire.com/accept-wolf-hoffman-favorite-riff-teuronic-titans-interview/) - Loudwire
+- [ACCEPT's WOLF HOFFMANN On A.I.-Generated Music And Artwork: 'The Quality Is Just Overwhelming' - BLABBERMOUTH.NET](https://blabbermouth.net/news/accepts-wolf-hoffmann-on-a-i-generated-music-and-artwork-the-quality-is-just-overwhelming) - Blabbermouth
+- [Accept – Teutonic Titans 1976-2026 ReviewAccept – Teutonic Titans 1976-2026 Album Review \| 10/10](https://myglobalmind.com/2026/09/02/accept-teutonic-titans-1976-2026-album-review) - Myglobalmind
+- [Accept’s Wolf Hoffman Names His Favorite Riff From His Career](https://loudwire.com/accept-wolf-hoffman-favorite-riff-teuronic-titans-interview) - Loudwire
+- [Social Distortion “Kill” It with Descendents and The Chats in Brooklyn: Review, Photos, Video + Setlist](https://consequence.net/2026/09/social-distortion-descendents-brooklyn-review/) - Consequence.net
+- [Social Distortion “Kill” It with Descendents and The Chats in Brooklyn: Review, Photos, Video + Setlist](https://consequence.net/2026/09/social-distortion-descendents-brooklyn-review) - Consequence
