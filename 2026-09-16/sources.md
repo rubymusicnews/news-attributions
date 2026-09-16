@@ -1,0 +1,62 @@
+# Sources for 2026-09-16 News Episode 
+- [Music industry targets AI songs in crackdown on streaming fraud...](http://www.billboard.com/pro/ifpi-initiative-fight-streaming-fraud/) - Billboard
+- [IFPI and Major Distributors Unite Against Streaming Manipulation](https://infohub.kz/en/article/ifpi-streaming-integrity-initiative) - Infohub
+- [Music Companies Unite in New Commitment to Combat Streaming ...](https://www.ifpi.org/music-companies-unite-in-new-commitment-to-combat-streaming-fraud-in-order-to-protect-artists-songwriters-and-fans) - Ifpi
+- [Music Distributors Agree To New Anti-Fraud Measures](https://www.engadget.com/2257223/music-distributors-agree-to-new-anti-fraud-measures) - Engadget
+- [IFPI launches an anti-fraud ‘Streaming Integrity Initiative’ - Music Ally](https://musically.com/2026/09/14/ifpi-launches-an-anti-fraud-streaming-integrity-initiative) - Musically
+- [IFPI Launches Streaming Integrity Initiative to Combat Streaming Fraud](https://interspacemusic.com/blog/ifpi-launches-streaming-integrity-initiative-to-combat-streaming-fraud) - Interspacemusic
+- [Music Distributors Agree To New Anti-Fraud Measures](https://www.yahoo.com/entertainment/music/articles/music-distributors-agree-anti-fraud-125636732.html) - Yahoo
+- [Mon Laferte: Tiny Desk Concert](https://www.npr.org/2026/09/15/g-s1-141851/mon-laferte-tiny-desk-concert) - NPR
+- [Mon Laferte: Tiny Desk Concert \| KALW](https://www.kalw.org/npr-news/2026-09-15/mon-laferte-tiny-desk-concert) - Kalw
+- [Mon Laferte: Tiny Desk Concert \| WEKU](https://www.weku.org/npr-news/2026-09-15/mon-laferte-tiny-desk-concert) - Weku
+- [Mon Laferte estrena su esperado Tiny Desk solista en Washington](https://www.vlnradio.cl/noticias/tendencias/espectaculos-y-tv/2026/09/15/mon-laferte-deslumbra-en-su-debut-solista-en-tiny-desk-con-temas-recientes) - Vlnradio
+- [Billboard - 1973 Full Year](https://post.rlsbb.cc/billboard-1973-full-year/) - Rlsbb.cc
+- [Billboard - 1975 Full Year](https://post.rlsbb.cc/billboard-1975-full-year/) - Rlsbb.cc
+- [Billboard - 1974 Full Year](https://post.rlsbb.cc/billboard-1974-full-year/) - Rlsbb.cc
+- [Billboard - 1970 Full Year](https://post.rlsbb.cc/billboard-1970-full-year/) - Rlsbb.cc
+- [Billboard - 1971 Full Year](https://post.rlsbb.cc/billboard-1971-full-year/) - Rlsbb.cc
+- [Billboard - 1969 Full Year](https://post.rlsbb.cc/billboard-1969-full-year/) - Rlsbb.cc
+- [Billboard - 1972 Full Year](https://post.rlsbb.cc/billboard-1972-full-year/) - Rlsbb.cc
+- [Bob Dylan Announces 39-Disc The Rolling Thunder Revue: The 1976 Live Recordings Box Set with 371 Unreleased Tracks](https://consequence.net/2026/09/bob-dylan-rolling-thunder-revue-1976-box-set/) - Consequence.net
+- [Bob Dylan Readies 39-CD ‘Rolling Thunder Revue’ Set](https://www.spinmagazine.com/2026/09/bob-dylan-rolling-thunder-revue/) - Spinmagazine.com
+- [Bob Dylan to Release 39-Disc The Rolling Thunder Revue: The 1976 Live Recordings Box Set](https://consequence.net/2026/09/bob-dylan-rolling-thunder-revue-1976-box-set) - Consequence
+- [Bob Dylan Dropping 31 Hour, 39 CD, 371 Unreleased Tracks of "Rolling Thunder Live" Box Set in November Featuring Joan Baez, 50th Anniversary of Tour - Showbiz411](https://www.showbiz411.com/2026/09/15/bob-dylan-dropping-31-hour-39-cd-371-unreleased-tracks-of-rolling-thunder-live-box-set-in-november-featuring-joan-baez-50th-anniversary-of-tour) - Showbiz411
+- [Bob Dylan’s 'The Rolling Thunder Revue: The 1976 Live Recordings' To be Released Via 39-CD Box Set](https://jambands.com/news/2026/09/15/bob-dylans-the-rolling-thunder-revue-the-1976-live-recordings-to-be-released-via-39-cd-box-set) - Jambands
+- [Bob Dylan Announces 39-CD ‘Rolling Thunder Revue: The 1976 Live Recordings’ Box Set](https://www.xsnoize.com/bob-dylan-rolling-thunder-revue-1976-live-recordings) - Xsnoize
+- [Noel Gallagher Unveils Reason for 2027 Oasis Tour, Shuts Down Possibility of New Music](https://consequence.net/2026/09/noel-gallagher-on-2027-oasis-tour-new-music/) - Consequence.net
+- [Noel Gallagher reveals when Oasis decided on Live ‘27 tour, and opens up about chances of new music](https://www.nme.com/news/music/noel-gallagher-reveals-when-oasis-decided-on-live-27-tour-and-opens-up-about-chances-of-new-music-3968806) - Nme
+- [Noel Gallagher Talks About Reason for 2027 Oasis Tour, Shuts Down New Music](https://consequence.net/2026/09/noel-gallagher-on-2027-oasis-tour-new-music) - Consequence
+- [Noel Gallagher Says Oasis Knew They’d Tour Again — But Don’t Expect New Music](https://www.rollingstone.com/music/music-news/oasis-2027-tour-liam-gallagher-interview-new-music-1235626821) - Rollingstone
+- [Oasis Announces 2027 Tour Dates](https://variety.com/2026/music/news/oasis-2027-tour-dates-1236537398) - Variety
+- [15 Iconic Photos of Amy Winehouse That Will Bring You Back to Black](https://www.mentalfloss.com/entertainment/music/amy-winehouse-iconic-photos) - Mental Floss
+- [15 Iconic Photos of Amy Winehouse That Will Bring You Back to Black](https://www.yahoo.com/entertainment/music/articles/15-iconic-photos-amy-winehouse-012216601.html) - Yahoo
+- [Licensable video: Camden celebrates twenty years of Amy Winehouse's album ‘Back to Black’ with a street exhibition](https://www.reutersconnect.com/item/camden-celebrates-twenty-years-of-amy-winehouses-album-back-to-black-with-a-street-exhibition/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzU1MDIxMzA2ODgwMDAx) - Reutersconnect
+- [Evanescence's biggest ever London show is a triumphant spectacle powered by Amy Lee, an iconic team-up and some all-time anthems](https://www.loudersound.com/bands-artists/concerts-shows/evanescences-biggest-ever-london-show-is-a-triumphant-spectacle-powered-by-amy-lee-an-iconic-team-up-and-some-all-time-anthems) - Louder
+- [Amy Lee, Courtney LaPlante, and Poppy sing "End Of You" live for the first time \| Wikimetal](https://www.wikimetal.com.br/en/amy-lee-courtney-laplante-poppy-end-of-you-live-first-time) - Wikimetal
+- [Watch Amy Lee, Courtney LaPlante and Poppy play 'End Of You' together live for first time at Evanescence's London show](https://www.nme.com/news/music/watch-amy-lee-courtney-laplante-and-poppy-play-end-of-you-together-live-for-first-time-at-evanescences-london-show-3968756) - Nme
+- [Live review: Evanescence, London The O2 \| Kerrang!](https://www.kerrang.com/live-review-evanescence-the-o2-london-poppy-k-flay-amy-lee) - Kerrang
+- [Evanescence Conquer The O2 With Heart, Fire And Unforgettable Power](https://www.metaltalk.net/gig-review-evanescence-conquer-the-o2-with-heart-fire-and-unforgettable-power.php) - Metaltalk
+- [NORWEGIAN CRUISE LINE® UNVEILS SHOW-STOPPING ENTERTAINMENT LINEUP ABOARD NORWEGIAN AURA™ WITH "WHITNEY: A CELEBRATION OF WHITNEY HOUSTON" TAKING CENTER STAGE](https://www.prnewswire.com/news-releases/norwegian-cruise-line-unveils-show-stopping-entertainment-lineup-aboard-norwegian-aura-with-whitney-a-celebration-of-whitney-houston-taking-center-stage-302879385.html) - PRNewswire
+- [Norwegian Cruise Line to Bring Whitney Houston Music to Norwegian Aura \| TravelPulse](https://www.travelpulse.com/news/cruise/norwegian-aura-to-bring-whitney-houston-music-to-the-high-seas) - Travelpulse
+- [Whitney Houston production headlines Norwegian Aura entertainment lineup](https://www.cruiseandferry.net/articles/whitney-houston-production-headlines-norwegian-aura-entertainment-lineup) - Cruiseandferry
+- [The Norwegian Aura's headline show will be a Whitney ...](https://www.travelweekly.com/Cruise-Travel/Norwegian-Aura-Whitney-Houston-headline-show) - Travelweekly
+- [The Top Song From Every Year in the 1980s](https://www.mentalfloss.com/entertainment/music/top-song-every-year-1980s) - Mental Floss
+- [Watch the 2026 Americana Honors & Awards](https://www.npr.org/sections/world-cafe/2026/09/15/nx-s1-5968656/watch-the-2026-americana-honors-awards) - NPR
+- [What to Know About AmericanaFest 2026: Buddy Miller, the Americana Honors & Awards, and Nashville's Must-See Music Event - Nashville Lifestyles](https://nashvillelifestyles.com/entertainment/music/what-to-know-about-americanafest-2026-buddy-miller-the-ameri) - Nashvillelifestyles
+- [AI music lawsuits raise questions about American companies and Canadian arts](https://theconversation.com/ai-music-lawsuits-raise-questions-about-american-companies-and-canadian-arts-291240) - The Conversation Africa
+- [SOCAN sues Suno over music copyright infringement](https://weraveyou.com/2026/09/socan-sues-suno-music-copyright-infringement) - Weraveyou
+- [SOCAN Sues Suno Over Alleged Copyright Infringement - CelebrityAccess](https://celebrityaccess.com/2026/09/03/socan-sues-suno-over-alleged-copyright-infringement) - Celebrityaccess
+- [AI Music Platform Suno Sued by Canadian Music Organization SOCAN](https://www.billboard.com/pro/ai-music-platform-suno-sued-canadian-music-socan) - Billboard
+- [SOCAN sues AI music company Suno, alleging copyright infringement](https://www.cbc.ca/music/socan-suno-ai-lawsuit-9.7328609) - Cbc
+- [Slaughter to Prevail Vocalist Addresses Nazi Allegations AGAIN](https://loudwire.com/slaughter-to-prevail-alex-terrible-nazi-allegations/) - Loudwire
+- ["I am not a Nazi. I have never considered myself a Nazi, and I never will." Slaughter to Prevail vocalist Alex Terrible addresses far-right accusations again in lengthy Instagram post \| Louder](https://www.loudersound.com/bands-artists/slaughter-to-prevail-alex-terrible-addresses-nazi-allegations) - Loudersound
+- [Slaughter To Prevail's Alex Terrible Issues New Statement: "I Am Not A Nazi. I Have Never Considered Myself A Nazi, And I Never Will." - Theprp.com](https://www.theprp.com/2026/09/14/news/slaughter-to-prevails-alex-terrible-issues-new-statement-i-am-not-a-nazi-i-have-never-considered-myself-a-nazi-and-i-never-will) - Theprp
+- [Slaughter to Prevail's Alex Terrible addresses Nazi accusations again](https://www.yahoo.com/entertainment/music/articles/slaughter-prevails-alex-terrible-addresses-110000247.html) - Yahoo
+- [Alex Terrible (Slaughter To Prevail) releases additional statement about his political stance - Chaoszine](https://chaoszine.net/alex-terrible-slaughter-to-prevail-releases-additional-statement-about-his-political-stance) - Chaoszine
+- [Alan Vega's Live at Max's Kansas City announced for November release](https://www.thelineofbestfit.com/news/alan-vegas-live-at-maxs-kansas-city-announced-for-november-release) - Thelineofbestfit.com
+- [@ Roll Out 2027 Tour Dates and New Song](https://pitchfork.com/story/roll-out-2027-tour-dates-and-new-song/) - Pitchfork
+- [@ share new track, "Bird"](https://www.thelineofbestfit.com/news/at-share-new-track-bird) - Thelineofbestfit.com
+- [@ Roll Out 2027 Tour Dates and New Song](https://www.yahoo.com/entertainment/music/articles/roll-2027-tour-dates-song-130224917.html) - Yahoo
+- [@ Roll Out 2027 Tour Dates and New Song \| Pitchfork](https://pitchfork.com/story/roll-out-2027-tour-dates-and-new-song) - Pitchfork
+- [@ debut new single "Bird" - Northern Transmissions](https://northerntransmissions.com/debut-new-single-bird) - Northerntransmissions
+- [@ Add North American Headline Dates for 2027 │ Exclaim!](https://exclaim.ca/music/article/add-north-american-headline-dates-for-2027) - Exclaim
