@@ -1,0 +1,75 @@
+# Sources for 2026-09-18 News Episode 
+- [Hans Zimmer Sets 2027 North American Tour Dates](https://consequence.net/2026/09/hans-zimmer-2027-north-american-tour-dates/) - Consequence.net
+- [Hans Zimmer The Next Level 2027: 30-arena North America tour](https://karlobag.eu/en/music/hans-zimmer-live-the-next-level-2027-major-north-american-tour-across-30-arenas-gcne1) - Karlobag
+- [Hans Zimmer Sets 2027 North American Tour Dates](https://consequence.net/2026/09/hans-zimmer-2027-north-american-tour-dates) - Consequence
+- [Hans Zimmer Announces 2027 North American Tour: Interview](https://consequence.net/video/hans-zimmer-2027-tour-dates-interview) - Consequence
+- [Hans Zimmer Is Bringing ‘The Next Level’ Live Show Back to North America in 2027](https://www.billboard.com/music/music-news/hans-zimmer-tour-dates-north-america-2027-1236342227) - Billboard
+- [Lisa, Shaboozey, Gunna Join VMAs Performers Lineup](http://www.rollingstone.com/music/music-news/lisa-shaboozey-gunna-mtv-video-music-awards-performers-1235628383/) - Rolling Stone
+- [VMAs 2026 Adds Lisa, Shaboozey and Raye to Performance Lineup](https://www.thewrap.com/industry-news/awards/vmas-2026-performers-lisa-shaboozey-raye/) - TheWrap
+- [Lisa, RAYE & More Join 2026 VMAs Performer Lineup](https://www.justjared.com/2026/09/17/lisa-raye-more-join-2026-vmas-performer-lineup/) - Just Jared
+- [Gunna, Lisa, Raye, Sienna Spiro among additional 2026 MTV Video Music Awards performers - The Music Universe](https://themusicuniverse.com/gunna-lisa-raye-sienna-spiro-among-additional-2026-mtv-video-music-awards-performers) - Themusicuniverse
+- [Lisa, Shaboozey and Gunna to perform at 2026 MTV VMAs \| UA.NEWS](https://ua.news/en/culture/lisa-shaboozey-i-gunna-vistupliat-na-mtv-video-music-awards-rolling-stone) - Ua
+- [Lisa, Shaboozey, and Raye Among 2026 MTV Video Music Awards Performers](https://www.hollywoodreporter.com/music/music-news/lisa-shaboozey-raye-2026-mtv-video-music-awards-performers-1236704163) - Hollywoodreporter
+- [RAYE, Lisa, Sienna Spiro, Shaboozey and More Artists Join Lineup of 2026 MTV VMAs Performers - Yahoo News UK](https://uk.news.yahoo.com/raye-lisa-sienna-spiro-shaboozey-160213326.html) - Yahoo
+- [Lisa, Shaboozey, Gunna Join 2026 VMAs Performers Lineup](https://www.rollingstone.com/music/music-news/lisa-shaboozey-gunna-mtv-video-music-awards-performers-1235628383) - Rollingstone
+- [Fontaines D.C. Tap Rosalía for Their First-Ever Guest Feature on New Song “Where Is Gone?”](https://consequence.net/2026/09/fontaines-dc-rosalia-new-song-announcement/) - Consequence.net
+- [Rosalía to feature on upcoming Fontaines D.C. album, Dopamine Chamber \| The Line of Best Fit](https://www.thelineofbestfit.com/news/rosalia-to-feature-on-upcoming-fontaines-d-c-album-dopamine-chamber) - Thelineofbestfit
+- [Fontaines D.C. reveal tracklist for Dopamine Chamber - Northern Transmissions](https://northerntransmissions.com/fontaines-d-c-reveal-tracklist-for-dopamine-chamber) - Northerntransmissions
+- [Rosalía to Feature on New Fontaines D.C. Album Dopamine Chamber](https://consequence.net/2026/09/fontaines-dc-rosalia-new-song-announcement) - Consequence
+- [Rosalía Joins Fontaines D.C. on Unapologetically Dark New Album](https://hit-channel.com/fontaines-dc-dopamine-chamber-rosalia-feature) - Hit-channel
+- [Fontaines D.C. announce new album Dopamine Chamber tracklist - Music News \| Music-News.com](https://www.music-news.com/news/UK/191297/Fontaines-D-C-announce-new-album-Dopamine-Chamber-tracklist) - Music-news
+- [Burna Boy to headline halftime show at 2026 NFL Paris game](https://punchng.com/burna-boy-to-headline-halftime-show-at-2026-nfl-paris-game/) - The Punch
+- [Burna Boy to headline halftime show at 2026 NFL Paris Game on Oct. 25 \| Latest NFL News, Analysis & Updates \| NFL.com](https://www.nfl.com/news/burna-boy-headline-halftime-show-2026-nfl-paris-game-oct-25) - Nfl
+- [Burna Boy to headline NFL halftime show in Paris - Good Morning America](https://www.goodmorningamerica.com/culture/story/burna-boy-headline-nfl-halftime-show-paris-136525291) - Goodmorningamerica
+- [Burna Boy to headline halftime at the NFL's first regular-season game in Paris \| RiverBender.com](http://www.riverbender.com/sports-news/details.cfm?id=521158) - Riverbender
+- [David Bowie – The Shel Talmy Recordings (2026)](https://exystence.net/blog/2026/09/17/david-bowie-the-shel-talmy-recordings-2026/) - Exystence.net
+- [David Bowie / The Shel Talmy Recordings](https://superdeluxeedition.com/news/david-bowie-the-shel-talmy-recordings) - Superdeluxeedition
+- [Release Round-Up: Week of September 18 - The Second Disc](https://theseconddisc.com/2026/09/18/release-round-up-september-18-2026) - Theseconddisc
+- [Out This Week / on 18 September 2026 – SuperDeluxeEdition](https://superdeluxeedition.com/news/out-this-week-on-18-september-2026) - Superdeluxeedition
+- [‘Party’ Lyrics & Meaning: Troye Sivan Explains New Song, Drops Video Narrated by Ian McKellen – Watch Now!](https://www.justjared.com/2026/09/17/party-lyrics-meaning-troye-sivan-explains-new-song-drops-video-narrated-by-ian-mckellen-watch-now/) - Just Jared
+- [Troye Sivan Drafts Ian McKellen, Madonna, and More for "Party"](https://www.slantmagazine.com/film/troye-sivan-party-ian-mckellen-madonna-single-video) - Slantmagazine
+- [Troye Sivan Shares Video for New Song ‘The Party’](https://ourculturemag.com/2026/09/18/troye-sivan-shares-video-for-new-song-the-party) - Ourculturemag
+- [Gandalf Narrates Troye Sivan’s New “Party” Video \| Pitchfork](https://pitchfork.com/story/gandalf-narrates-troye-sivans-new-party-video) - Pitchfork
+- [Troye Sivan's upcoming single “Party” samples Madonna's 2000 ...](https://www.facebook.com/groups/971429911439825/posts/1603381648244645) - Facebook
+- [Troye Sivan Releases Madonna-Sampling ‘Party’ Single & Cinematic Video: Watch](https://www.billboard.com/music/chart-beat/troye-sivan-party-single-video-madonna-ian-mckellen-1236343058) - Billboard
+- [Troye Sivan's new single samples Madonna's 2000 hit "Music](https://www.facebook.com/groups/836070928510060/posts/1439671721483308) - Facebook
+- [Ed Sheeran beefs up security at next tour stop in Philadelphia after Macklemore was dropped over 'Free Palestine' speech](https://www.dailymail.com/tvshowbiz/article-16140481/ed-sheeran-macklemore-palestine-philadelphia.html) - Dailymail.com
+- [Philadelphia Police Confirm Increased Security for Ed Sheeran at Lincoln Financial Field This Saturday](https://wpst.com/ed-sheeran-philadelphia-security-protest-2026) - Wpst
+- [Ed Sheeran’s next show, post-Macklemore, to see heavy police presence: report](https://www.nydailynews.com/2026/09/17/ed-sheeran-security-philadelphia-macklemore-concert) - Nydailynews
+- [Talking Heads Assemble For SiriusXM Channel Launch](https://www.spinmagazine.com/2026/09/talking-heads-siriusxm/) - Spinmagazine.com
+- [This Must Be the Place: Talking Heads Launch Exclusive Pop-Up Channel on SiriusXM :: Sirius XM Holdings Inc. (SIRI)](https://investor.siriusxm.com/news-events/press-releases/detail/2305/this-must-be-the-place-talking-heads-launch-exclusive) - Siriusxm
+- [Talking Heads launch exclusive SiriusXM pop-up channel](https://themusicuniverse.com/talking-heads-launch-exclusive-siriusxm-pop-up-channel) - Themusicuniverse
+- [Talking Heads to Make Rare Appearance for SiriusXM Pop-Up Channel](https://bestclassicbands.com/talking-heads-to-make-rare-appearance-siriusxm-pop-up-channel-9-17-26) - Bestclassicbands
+- [Talking Heads To Launch SiriusXM Radio Channel Ft. Guest DJ Sets By Trey Anastasio, More](https://liveforlivemusic.com/news/announce/talking-heads-pop-up-channel-on-siriusxm-to-feature-dj-sets-by-trey-anastasio-the-linda-lindas-more) - Liveforlivemusic
+- [Talking Heads Radio: Listen to the New SiriusXM Channel](https://www.siriusxm.com/blog/talking-heads-radio) - Siriusxm
+- [Talking Heads Assemble For SiriusXM Channel Launch - SPIN](https://www.spinmagazine.com/2026/09/talking-heads-siriusxm) - Spinmagazine
+- [Death Cab for Cutie Announce 2027 North American Tour](https://consequence.net/2026/09/death-cab-for-cutie-2027-tour-new-video/) - Consequence.net
+- [Death Cab For Cutie Reveals ’27 Tour, Video](https://www.spinmagazine.com/2026/09/death-cab-for-cutie-tour-video/) - Spinmagazine.com
+- [Death Cab For Cutie Announces Spring 2027 North American Tour](https://www.jambase.com/article/death-cab-for-cutie-tour-dates-2027-spring) - Jambase
+- [Death Cab for Cutie announce 2027 North American tour, share new video for “Stone Over Water”](https://theneedledrop.com/news/death-cab-for-cutie-announce-2027-north-american-tour-share-new-video-for-stone-over-water) - Theneedledrop
+- [Death Cab for Cutie 2027 North American tour dates](https://karlobag.eu/en/music/death-cab-for-cutie-expands-2027-north-american-tour-from-honolulu-to-asheville-9gb7k) - Karlobag
+- [Death Cab for Cutie Announce 2027 North American Tour](https://consequence.net/2026/09/death-cab-for-cutie-2027-tour-new-video) - Consequence
+- [DEATH CAB FOR CUTIE to Launch 2027 North American Tour](https://www.broadwayworld.com/article/DEATH-CAB-FOR-CUTIE-to-Launch-2027-North-American-Tour-20260917) - Broadwayworld
+- [Zara Larsson Fires Back at Trump Admin’s Use of ‘Midnight Sun’ in an ICE Promo, “You Guys Are F-cking Losers”](https://thoughtcatalog.com/january-nelson/2026/09/zara-larsson-fires-back-at-trump-admins-use-of-midnight-sun-in-an-ice-promo-you-guys-are-f-cking-losers/) - Thoughtcatalog.com
+- [Zara Larsson criticises White House for using her song in deportation video](https://www.bbc.com/news/articles/cqr7d3l0y2zpo) - Bbc
+- [Zara Larsson Condemns ‘Dehumanizing’ White House TikTok](https://www.thecut.com/article/zara-larsson-condemns-dehumanizing-white-house-tiktok.html) - Thecut
+- [Zara Larsson Slams White House for Using 'Midnight Sun' in ICE Video](https://www.rollingstone.com/music/music-news/zara-larsson-trump-white-house-midnight-sun-ice-tiktok-1235628493) - Rollingstone
+- [Zara Larsson Slams White House for Using ‘Midnight Sun’ in ICE Video: ‘So Dehumanizing’](https://www.billboard.com/music/music-news/zara-larsson-slams-white-house-using-midnight-sun-ice-video-1236342637) - Billboard
+- [Zara Larsson Fires Back at Trump Admin’s Use of ‘Midnight Sun’ in an ICE Promo, “You Guys Are F-cking Losers” \| Thought Catalog](https://thoughtcatalog.com/january-nelson/2026/09/zara-larsson-fires-back-at-trump-admins-use-of-midnight-sun-in-an-ice-promo-you-guys-are-f-cking-losers) - Thoughtcatalog
+- [The All-American Rejects Reveal Why Their Comeback Almost Never Happened](https://www.usmagazine.com/celebrity-news/news/all-american-rejects-reflect-on-nearly-quitting-pre-comeback/) - Us Weekly
+- [All-American Rejects Reflect on Nearly Quitting Pre-Comeback](https://www.usmagazine.com/celebrity-news/news/all-american-rejects-reflect-on-nearly-quitting-pre-comeback) - Usmagazine
+- [The All-American Rejects Reveal Why Their Comeback Almost Never Happened](https://www.sanluisobispo.com/entertainment/article317288672.html) - Sanluisobispo
+- [Neil Young & The Chrome Hearts – Second Song (2026)](https://exystence.net/blog/2026/09/17/neil-young-the-chrome-hearts-second-song-2026/) - Exystence.net
+- [Neil Young and Chrome Hearts release the title track to new album ‘Second Song’](https://www.klbjfm.com/rock-daypop/neil-young-and-chrome-hearts-release-the-title-track-to-new-album-second-song) - Klbjfm
+- [Neil Young & The Chrome Hearts Reflect on Time, Mortality & His Own Musical Legacy on 'Second Song' (ALBUM REVIEW) - Glide Magazine](https://glidemagazine.com/330136/neil-young-the-chrome-hearts-reflect-on-time-mortality-his-own-musical-legacy-on-second-song-album-review) - Glidemagazine
+- [Neil Young holds onto memories on Chrome Hearts' 'Second Song' \| RIFF](https://riffmagazine.com/album-reviews/neil-young-and-the-chrome-hearts-second-song) - Riffmagazine
+- [Neil Young + The Chrome Hearts Preview 'Second Song' LP Sept. 18](https://rockcellarmagazine.com/neil-young-the-chrome-hearts-second-song-new-album-preview-listen) - Rockcellarmagazine
+- [Neil Young Second Song reviewed: A late-career classic](https://www.mojo4music.com/articles/new-music/neil-young-second-song-reviewed-a-late-career-classic) - Mojo4music
+- [Pussycat Dolls fans are left baffled as 'tech issues' stop Nicole Scherzinger from singing Buttons - and Ashley Roberts and Kimberley Wyatt fail to jump in](https://www.dailymail.com/tvshowbiz/article-16138553/Pussycat-Dolls-fans-baffled-tech-issues-Nicole-Scherzinger-singing-Buttons-Ashley-Roberts-Kimberley-Wyatt.html) - Dailymail.com
+- [Watch awkward moment Nicole Scherzinger mysteriously ‘goes missing’ from hit song as PCD bandmates fail to cover it up](https://www.thesun.co.uk/tvandshowbiz/40406261/nicole-scherzinger-missing-pussycat-dolls-tour-song-lyrics) - Thesun
+- [Wiadomo, co wydarzyło się na koncercie Pussycat Dolls w Polsce ...](https://www.plotek.pl/najnowsze-plotki/7,194210,33030486,wiadomo-co-wydarzylo-sie-na-koncercie-pussycat-dolls-w-polsce.html) - Plotek
+- [What Happened to Nicole Scherzinger? Rep Explains Why She Missed 'Buttons' Performance During Pussycat Dolls Show in Warsaw](https://www.justjared.com/2026/09/17/what-happened-to-nicole-scherzinger-rep-explains-why-she-missed-buttons-performance-during-pussycat-dolls-show-in-warsaw) - Justjared
+- [Hamilton Leithauser + Rostam Announce 2026 10th Anniversary Tour, Reveal “In a Black Out (Piano Version)”: Stream](https://consequence.net/2026/09/hamilton-leithauser-rostam-2026-anniversary-tour-dates/) - Consequence.net
+- [Hamilton Leithauser + Rostam Announce 2026 10th Anniversary Tour](https://consequence.net/2026/09/hamilton-leithauser-rostam-2026-anniversary-tour-dates) - Consequence
+- [Rostam and Hamilton Leithauser announce The Joint Tour - Northern Transmissions](https://northerntransmissions.com/rostam-and-hamilton-leithauser-announce-the-joint-tour) - Northerntransmissions
+- [Hamilton Leithauser and Rostam to Tour I Had a Dream That You Were Mine](https://www.yahoo.com/entertainment/music/articles/hamilton-leithauser-rostam-tour-had-180030659.html) - Yahoo
