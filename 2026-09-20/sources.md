@@ -1,0 +1,63 @@
+# Sources for 2026-09-20 News Episode 
+- [Winners Of 2026 The Fact Music Awards](http://www.soompi.com/article/1871808wpp/winners-of-2026-the-fact-music-awards) - soompi
+- [Still the Trendsetter... CORTIS Wins 'Artist of the Year' ...](https://www.mk.co.kr/en/musics/12157193) - Mk
+- [2026 The Fact Music Awards Conclude Busan Debut](https://www.chosun.com/english/kpop-culture-en/2026/09/20/QQAKQTJMUVGURJXOS3RUWQJ2TA) - Chosun
+- [The 2026 The Fact Music Awards was held in Korea for the first time in three years, and it ended in .. - MK](https://www.mk.co.kr/en/entertain/12157348) - Mk
+- [Ateez, NMIXX, RIIZE and CORTIS Win Grand Prizes at ...](https://www.mk.co.kr/en/musics/12157227) - Mk
+- [Shakira, 49, looks incredible in a purple sequin minidress as she kicks off her 12 night European residency in Spain](https://www.dailymail.com/tvshowbiz/article-16144447/Shakira-49-looks-incredible-purple-sequin-minidress-kicks-12-night-European-residency-Spain.html) - Dailymail.com
+- [Shakira swarmed by fans in Madrid ahead of historic 12-concert residency](https://www.hola.com/us/celebrities/20260915923556/shakira-swarmed-fans-madrid-12-concert-residency) - Hola
+- [Shakira's Madrid Residency to Feature Amaia, Nathy Peluso, Santos Bravos](https://www.billboard.com/music/latin/shakira-madrid-residency-feature-amaia-nathy-peluso-1236335658) - Billboard
+- [Shakira Says Madrid Residency Was Created in Response to Latinos 'Forced to Live in Fear'](https://www.rollingstone.com/music/music-news/shakira-madrid-residency-latinos-persecuted-1235618175) - Rollingstone
+- [Shakira turns Madrid into her new home: her awaited European residency has already begun](https://www.elconstitucional.es/en/qtv/more-society/shakira-turns-madrid-into-her-new-home-her-awaited-european-residency-has-already-begun_8015_102.html) - Elconstitucional
+- [Shakira Madrid Concert Recap: First Night of 12-Date Residency](https://www.billboard.com/music/latin/shakira-madrid-concert-recap-residency-spain-1236343874) - Billboard
+- [Shakira Arrives in Spain to a Carnival Welcome: Inside Her 12-Concert Madrid Residency Built for 600,000 Fans](https://www.latintimes.com/shakira-arrives-spain-carnival-welcome-inside-her-12-concert-madrid-residency-built-600000-599222) - Latintimes
+- [Private Equity’s Next Target Is Indie Music](http://www.rollingstone.com/music/music-features/private-equity-target-indie-music-1235626614/) - Rolling Stone
+- [Investment firms step up offers to independent labels — Rolling Stone \| UA.NEWS](https://ua.news/en/culture/investkompaniyi-aktivizuvali-propozitsiyi-nezalezhnim-leiblam-rolling-stone) - Ua
+- [Private Equity's Next Target Is Indie Music - Rolling Stone](https://www.rollingstone.com/music/music-features/private-equity-target-indie-music-1235626614) - Rollingstone
+- [Ringo Starr makes heartbreaking Beatles reunion admission decades after John Lennon, George Harrison’s deaths](https://pagesix.com/2026/09/19/entertainment/ringo-starr-makes-heartbreaking-beatles-reunion-admission/) - Page Six
+- [Ringo Starr reveals why he’s convinced the Beatles would eventually have reunited - NZ Herald](https://www.nzherald.co.nz/entertainment/ringo-starr-reveals-why-hes-convinced-the-beatles-would-eventually-have-reunited/OUEXGLA4OFF5XD47KCCVEIWEH4) - Nzherald
+- [Ringo Starr laments missed chance for Beatles reunion \| The Canberra Times \| Canberra, ACT](https://www.canberratimes.com.au/story/9353688/ringo-starr-laments-missed-chance-for-beatles-reunion) - Canberratimes
+- [Ringo Starr makes heartbreaking Beatles reunion admission](https://pagesix.com/2026/09/19/entertainment/ringo-starr-makes-heartbreaking-beatles-reunion-admission) - Pagesix
+- [Ringo Starr says the Beatles would have reunited had John Lennon and George Harrison not died \| Nine.com.au](https://www.nine.com.au/entertainment/celebrity/the-beatles-reunion-ring-starr-says-band-would-have-made-more-music-20260920-p60yuz.html) - Nine
+- [Madonna & Charli xcx Announce ‘Danceteria Afterhours’ Collaboration](https://www.justjared.com/2026/09/18/madonna-charli-xcx-announce-danceteria-afterhours-collaboration/) - Just Jared
+- [Madonna & Charli xcx Announce 'Danceteria Afterhours' Collaboration \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/18/madonna-charli-xcx-announce-danceteria-afterhours-collaboration) - Justjared
+- [Madonna and Charli XCX Team Up for ‘Danceteria Afterhours’](https://hit-channel.com/madonna-charli-xcx-danceteria-afterhours) - Hit-channel
+- [Madonna and Charli XCX Announce ‘Danceteria’ Remix](https://inmusicblog.com/news/madonna-charli-xcx-danceteria-afterhours-remix) - Inmusicblog
+- [Madonna Taps Charli XCX for 'Danceteria Afterhours' Remix](https://www.complex.com/life/a/jaelaniturnerwilliams/madonna-charli-xcx-danceteria-collaboration) - Complex
+- [A$AP Rocky Performs With Rihanna & Kids During Tour](https://allhiphop.com/news/aap-rocky-performs-with-rihanna-kids-during-tour/) - AllHipHop
+- [ASAP Rocky Brings Rihanna and Riot Rose Onstage ... - Complex](https://www.complex.com/music/a/treyalston/asap-rocky-rihanna-riot-copenhagen-tour) - Complex
+- [Rihanna Riot appearance surprises fans at A$AP Rocky concert - TheGrio](https://thegrio.com/2026/09/19/rihanna-riot-appearance-asap-rocky-copenhagen) - Thegrio
+- [Η Ριάνα και ο γιος της ανέβηκαν στη σκηνή με τον ASAP Rocky στην Κοπεγχάγη, ο 3χρονος Ρίοτ πήρε το μικρόφωνο και ευχαρίστησε τους θεατές](https://www.protothema.gr/life-style/article/1881150/i-riana-kai-o-gios-tis-anevikan-sti-skini-me-ton-asap-rocky-stin-kopeghagi-o-3hronos-riot-pire-to-mikrofono-kai) - Protothema
+- [Welterfolg mit Rissen](https://orf.at/stories/3442133/) - Orf.at
+- [KATSEYE Announces First EP Without Manon - Forbes](https://www.forbes.com/sites/hannahabraham/2026/04/15/katseye-announces-first-ep-without-manon/) - Forbes
+- [KATSEYE Setlist for 2026's 'The Wildworld Tour' After Opening Night In Ireland \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/01/katseye-setlist-for-2026s-the-wildworld-tour-after-opening-night-in-ireland) - Justjared
+- [KATSEYE's Lineup Timeline, From 'Dream Academy' Formation to Hiatuses](https://www.billboard.com/lists/katseye-lineup-timeline-dream-academy-formation-hiatuses) - Billboard
+- [Tinashe Is Feeling the Pressure. It’s Nothing ‘Popstar’ Can’t Handle](http://www.rollingstone.com/music/music-features/tinashe-album-popstar-creative-choices-feeling-pressure-1235626810/) - Rolling Stone
+- [Tinashe on New Album 'Popstar,' Creative Choices, Feeling Pressure](https://www.rollingstone.com/music/music-features/tinashe-album-popstar-creative-choices-feeling-pressure-1235626810) - Rollingstone
+- [Tinashe speaks about pressure before Popstar release \| UA.NEWS](https://ua.news/en/culture/tinashe-rozpovila-pro-tisk-pered-relizom-popstar-rolling-stone) - Ua
+- [Tinashe’s “Pillow Fight” Wins Fans’ New Music Poll](https://inmusicblog.com/news/tinashe-pillow-fight-best-new-release-week) - Inmusicblog
+- [Tinashe - Wikipedia](https://en.wikipedia.org/wiki/Tinashe) - Wikipedia
+- [Tinashe Releases Dual Singles "Pillow Fight" and "I'd Rather Be Alone" Ahead of 'Popstar' Album - New R&B Music, Songs & Interviews \| YouKnowIGotSoul.com](https://youknowigotsoul.com/tinashe-releases-dual-singles-pillow-fight-and-id-rather-be-alone-ahead-of-popstar-album) - Youknowigotsoul
+- [Is Zara Larsson Still Performing in Abu Dhabi?](http://www.vulture.com/article/zara-larsson-abu-dhabi-concert.html) - Vulture
+- [Is Zara Larsson Still Performing in Abu Dhabi? - Vulture](https://www.vulture.com/article/zara-larsson-abu-dhabi-concert.html) - Vulture
+- [Zara Larsson says she won’t perform at Abu Dhabi show after Sudan concerns \| The Express Tribune](https://tribune.com.pk/story/2630224/zara-larsson-says-she-wont-perform-at-abu-dhabi-show-after-sudan-concerns?amp=1) - Tribune
+- [Zara Larsson appears to cancel Abu Dhabi show over Sudan war](https://faroutmagazine.co.uk/zara-larsson-allegedly-cancels-abu-dhabi-grand-prix-concert-over-sudan-war) - Faroutmagazine
+- [Zara Larsson Says No to Abu Dhabi After Fans Demand She “Read About What UAE Is Doing to Sudan”](https://www.yahoo.com/entertainment/music/articles/zara-larsson-says-no-abu-234625481.html) - Yahoo
+- [Zara Larsson Says No to Abu Dhabi After Fans Demand She "Read About What UAE Is Doing to Sudan" - Where Is The Buzz \| Breaking News, Entertainment, Exclusive Interviews & Morero](https://whereisthebuzz.com/zara-larsson-says-no-to-abu-dhabi-after-fans-demand-she-read-about-what-uae-is-doing-to-sudan) - Whereisthebuzz
+- ["It's their first real test as torchbearers for metal's future." Spiritbox beat Sleep Token, Ghost and Bring Me The Horizon to get into arenas - but they're still finding their feet](https://www.loudersound.com/bands-artists/concerts-shows/spiritbox-play-uks-biggest-arena-review-2026) - Louder
+- [Spiritbox: Co-op Live, Manchester – Live Review](https://louderthanwar.com/spiritbox-co-op-live-manchester-live-review) - Louderthanwar
+- [JAY-Z In 8 S01E01 1080p WEB H264-SuckMyNonFict](https://post.rlsbb.cc/jay-z-in-8-s01e01-1080p-web-h264-suckmynonfict/) - Rlsbb.cc
+- [Jay-Z HBO Max Docuseries: 8 Things We Learned From the First ...](https://www.complex.com/music/a/dimassanfiorenzo/jay-z-hbo-max-docuseries-recap) - Complex
+- [Inside the “JAŸ-Z In 8” New York premiere and D’USSÉ afterparty](https://www.revolt.tv/article/jay-z-in-8-new-york-premiere-photos-dusse) - Revolt
+- [Jay-Z and Rick Rubin's HBO Docuseries: Here's When It's Dropping](https://www.complex.com/music/a/tracewilliamcowen/jay-z-8-hbo-docuseries-premiere-date) - Complex
+- [JAŸ-Z in 8 on HBO Max: Rick Rubin gets Shawn Carter to explain the bars he spent 30 years hiding – Martin Cid Magazine](https://www.martincid.com/tv-shows/jay-z-in-8) - Martincid
+- [How to Watch Every Episode of Jay-Z's 'Jaÿ-Z in 8'](https://www.elle.com/culture/movies-tv/a73793917/jay-z-in-8-release-schedule) - Elle
+- ['JAŸ-Z in 8' premieres tonight, and you can watch the HBO docuseries for free on HBO Max — here's how - syracuse.com](https://www.syracuse.com/tv/2026/09/you-can-watch-jay-zs-new-docuseries-jay-z-in-8-for-free-on-hbo-max-heres-how.html) - Syracuse
+- [Orville Peck Dedicates Performance to ‘All the Gay Cowboys’: ‘We Exist, We Walk Among You’](https://variety.com/2026/music/columns/orville-peck-dedicates-willie-nelson-duet-gay-cowboys-hollywood-bowl-1236869602/) - Variety
+- [Who’s on Susanna Hoffs’s List?](https://www.newyorker.com/magazine/2026/09/28/whos-on-susanna-hoffs-list) - The New Yorker
+- [Albums Of The Week: Susanna Hoffs \| The List](https://tinnitist.com/2026/09/17/albums-of-the-week-susanna-hoffs-the-list) - Tinnitist
+- [Who's on Susanna Hoffs's List? \| BlazinStreetz News](https://blazinstreetz.com/51877_whos-on-susanna-hoffss-list-news.html) - Blazinstreetz
+- [Papa Roach Bassist's Health 'Emergency' Forces Festival Exit](https://loudwire.com/papa-roach-cancels-louder-than-life/) - Loudwire
+- [Papa Roach cancels Louder Than Life festival set in Kentucky](https://karlobag.eu/en/music/papa-roach-withdrawal-from-louder-than-life-after-bassist-tobin-esperance-s-heal-evydg) - Karlobag
+- [Louder Than Life Saturday lineup, schedule features Limp Bizkit](https://www.yahoo.com/entertainment/music/articles/louder-life-saturday-lineup-schedule-090114103.html) - Yahoo
+- [Papa Roach Bassist's Health 'Emergency' Forces Festival Exit](https://loudwire.com/papa-roach-cancels-louder-than-life) - Loudwire
