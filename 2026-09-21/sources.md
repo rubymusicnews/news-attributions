@@ -1,0 +1,69 @@
+# Sources for 2026-09-21 News Episode 
+- [She Said She Said by The Beatles](https://economictimes.indiatimes.com/opinion/bliss-of-everyday-life/she-said-she-said-by-the-beatles/articleshow/134365893.cms) - The Times of India
+- [A crack team of famous Beatles fans talk us through their favourite tracks from Revolver - UNCUT](https://www.uncut.co.uk/features/a-crack-team-of-beatles-heads-including-johnny-marr-and-brian-wilson-talk-us-through-their-favourite-tracks-from-revolver-154514) - Uncut
+- [The Beatles' 50 greatest songs - UNCUT](https://www.uncut.co.uk/features/the-beatles-50-best-songs-69741) - Uncut
+- [beatles: She Said She Said by The Beatles - The Economic Times](https://m.economictimes.com/opinion/bliss-of-everyday-life/she-said-she-said-by-the-beatles/amp_articleshow/134365893.cms) - Economictimes
+- [Keith Urban and Celine Dion perform at moving John Farnham tribute concert in Melbourne - but the legendary singer stayed home after sad news that he's confined to wheelchair](https://www.dailymail.com/tvshowbiz/article-16146051/john-farnham-keith-urban-celine-dion-tribute-concert.html) - Dailymail.com
+- [Keith Urban, Celine Dion lead headline list of musicians paying tribute to John Farnham in Melbourne concert \| PerthNow](https://www.perthnow.com.au/entertainment/music/keith-urban-celine-dion-lead-headline-list-of-musicians-paying-tribute-to-john-farnham-in-melbourne-concert-c-22900134) - Perthnow
+- [John Farnham Honoured by Celine Dion & More In Melbourne](https://au.variety.com/2026/music/news/john-farnham-honoured-by-celine-dion-chris-martin-and-keith-urban-at-melbourne-concert-40533) - Variety
+- [Celine Dion, Chris Martin & Keith Urban celebrate John Farnham in Melbourne -](https://happymag.tv/john-farnham-tribute-celine-dion-chris-martin-keith-urban) - Happymag
+- [John Farnham’s family reveal beloved star too unwell to attend his Melbourne tribute concert \| 7NEWS](https://7news.com.au/entertainment/music/john-farnhams-family-reveal-beloved-star-too-unwell-to-attend-his-melbourne-tribute-concert-c-22896668) - 7news
+- [John Farnham to miss tribute concert due to poor health - ABC News](https://www.abc.net.au/news/2026-09-20/singer-john-farnham-miss-melbourne-tribute-concert-poor-health/107173452) - Abc
+- [Chad Gilbert Dead: New Found Glory Guitarist Was 45](http://deadline.com/2026/09/chad-gilbert-dead-new-found-glory-1237108950/) - Deadline
+- [Rockers Pay Respects to New Found Glory's Guitarist Chad Gilbert](https://loudwire.com/rockers-tributes-new-found-glory-chad-gilbert/) - Loudwire
+- [New Found Glory guitarist Chad Gilbert dead at 45](https://www.pastemagazine.com/article/new-found-glory-lead-guitarist-chad-gilbert-dead-at-45) - Pastemagazine
+- [New Found Glory guitarist Chad Gilbert dead at 45](https://www.pastemagazine.com/music/new-found-glory/new-found-glory-lead-guitarist-chad-gilbert-dead-at-45) - Pastemagazine
+- [New Found Glory Guitarist Chad Gilbert Dead at 45 After Health Battle](https://www.eonline.com/videos/2514785859868/new-found-glory-guitarist-chad-gilbert-dead-at-45-after-health-battle) - Eonline
+- [Chad Gilbert, New Found Glory Founding Member and Guitarist Dead at 45](https://www.complex.com/music/a/markelibert/chad-gilbert-new-found-glory-dead-45) - Complex
+- [New Found Glory Guitarist Chad Gilbert Dies at 45 - The Rock Revival](https://therockrevival.com/rock-news/new-found-glory-guitarist-chad-gilbert-dies-at-45) - Therockrevival
+- [Slipknot Release Behind-the-Scenes Clip for 'Arsenal' Music Video](https://loudwire.com/slipknot-clown-explains-difficult-vision-arsenal-music-video-behind-the-scenes/) - Loudwire
+- [SLIPKNOT Shares Behind-The-Scenes Footage From Making Of 'Arsenal' Music Video - BLABBERMOUTH.NET](https://blabbermouth.net/news/slipknot-shares-behind-the-scenes-footage-from-making-of-arsenal-music-video) - Blabbermouth
+- [Is Miley Cyrus’ ‘Innocent Ways’ About Sister Noah Cyrus? Lyrics & Meaning Explained](https://www.justjared.com/2026/09/20/miley-cyrus-innocent-ways-lyrics-meaning-is-song-about-noah-cyrus/) - Just Jared
+- [Miley Cyrus' 'Innocent Ways' Lyrics Meaning: Is the Song About Noah Cyrus?](https://www.justjared.com/2026/09/20/miley-cyrus-innocent-ways-lyrics-meaning-is-song-about-noah-cyrus) - Justjared
+- [Miley's "Innocent Ways" Lyrics & Meaning, Explained](https://www.bustle.com/entertainment/miley-innocent-ways-lyrics-meaning) - Bustle
+- [Miley Cyrus Song 'Innocent Ways' Lyrics About Noah Explained](https://www.usmagazine.com/entertainment/news/miley-cyrus-song-innocent-ways-lyrics-about-noah-explained) - Usmagazine
+- [Miley Cyrus Seemingly Addresses Sister Noah With Hard-Won Advice on ‘Innocent Ways’](https://www.yahoo.com/entertainment/music/articles/miley-cyrus-seemingly-addresses-sister-110017429.html) - Yahoo
+- [She's Just Being Miley: Seven Takeaways From 'Bass Persuades'](https://au.rollingstone.com/music/music-features/miley-bass-persuades-collaborators-key-tracks-takeaways-101282) - Rollingstone
+- [Symphonic Metal Singer Amanda Somerville Diagnosed With Tumor](https://loudwire.com/amanda-somerville-diagnosed-malignant-aggressive-brain-tumor/) - Loudwire
+- [Amanda Somerville reveals alarming health diagnosis - Chaoszine](https://chaoszine.net/amanda-somerville-reveals-alarming-health-diagnosis) - Chaoszine
+- [Symphonic Metal Singer and Vocal Coach AMANDA SOMERVILLE (EPICA, KAMELOT) Diagnosed With Aggressive Brain Tumor - Metal Injection](https://metalinjection.net/news/symphonic-metal-singer-and-vocal-coach-amanda-somerville-epica-kamelot-diagnosed-with-aggressive-brain-tumor) - Metalinjection
+- [Symphonic Metal Singer Amanda Somerville Diagnosed With 'Malignant' + 'Aggressive Brain Tumor'](https://loudwire.com/amanda-somerville-diagnosed-malignant-aggressive-brain-tumor) - Loudwire
+- [Symphonic metal vocalist Amanda Somerville diagnosed with "malignant and aggressive brain tumour"](https://www.yahoo.com/entertainment/music/articles/symphonic-metal-vocalist-amanda-somerville-030000298.html) - Yahoo
+- [Popular rock singer reveals ‘aggressive brain tumor’ at 47: ‘We’re shocked’](https://www.yahoo.com/entertainment/music/articles/popular-rock-singer-reveals-aggressive-090114652.html) - Yahoo
+- [Lady Gaga's history of Bad Romances as star, 40, finally finds her happily ever after and welcomes first child with fiancé Michael Polansky](https://www.dailymail.com/tvshowbiz/article-16130091/Lady-Gagas-history-Bad-Romances-child-fiance-Michael-Polansky.html) - Dailymail.com
+- [Lady Gaga and Michael Polansky Welcomed Daughter Via Surrogate](https://www.tmz.com/2026/09/17/lady-gaga-and-michael-polansky-used-surrogate-to-have-child) - Tmz
+- [Lady Gaga’s baby has a name. But she’s not a Bay Area native](https://www.sfchronicle.com/entertainment/article/lady-gaga-baby-name-rose-bean-polansky-22437046.php) - Sfchronicle
+- [Lady Gaga's Baby Is Reportedly a Girl, Her Name is Rose Bean Polansky](https://voi.id/en/amp/594765) - Voi
+- [Lady Gaga's baby name and sex reportedly revealed](https://www.digitalspy.com/tv/ustv/a73778556/lady-gaga-baby-name-gender-reveal) - Digitalspy
+- [Gurriers singer Dan Hoff: ‘I try to talk about my mental-health issues the same as a common cold’](https://www.irishtimes.com/culture/music/2026/09/20/gurriers-singer-dan-hoff-i-try-to-talk-about-my-mental-health-issues-the-same-as-a-common-cold/) - The Irish Times
+- [‘Nobody’s coming to save you’: Gurriers on their darker new album, Belfast ties and bringing their ‘feral energy’ to Ulster Hall – The Irish News](https://www.irishnews.com/entertainment/nobodys-coming-to-save-you-gurriers-on-their-darker-new-album-belfast-ties-and-bringing-their-feral-energy-to-ulster-hall-YVFH7EGTRZGLXKDBZXZHRK4IAA) - Irishnews
+- [Dublin rockers Gurriers won’t back down \| The Cover \| NME.com](https://www.nme.com/the-cover/gurriers-21-09-2026-3969816) - Nme
+- [Gurriers: Dan Hoff on Nobody’s Coming to Save You \| Interview - HeadStuff](https://headstuff.org/entertainment/music/gurriers-dan-hoff-nobodys-coming-to-save-you) - Headstuff
+- [Gurriers singer Dan Hoff: ‘I try to talk about my mental-health issues the same as a common cold’ – The Irish Times](https://www.irishtimes.com/culture/music/2026/09/20/gurriers-singer-dan-hoff-i-try-to-talk-about-my-mental-health-issues-the-same-as-a-common-cold) - Irishtimes
+- [Gurriers’ exclusive playlist for The Cover is pure cinema](https://www.nme.com/news/music/gurriers-the-cover-playlist-3969825) - Nme
+- [Kristin Hersh – Sugar on Blackstone (2026)](https://exystence.net/blog/2026/09/20/kristin-hersh-sugar-on-blackstone-2026/) - Exystence.net
+- [Kristin Hersh – Sugar on Blackstone (Fire) (13th Floor Album](https://13thfloor.co.nz/kristin-hersh-sugar-on-blackstone-fire-13th-floor-album-review) - 13thfloor
+- [Kristin Hersh – Sugar On Blackstone: Review](https://www.live4ever.uk.com/kristin-hersh-sugar-blackstone-review) - Uk
+- [Next Week In Music \| September 14-20 • The Slightly Shorter List: 50 Titles You Want to Hear (Part 3) - Tinnitist](https://tinnitist.com/2026/09/13/next-week-in-music-september-14-20-the-slightly-shorter-list-50-titles-you-want-to-hear-part-3) - Tinnitist
+- [Potential Glimpse At Yoko Taro’s Neon Genesis Evangelion Drops At The Weeknd Concert](https://kotaku.com/potential-glimpse-at-yoko-taros-neon-genesis-evangelion-drops-at-the-weeknd-concert-2000735972) - Kotaku
+- [NieR's Yokō Tarō, Evangelion's Yoko Takahashi Collaborate on The Weeknd's Latest Tour](https://www.animenewsnetwork.com/interest/2026-09-20/nier-yoko-taro-evangelion-yoko-takahashi-collaborate-on-the-weeknd-latest-tour/.242019) - Animenewsnetwork
+- [Yokō Tarō Goes Live With The Weeknd — Singapore Double Bill](https://www.gametrader.sg/blog/yoko-taro-weeknd-tokyo-singapore-2026) - Gametrader
+- [Yoko Taro’s Evangelion Project Teased at The Weeknd Concert](https://www.glitched.online/yoko-taros-evangelion-project-teased-at-the-weeknd-concert) - Glitched
+- [The Weeknd just gave fans an unexpected EVANGELION surprise ...](https://www.instagram.com/p/DdeL6clzvpy) - Instagram
+- [The Weeknd previews a new song in Japan, sampling “A Cruel ...](https://www.reddit.com/r/NeonGenesisEvangelion/comments/1wkp3b1/the_weeknd_previews_a_new_song_in_japan_sampling) - Reddit
+- [The Weeknd shoed fans at his Tokyo show the first look at a new ...](https://www.instagram.com/p/Dde9hlxEhce) - Instagram
+- [Nechazz – Pieces of a Dream (2026)](https://exystence.net/blog/2026/09/21/nechazz-pieces-of-a-dream-2026/) - Exystence.net
+- [New Releases & Staff Picks - 8/28/26 - Stinkweeds Records](https://www.stinkweeds.com/blogs/stinkweeds-blog/new-releases-staff-picks-8-28-26) - Stinkweeds
+- [Previously unheard Nechazz album recorded in late-1980s Amman arrives via Habibi Funk](https://mixmagmena.com/read/previously-unheard-nechazz-album-recorded-in-late-1980s-amman-arrives-via-habibi-funk-news) - Mixmagmena
+- [Instagram](https://www.instagram.com/p/Dcsoty8RN98) - Instagram
+- [Nechazz - Habibi Funk 036: Pieces of a Dream - LP \| The 'In' Groove](https://www.theingroove.com/products/nechazz-habibi-funk-036-pieces-of-a-dream-lp) - Theingroove
+- [Nechazz - Habibi Funk 036: Pieces Of A Dream](https://theurbanlightsmusic.com/UPC/4262568670088) - Theurbanlightsmusic
+- [Estate of late Streetheart singer Kenny Shields suing current band members](https://www.cbc.ca/news/canada/manitoba/streetheart-band-kenny-shields-estate-lawsuit-9.7345786) - CBC News
+- [Estate of late Streetheart singer Kenny Shields suing current band ...](https://www.reddit.com/r/Winnipeg/comments/1wliwu6/estate_of_late_streetheart_singer_kenny_shields) - Reddit
+- [MANITOBA MUSIC MUSEUM - Facebook](https://www.facebook.com/groups/177889445583606/posts/28615124858100018) - Facebook
+- [Zara Larsson Shines on Stage in Custom PC Footwear Metallic Pink Booties at 2026 iHeartRadio Music Festival](http://wwd.com/footwear-news/shoe-trends/zara-larsson-pc-footwear-2026-iheartradio-music-festival-1239248426/) - WWD
+- [Zara Larsson Shines on Stage in Custom Pc Footwear Metallic Pink Booties at 2026 iHeartRadio Music Festival](https://wwd.com/footwear-news/shoe-trends/zara-larsson-pc-footwear-2026-iheartradio-music-festival-1239248426) - Wwd
+- [In 2022, Adele bought Sylvester Stallone’s 3.5-acre Beverly Park mansion for $58 million; four years later, she has stripped it to the bones and rebuilt almost everything](https://timesofindia.indiatimes.com/world/us/in-2022-adele-bought-sylvester-stallones-3-5-acre-beverly-park-mansion-for-58-million-four-years-later-she-has-stripped-it-to-the-bones-and-rebuilt-almost-everything/articleshow/134369793.cms) - The Times of India
+- [Adele's $58 million Beverly Park mansion renovation - Facebook](https://www.facebook.com/worldtrendingnewz/posts/in-2022-adele-purchased-sylvester-stallones-35acre-beverly-park-mansion-for-a-re/1703713328429134) - Facebook
+- [Israeli man shot dead near West Bank settlement, Netanyahu orders demolition of ‘terrorist’ home - The Times of India](https://timesofindia.indiatimes.com/world/middle-east/israeli-man-shot-dead-near-west-bank-settlement-netanyahu-orders-demolition-of-terrorist-home/articleshow/134370537.cms) - Indiatimes
+- [Adele demolió la mansión que le compró a Sylvester Stallone por ...](https://radiomitre.cienradios.com/mundo/adele-demolio-la-mansion-que-le-compro-a-sylvester-stallone-por-58-millones-de-dolares-y-dejo-una-sola-cosa-en-pie-la-estatua-de-rocky) - Cienradios
