@@ -1,0 +1,72 @@
+# Sources for 2026-09-22 News Episode 
+- [2026 MTV VMAs: Taylor Swift to Receive MTV VMA Artist Director Honors](https://bleedingcool.com/tv/2026-mtv-vmas-taylor-swift-to-receive-mtv-vma-artist-director-honors/) - Bleeding Cool News
+- [Taylor Swift to Receive First Ever Artist Director Honors at VMAs](https://www.eonline.com/news/1436292/taylor-swift-to-receive-inaugural-artist-director-honors-at-vmas) - Eonline.com
+- [Taylor Swift to Receive Inaugural MTV VMA Artist Director Honors at "2026 MTV Video Music Awards (VMAs)," Airing Sunday, Sept. 27 on CBS](http://www.thefutoncritic.com/news/2026/09/21/taylor-swift-to-receive-inaugural-mtv-vma-artist-director-honors-at-2026-mtv-video-music-awards-vmas-airing-sunday-sept-27-on-cbs-557515/20260921cbs01/) - Thefutoncritic.com
+- [Taylor Swift to Receive Inaugural Artist Director Honors at 2026 MTV VMAs](http://www.rollingstone.com/music/music-news/taylor-swift-artist-director-honors-2026-mtv-vmas-1235629611/) - Rolling Stone
+- [Taylor Swift to Receive First-Ever Artist Director Honor at MTV VMAs 2026, Will Break Major Record](https://www.justjared.com/2026/09/21/taylor-swift-first-ever-artist-director-honor-2026-mtv-vmas-record/) - Just Jared
+- [Video Music Awards Make Up a New Award Just for Taylor Swift: Artist Director Honors](https://ohnotheydidnt.livejournal.com/132896848.html) - Livejournal.com
+- [Seven Reasons Why You Should See Harry Styles Right Now](http://www.rollingstone.com/music/music-features/harry-styles-together-together-reasons-to-see-live-2026-1235610318/) - Rolling Stone
+- [Harry Styles: Ticketing Details for 2027 "Together Together" Tour Dates](https://consequence.net/2026/09/harry-styles-2027-together-together-tour-ticket-details) - Consequence
+- [Harry Styles Adds 3 More Shows To His Chicago Stop On 2027 Tour](https://blockclubchicago.org/2026/09/15/harry-styles-announces-12-city-tour-in-2027-with-2-shows-in-chicago) - Blockclubchicago
+- [Harry Styles expands Together, Together tour with 2027 dates - ABC News](https://abcnews.com/GMA/Culture/harry-styles-expands-tour-2027-dates/story?id=136341611) - Abcnews
+- [Harry Styles extends tour, with Kylie as a support act](https://www.bbc.com/news/articles/ckgwenl0g0wo) - Bbc
+- [Harry Styles' New Together, Together Tour NYC Setlist: First U.S. Show](https://www.billboard.com/lists/harry-styles-together-together-nyc-new-setlist-first-show) - Billboard
+- [Placebo Announce 2027 Latin American Tour Celebrating Their First Two Albums](https://consequence.net/2026/09/placebo-2027-latin-america-tour/) - Consequence.net
+- [Placebo Announce 2027 Tour of Latin America](https://consequence.net/2026/09/placebo-2027-latin-america-tour) - Consequence
+- [Placebo returns to Guadalajara to celebrate 30 years of music](https://guadalajarasecreta.com/en/placebo-concert-in-guadalajara-2027) - Guadalajarasecreta
+- [Alerta de gira: PLACEBO celebrará 30 años de carrera ... - Instagram](https://www.instagram.com/p/Ddj7F_cy0gM) - Instagram
+- [Placebo regresa a Sudamérica en 2027. La banda inglesa anunció ...](https://www.facebook.com/revistaplaylistCL/videos/placebo-regresa-a-sudam%C3%A9rica-en-2027la-banda-inglesa-anunci%C3%B3-su-retorno-al-conti/1716304203004585) - Facebook
+- [Everything We Know About Slipknot's Mysterious Website Tease](https://loudwire.com/slipknot-2026-website-tease-explained/) - Loudwire
+- [Everything We Know About Slipknot's Mysterious Website Tease](https://loudwire.com/slipknot-2026-website-tease-explained) - Loudwire
+- [SLIPKNOT appear to be teasing upcoming tour](https://lambgoat.com/news/54964/slipknot-appear-to-be-teasing-upcoming-tour) - Lambgoat
+- [What is Slipknot teasing? - Chaoszine](https://chaoszine.net/what-is-slipknot-teasing) - Chaoszine
+- [Slipknot Appear To Tease New Tour Announcement For September 28](https://themosh.net/slipknot-tour-announcement-tease-september-28) - Themosh
+- [Unit1 Studio raises $20m for its now-moveable avatar-concerts tech](https://musically.com/2026/09/21/unit1-studio-raises-20m-for-its-now-moveable-avatar-concerts-tech/) - Music Ally
+- [Unit1 Studio raises £20M to scale avatar concert technology - Tech.eu](https://tech.eu/2026/09/21/unit1-studio-raises-ps20m-to-scale-avatar-concert-technology) - Tech
+- [Unit1 Studio secures further $20m investment after 'breakthrough' in avatar concert production \| Live \| Music Week](https://www.musicweek.com/live/read/unit1-studio-secures-further-20m-investment-after-breakthrough-in-avatar-concert-production/095015) - Musicweek
+- [What Is an Avatar Concert? Unit1 Is Making Them Easier to Produce](https://www.hypebot.com/what-is-an-avatar-concert-unit1-is-making-them-easier-to-produce) - Hypebot
+- [Unit1 Studio raises $20m for its now-moveable avatar-concerts tech](https://musically.com/2026/09/21/unit1-studio-raises-20m-for-its-now-moveable-avatar-concerts-tech) - Musically
+- [Unit1 Studio Raises $26.7 Million to Scale Avatar-Based Concert Touring Tech](https://www.digitalmusicnews.com/2026/09/21/unit1-studio-avatar-based-concert-touring-funding) - Digitalmusicnews
+- [Unit1 Studio raises $20M from Balderton to make avatar concerts commercially viable](https://techfundingnews.com/unit1-studio-raises-20m-balderton-avatar-concerts) - Techfundingnews
+- [UK startup snares $20m to recreate gigs with 'hyper-realistic' digital ...](https://www.aol.co.uk/articles/uk-startup-snares-20m-recreate-130016000.html) - Aol
+- [Introspective Beck May Be the Best Version of Beck](https://www.spinmagazine.com/2026/09/beck-ride-lonesome-album-review/) - Spinmagazine.com
+- [Beck - Ride Lonesome review • DIY Magazine](https://diymag.com/review/album/beck-ride-lonesome) - Diymag
+- [Beck: Ride Lonesome Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/beck-ride-lonesome) - Pitchfork
+- [Beck - Ride Lonesome (Capitol) (13th Floor Album Review)](https://13thfloor.co.nz/beck-ride-lonesome-capitol-13th-floor-album-review) - 13thfloor
+- [Beck - 'Ride Lonesome' album review](https://faroutmagazine.co.uk/beck-ride-lonesome-album-revie) - Faroutmagazine
+- [ALBUM REVIEW: Beck channels ‘Sea Change’ with richer perspective on ‘Ride Lonesome’](https://riffmagazine.com/album-reviews/beck-ride-lonesome) - Riffmagazine
+- [We’ve got a stage at C2C festival in Italy!](https://www.dazeddigital.com/music/article/71013/1/we-ve-got-a-stage-at-c2c-festival-in-italy?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=we-ve-got-a-stage-at-c2c-festival-in-italy) - Dazed
+- [We’ve got a stage at C2C festival in Italy! \| Dazed](https://www.dazeddigital.com/music/article/71013/1/we-ve-got-a-stage-at-c2c-festival-in-italy) - Dazeddigital
+- [Josephine Illingworth releases new song in partnership with Brian Eno's EarthPercent foundation](https://www.thelineofbestfit.com/news/josephine-illingworth-releases-new-song-in-partnership-with-brian-enos-earthpercent-foundation) - Thelineofbestfit.com
+- [How Ed Sheeran Turned a Firestorm Over Macklemore, Palestine and Free Expression Into a PR Debacle \| Analysis](https://www.thewrap.com/creative-content/music/ed-sheeran-macklemore-crisis-communications-pr-advice-analysis/) - TheWrap
+- [The Ed Sheeran Controversy](https://www.thenation.com/?post_type=article&p=609946) - Thenation.com
+- [How Ed Sheeran Could Have Handled the Macklemore Controversy Better](https://www.thewrap.com/creative-content/music/ed-sheeran-macklemore-crisis-communications-pr-advice-analysis) - Thewrap
+- [Ed Sheeran’s tour with Macklemore has imploded. Here’s what you need to know \| The Independent](https://www.independent.co.uk/arts-entertainment/tv/news/macklemore-ed-sheeran-tour-palestine-support-acts-b3052255.html) - Independent
+- [Ed Sheeran Speaks on Gaza After Macklemore Controversy - Life & Style En.tempo.co](https://en.tempo.co/read/2119951/ed-sheeran-speaks-on-gaza-after-macklemore-controversy) - Tempo
+- [Robert Kraft bans Macklemore from performing at Gillette Stadium over "hate speech" - NBC Sports](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/robert-kraft-bans-macklemore-from-performing-at-gillette-stadium-over-hate-speech) - Nbcsports
+- [VA – International Pop Overthrow: Volume 27 (2026)](https://exystence.net/blog/2026/09/21/va-international-pop-overthrow-volume-27-2026/) - Exystence.net
+- [Photo by Etsko.Tamura (@etsko.tamura76) · August 26, 2026](https://www.instagram.com/p/Dce4jHZzyW1) - Instagram
+- [It's going to be hard to live in a world without Dolly - Facebook](https://www.facebook.com/karen.zanes/posts/its-going-to-be-hard-to-live-in-a-world-without-dolly-/10241568133396621) - Facebook
+- [International Pop Overthrow: Volume 27 (3 CDs) - JPC](https://www.jpc.de/jpcng/poprock/detail/-/art/various-artists-international-pop-overthrow-volume-27/hnum/12848858) - Jpc
+- [Volume 27 — 68 tracks on 3 CDs at a special low price! Available now!](https://www.instagram.com/p/DdcYyJjEhPf) - Instagram
+- [International Pop Overthrow - Volume 27 \| HMV Store](https://hmv.com/store/music/cd/international-pop-overthrow-volume-27) - Hmv
+- [Ninajirachi Adds New 2027 Tour Dates](https://consequence.net/2026/09/ninajirachi-2027-tour-dates/) - Consequence.net
+- [News: Ninajirachi adds 12 dates to her North American tour as demand surges](https://www.backseatmafia.com/news-ninajirachi-adds-12-dates-to-her-north-american-tour-as-demand-surges) - Backseatmafia
+- [Ninajirachi Adds New 2027 Tour Dates](https://consequence.net/2026/09/ninajirachi-2027-tour-dates) - Consequence
+- [Ninajirachi Adds 12 North American Dates to ‘I Love My Computer’ Tour](https://www.yahoo.com/entertainment/music/articles/ninajirachi-adds-12-north-american-043931489.html) - Yahoo
+- [Ninajirachi Adds 12 North American Dates to 'I Love My Computer ...](https://www.billboard.com/music/concerts/ninajirachi-adds-north-american-dates-i-love-my-computer-tour-1236344393) - Billboard
+- [Ninajirachi Extends North American Tour Into 2027](https://www.famemagazine.co.uk/ninajirachi-extends-north-american-tour-into-2027) - Famemagazine
+- [Mike Taylor: “Too much Analysis Causes Paralysis”](https://www.attackmagazine.com/features/qa/mike-taylor-too-much-analysis-causes-paralysis/) - Attackmagazine.com
+- [Mike Taylor: "Too much Analysis Causes Paralysis" - Attack Magazine](https://www.attackmagazine.com/features/qa/mike-taylor-too-much-analysis-causes-paralysis) - Attackmagazine
+- [Una Mullally: Irish artists became the biggest in the world when they walked away from Ed Sheeran’s tour](https://www.irishtimes.com/opinion/2026/09/21/una-mullally-irish-artists-became-the-biggest-in-the-world-when-they-walked-away-from-ed-sheerans-tour/) - The Irish Times
+- [Ed Sheeran’s Support Acts Quit Tour In Solidarity With Macklemore](https://musicfeeds.com.au/news/all-of-ed-sheerans-support-acts-quit-stadium-tour-in-solidarity-with-macklemore) - Musicfeeds
+- [Ed Sheeran's Loop Tour in chaos as ALL support acts pull out in solidarity with Macklemore - The Mirror](https://www.mirror.co.uk/3am/celebrity-news/ed-sheeran-loop-tour-macklemore-37667103) - Mirror
+- [Ed Sheeran tour gets hit by artist walkout over Macklemore ouster \| The Shillong Times](https://theshillongtimes.com/2026/09/17/ed-sheeran-tour-gets-hit-by-artist-walkout-over-macklemore-ouster) - Theshillongtimes
+- [All supporting acts quit Ed Sheeran’s tour after Macklemore is dropped over Palestine comments - Yahoo News UK](https://uk.news.yahoo.com/three-supporting-acts-quit-ed-200538844.html) - Yahoo
+- [Ed Sheeran set to return to stage in Philadelphia for 1st time since Macklemore was cut](https://nypost.com/2026/09/19/us-news/ed-sheeran-set-to-return-to-stage-in-philadelphia-for-1st-time-since-macklemore-was-cut) - Nypost
+- [Ed Sheeran to resume tour after acts withdraw over Macklemore comments \| LiveNOW from FOX](https://www.livenowfox.com/news/ed-sheeran-concert-philadelphia) - Livenowfox
+- [MNEK is back and 'standing tall' with bold new album, 'Bulldozer!!'](https://www.out.com/gay-music/mnek-new-album-bulldozer) - Out.com
+- [MNEK Interview: New Album 'Bulldozer!!', Zara Larsson, FLO & More](https://www.billboard.com/music/features/mnek-bulldozer-album-interview-zara-larsson-1236335152) - Billboard
+- [MNEK Releases First Album In Eight Years, ‘BULLDOZER!!’](https://www.udiscovermusic.com/uncategorized/mnek-bulldozer) - Udiscovermusic
+- [Stream: MNEK Unleashes 'BULLDOZER!!' - First Album in 8 Years - That Grape Juice](https://thatgrapejuice.net/2026/09/stream-mnek-unleashes-bulldozer-first-album-in-8-years) - Thatgrapejuice
+- [MNEK Returns to the Spotlight With BULLDOZER!! and a New Sense of Confidence \| Magic 104.7 KNEK](https://www.knek.com/2026/09/19/mnek-returns-to-the-spotlight-with-bulldozer-and-a-new-sense-of-confidence) - Knek
