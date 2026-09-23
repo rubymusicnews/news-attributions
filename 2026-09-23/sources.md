@@ -1,0 +1,66 @@
+# Sources for 2026-09-23 News Episode 
+- [Taylor Swift Announces New Single “Patient Zero”](https://pitchfork.com/story/taylor-swift-announces-new-single-patient-zero/) - Pitchfork
+- [Taylor Swift Is Dropping a Brand New Single Called “Patient Zero” on Friday](https://thoughtcatalog.com/january-nelson/2026/09/taylor-swift-is-dropping-a-brand-new-single-called-patient-zero-on-friday/) - Thoughtcatalog.com
+- [Taylor Swift Teases New Single, ‘Patient Zero,’ Releasing Ahead Of MTV VMA Honors](http://deadline.com/2026/09/taylor-swift-patient-zero-new-song-single-1237110452/) - Deadline
+- [All the Easter Eggs Taylor Swift Dropped Over the Last 7 Months Teasing ‘Patient Zero’](https://www.thewrap.com/creative-content/music/taylor-swift-patient-zero-easter-eggs/) - TheWrap
+- [Is Taylor Swift ‘Patient Zero’?](http://www.thecut.com/article/taylor-swift-new-song-patient-zero.html) - The Cut
+- [Taylor Swift’s Encore and CBK Style?](https://www.laineygossip.com/is-taylor-swifts-newly-announced-single-patient-zero-a-standalone-single-or-attached-to-a-new-album/) - LaineyGossip
+- [Taylor Swift sends fans into a frenzy after appearing to debut NEW engagement ring in latest music release](https://www.dailymail.com/lifestyle/fashion/article-16152471/taylor-swift-debut-new-engagement-wedding-ring-music-release.html) - Dailymail.com
+- [CHVRCHES Begin Bold Chapter With ‘Roses’](https://www.spinmagazine.com/2026/09/chvrches-new-single/) - Spinmagazine.com
+- [Chvrches Return With First Song in Three Years](https://pitchfork.com/story/chvrches-return-with-first-song-in-three-years/) - Pitchfork
+- [Chvrches return with first new music in three years, “Roses”](https://www.thelineofbestfit.com/news/chvrches-return-with-first-new-music-in-three-years-roses) - Thelineofbestfit.com
+- [CHVRCHES Reveal New Rock-Tinged Song “Roses”: Stream](https://consequence.net/2026/09/chvrches-roses-new-song-stream/) - Consequence.net
+- [Chvrches Share New Single "Roses": Listen](https://stereogum.com/2512236/chvrches-roses/music) - Stereogum
+- [CHVRCHES – “Roses” Video](https://chorus.fm/news/chvrches-roses-video) - Chorus
+- [CHVRCHES Begin Bold Chapter With ‘Roses’](https://www.yahoo.com/entertainment/music/articles/chvrches-begin-bold-chapter-roses-173000171.html) - Yahoo
+- [Chvrches return with dark, politically-charged new single 'Roses' and intimate Glasgow and London shows](https://www.nme.com/news/music/chvrches-new-single-roses-album-glasgow-london-shows-3970218) - Nme
+- [Ella Langley's Choosin' Texas becomes longest-running number one in US chart history](https://www.bbc.co.uk/news/articles/cwyvz0yvqre8o) - BBC News
+- [Ella Langley’s ‘Texas’ Smashes Hot 100 Record](https://www.spinmagazine.com/2026/09/ella-langleys-hot-100-record/) - Spinmagazine.com
+- [Ella Langley Ties Lil Nas X and Shaboozey's Billboard Record](https://www.rollingstone.com/music/music-news/ella-langley-ties-shaboozey-lil-nas-x-billboard-number-one-1235613980) - Rollingstone
+- [Ella Langley's 'Choosin' Texas' ties record for most weeks at No. 1](https://www.goldderby.com/music/2026/ella-langley-choosin-texas-charts-record-grammys-mariah-carey) - Goldderby
+- [Ella Langley's Choosin' Texas becomes longest-running number ...](https://www.bbc.com/news/articles/cwyvz0yvqre8o) - Bbc
+- [Ella Langley’s hit is about to break Mariah Carey’s Billboard record — and it started with a kangaroo](https://www.guitarplayer.com/guitarists/ella-langley-charts-record) - Guitarplayer
+- [Ella Langley's 'Choosin' Texas' No. 1 on Hot 100 for 23rd Week](https://www.billboard.com/lists/ella-langley-choosin-texas-hot-100-number-one-chart-record) - Billboard
+- [ATEEZ’s HONGJOONG on Taking Off the Captain’s Hat for “ENOuGH” With Bazzi](https://consequence.net/2026/09/hongjoong-of-ateez-finds-himself-home/) - Consequence.net
+- [HONGJOONG of ATEEZ Finds Home on "ENoUGH" w/ Bazzi](https://consequence.net/2026/09/hongjoong-of-ateez-finds-himself-home) - Consequence
+- [Judas Priest transport London to the golden age of heavy metal with their biggest hits – and lashings of leather: “Breaking The Law is unabashedly joyous and Painkiller lands like a meteor strike”](https://www.loudersound.com/reviews/judas-priest-faithkeepers-tour-live-review-london-eventim-apollo-september-2026) - Louder
+- [Judas Priest: Live on “Faithkeepers” Tour in London - Impericon](https://www.impericon.com/blogs/magazine/judas-priest-live-on-faithkeepers-tour-in-london) - Impericon
+- [Judas Priest Bassist Misses First Show Since 1970, Fill-In Used](https://loudwire.com/judas-priest-ian-hill-miss-first-show) - Loudwire
+- [Watch: JUDAS PRIEST Performs Without Bassist IAN HILL At Final Concert Of 2026 'Faithkeepers' European Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/watch-judas-priest-performs-without-bassist-ian-hill-at-final-concert-of-2026-faithkeepers-european-tour) - Blabbermouth
+- [Billboard - 2009 Full Year](https://post.rlsbb.cc/billboard-2009-full-year/) - Rlsbb.cc
+- [Billboard - 2006 Full Year](https://post.rlsbb.cc/billboard-2006-full-year/) - Rlsbb.cc
+- [Billboard - 2007 Full Year](https://post.rlsbb.cc/billboard-2007-full-year/) - Rlsbb.cc
+- [Billboard - 2008 Full Year](https://post.rlsbb.cc/billboard-2008-full-year/) - Rlsbb.cc
+- [Apple Opens Its Own 600-Person Live Music Venue in London](https://www.iphoneincanada.ca/2026/09/22/apple-music-hall-open-london/) - iPhone in Canada
+- [Apple Music Hall puts a recording studio behind the stage at Battersea Power Station](https://www.feeldesain.com/apple-music-hall-puts-a-recording-studio-behind-the-stage-at-battersea-power-station.html) - Feeldesain.com
+- [Apple opens futuristic new music venue in south London](https://www.dazeddigital.com/music/article/71018/1/apple-opens-futuristic-new-music-venue-in-south-london?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=apple-opens-futuristic-new-music-venue-in-south-london) - Dazed
+- [Apple opens Apple Music Hall, a state-of-the-art live music venue in London](https://macdailynews.com/2026/09/22/apple-opens-apple-music-hall-a-state-of-the-art-live-music-venue-in-london/) - Macdailynews.com
+- [If Apple Music Hall sounds as good as it looks, it’s gonna be amazing](https://www.cultofmac.com/news/apple-music-hall-london-battersea) - Cult of Mac
+- [Roger Taylor Confronts a World Both Beautiful and Broken](https://www.spinmagazine.com/2026/09/roger-taylor-confronts-a-world-both-beautiful-and-broken/) - Spinmagazine.com
+- [Queen's Roger Taylor on Trump: 'What Is Happening to America?'](https://www.billboard.com/music/rock/queen-roger-taylor-new-album-1236343342) - Billboard
+- [Rock Cellar Magazine  - Out Now: Queen’s Roger Taylor Releases New Solo Album ‘Violence Insane in a Beautiful World’](https://rockcellarmagazine.com/roger-taylor-solo-album-violence-insane-in-a-beautiful-world-2026) - Rockcellarmagazine
+- [Queen Legend Roger Taylor Has a Blunt Message With His New Album - 95.9 The RAT](https://wrat.com/2026/09/22/queen-legend-roger-taylor-has-a-blunt-message-with-his-new-album) - Wrat
+- [Queen's Roger Taylor announces UK tour dates and new studio album - Gold Radio](https://www.goldradio.com/artists/queen/roger-taylor-uk-tour-dates-album-2026) - Goldradio
+- [Queen's Roger Taylor Releases First Solo Album in Five Years, 'Violence Insane in a Beautiful World'](https://www.rockumweb.com/reportes/2445/queens-roger-taylor-releases-first-solo-album-in-five-years-violence-insane-in-a-beautiful-world) - Rockumweb
+- [Hear Queen Legend Roger Taylor's New Album 'Violence Insane In A Beautiful World' ::antiMusic.com](https://www.antimusic.com/p/26/r0920hear_queen_legend_roger_taylors_new_album_violence_insane_in_a_beautiful_world.shtml) - Antimusic
+- [The Fan Gift That Inspired an Entire Bruce Springsteen Album](https://www.mentalfloss.com/entertainment/music/fan-gift-that-inspired-springsteen-album) - Mental Floss
+- [The Fan Gift That Inspired an Entire Bruce Springsteen Album - Yahoo News Canada](https://ca.news.yahoo.com/fan-gift-inspired-entire-bruce-220002280.html) - Yahoo
+- [Penelope Isles and the Art of the Anti Music Video](https://www.spinmagazine.com/2026/09/penelope-isles-and-the-art-of-the-anti-music-video/) - Spinmagazine.com
+- [Blue Bendy Launch New Album With “Dragonslayer” Video](https://pitchfork.com/story/blue-bendy-launch-new-album-with-dragonslayer-video/) - Pitchfork
+- [Blue Bendy announce new album 'One Day This Will All Be Lore', and share single ‘Dragonslayer’ • News • DIY Magazine](https://diymag.com/news/blue-bendy-announce-new-album-one-day-this-will-all-be-lore-and-share-single-dragonslayer) - Diymag
+- [Blue Bendy Launch New Album With “Dragonslayer” Video \| Pitchfork](https://pitchfork.com/story/blue-bendy-launch-new-album-with-dragonslayer-video) - Pitchfork
+- [Blue Bendy Launch New Album With “Dragonslayer” Video](https://www.yahoo.com/entertainment/music/articles/blue-bendy-launch-album-dragonslayer-122123835.html) - Yahoo
+- [Gilla Band dig down to the bone on Pugnello](https://www.thelineofbestfit.com/albums/gilla-band-dig-down-to-bone-on-pugnello) - Thelineofbestfit.com
+- [Gilla Band Approach Singularity On Pugnello — Still Listening](https://www.stilllisteningmagazine.com/interviews/gilla-band-interview-inside-their-new-album-pugnello) - Stilllisteningmagazine
+- [DragonForce Announce First Album With Two New Vocalists](https://loudwire.com/dragonforce-self-titled-album-hunger-of-the-beast-song/) - Loudwire
+- [DragonForce Announce New Album, Unleash “Hunger of the Beast”: Stream](https://consequence.net/2026/09/dragonforce-new-album-single-hunger-of-the-beast/) - Consequence.net
+- [DRAGONFORCE To Release Self-Titled Tenth Studio Album In March; First Album With ALISSA WHITE-GLUZ On Vocals; "Hunger Of The Beast" Music Video Streaming](https://bravewords.com/news/dragonforce-to-release-self-titled-tenth-studio-album-in-march-first-album-with-alissa-white-gluz-on-vocals-hunger-of-the-beast-music-video-streaming) - Bravewords
+- [DragonForce Announce Self-Titled Album, Share New Single](https://bluntmag.com.au/music/dragonforce-self-titled-album-hunger-of-the-beast) - Bluntmag
+- [DragonForce Announce Self-Titled Tenth Album And New Single Hunger Of The Beast](https://www.metaltalk.net/dragonforce-announce-self-titled-tenth-album-and-new-single-hunger-of-the-beast.php) - Metaltalk
+- [DragonForce Shares a New Single and Video for “Hunger of The Beast” - New Album Coming in 2027 - Ghost Cult MagazineGhost Cult Magazine](https://ghostcultmag.com/dragonforce-shares-a-new-single-and-video-for-hunger-of-the-beast-new-album-coming-in-2027) - Ghostcultmag
+- [DRAGONFORCE Confirms Self-Titled Tenth Album & Unleashes "Hunger Of The Beast"](https://www.sonicperspectives.com/news/dragonforce-confirms-self-titled-tenth-album-unleashes-hunger-of-the-beast) - Sonicperspectives
+- [2hollis Announces New Album Pirouette](https://pitchfork.com/story/2hollis-announces-new-album-pirouette/) - Pitchfork
+- [2hollis Announces New Album Pirouette](https://consequence.net/2026/09/2hollis-pirouette-new-album/) - Consequence.net
+- [2hollis Announces New Album ‘Pirouette' With Cover Artwork by Yoshitaka Amano](https://www.complex.com/music/a/alex-ocho/2hollis-pirouette-album-yoshitaka-amano) - Complex
+- [2hollis Confirms New Album Pirouette](https://consequence.net/2026/09/2hollis-pirouette-new-album) - Consequence
+- [2hollis Announces New Album Pirouette](https://pitchfork.com/story/2hollis-announces-new-album-pirouette) - Pitchfork

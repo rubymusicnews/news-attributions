@@ -1,0 +1,90 @@
+# Daily News Video Credits - 2026-09-23
+Full media attributions for all assets used.
+
+| Type | Title / Description | Author | Source | License |
+|------|---------------------|---------|---------|----------|
+| Image | A Man Wearing Denim Jacket Holding His Smartphone | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/a-man-wearing-denim-jacket-holding-his-smartphone-8412297/) | [pexels](https://www.pexels.com/license) |
+| Video | Woman Is Recording A Song | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/video/woman-is-recording-a-song-8135216/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman In White Cardigans Wearing Headphones In Front Of A Mic | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-woman-in-white-cardigans-wearing-headphones-in-front-of-a-mic-7087170/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman Recording A Song In A Music Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-woman-recording-a-song-in-a-music-studio-7086741/) | [pexels](https://www.pexels.com/license) |
+| Image | A Female Artist Recording A Song | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-female-artist-recording-a-song-7086301/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman Singing In A Recording Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/woman-singing-in-a-recording-studio-7090866/) | [pexels](https://www.pexels.com/license) |
+| Image | A Beautiful Female Artist Recording A Song | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-beautiful-female-artist-recording-a-song-7086286/) | [pexels](https://www.pexels.com/license) |
+| Image | Lady GaGa at 2009 MTV VMA's | Philip Nelson | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=7812062) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Taylor Swift at 2009 MTV VMA's 2 | Philip Nelson | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=7811883) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Dynamic Live Heavy Metal Guitarist On Stage | Tin Stanton | [Pexels](https://www.pexels.com/photo/dynamic-live-heavy-metal-guitarist-on-stage-37937651/) | [pexels](https://www.pexels.com/license) |
+| Video | Energetic Metal Band Performing Live | The  MoonRunners | [Pexels](https://www.pexels.com/video/energetic-metal-band-performing-live-30618924/) | [pexels](https://www.pexels.com/license) |
+| Video | Rock Band Performing On Stage During Concert | Erik Mclean | [Pexels](https://www.pexels.com/video/rock-band-performing-on-stage-during-concert-12525562/) | [pexels](https://www.pexels.com/license) |
+| Video | Close Up Of Bass Guitar Performance | Kuiyibo Campos | [Pexels](https://www.pexels.com/video/close-up-of-bass-guitar-performance-38418674/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of Bass Guitar Performance At Rock Concert | Emre Gokceoglu | [Pexels](https://www.pexels.com/photo/close-up-of-bass-guitar-performance-at-rock-concert-32147332/) | [pexels](https://www.pexels.com/license) |
+| Video | Energetic Live Concert With Vibrant Crowd | Milan Kiro | [Pexels](https://www.pexels.com/video/energetic-live-concert-with-vibrant-crowd-31540263/) | [pexels](https://www.pexels.com/license) |
+| Image | Charismatic Rock Band Portrait In Studio Setting | Karan Mridha | [Pexels](https://www.pexels.com/photo/charismatic-rock-band-portrait-in-studio-setting-33037090/) | [pexels](https://www.pexels.com/license) |
+| Image | Dynamic Music Band Photoshoot With Bright Lighting | Luiz Ramírez | [Pexels](https://www.pexels.com/photo/dynamic-music-band-photoshoot-with-bright-lighting-34053943/) | [pexels](https://www.pexels.com/license) |
+| Video | Recording Studio | Tima Miroshnichenko | [Pexels](https://www.pexels.com/video/recording-studio-4985363/) | [pexels](https://www.pexels.com/license) |
+| Image | Music Producer Sitting In A Studio In Front Of A Computer And Console | RDNE Stock project | [Pexels](https://www.pexels.com/photo/music-producer-sitting-in-a-studio-in-front-of-a-computer-and-console-8198629/) | [pexels](https://www.pexels.com/license) |
+| Video | Energetic Heavy Metal Band Performance Indoors | The  MoonRunners | [Pexels](https://www.pexels.com/video/energetic-heavy-metal-band-performance-indoors-30618921/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman Inside The Recording Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-woman-inside-the-recording-studio-7086745/) | [pexels](https://www.pexels.com/license) |
+| Image | A Person Working In A Music Studio | Anna Pou | [Pexels](https://www.pexels.com/photo/a-person-working-in-a-music-studio-8132974/) | [pexels](https://www.pexels.com/license) |
+| Video | A Singer Performing On Stage At Sebis Festival In Romania | Adrian  Hoparda | [Pexels](https://www.pexels.com/video/a-singer-performing-on-stage-at-sebis-festival-in-romania-3577619/) | [pexels](https://www.pexels.com/license) |
+| Image | A Man Using A Smartphone | Ivan S | [Pexels](https://www.pexels.com/photo/a-man-using-a-smartphone-7902271/) | [pexels](https://www.pexels.com/license) |
+| Video | A Woman Wearing Headset Singing Inside The Recording Studio | cottonbro studio | [Pexels](https://www.pexels.com/video/a-woman-wearing-headset-singing-inside-the-recording-studio-7086752/) | [pexels](https://www.pexels.com/license) |
+| Image | Woman Singing In A Recording Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/woman-singing-in-a-recording-studio-7090866/) | [pexels](https://www.pexels.com/license) |
+| Video | Variety Of Vinyl Covers | Matthias Groeneveld | [Pexels](https://www.pexels.com/video/variety-of-vinyl-covers-7135105/) | [pexels](https://www.pexels.com/license) |
+| Image | A Person Holding A Vinyl Record | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-person-holding-a-vinyl-record-6862589/) | [pexels](https://www.pexels.com/license) |
+| Image | Mysterious Woman In Dark Fantasy Setting | balladphotoworkchanel robinkoraag | [Pexels](https://www.pexels.com/photo/mysterious-woman-in-dark-fantasy-setting-36106733/) | [pexels](https://www.pexels.com/license) |
+| Image | Multi Colored 7 Inch Single Vinyl Records On A Black Background With Empty Space For Text Top Down View Flat Lay With Vertical Orientation Retro Or Music Concept | Marta Nogueira | [Pexels](https://www.pexels.com/photo/multi-colored-7-inch-single-vinyl-records-on-a-black-background-with-empty-space-for-text-top-down-view-flat-lay-with-vertical-orientation-retro-or-music-concept-17210193/) | [pexels](https://www.pexels.com/license) |
+| Image | Band Playing Music Together In The Dark | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/band-playing-music-together-in-the-dark-8041015/) | [pexels](https://www.pexels.com/license) |
+| Image | Band Playing On Stage | Artem Podrez | [Pexels](https://www.pexels.com/photo/band-playing-on-stage-6270140/) | [pexels](https://www.pexels.com/license) |
+| Video | Energetic Rock Band Performance With Red Lighting | The  MoonRunners | [Pexels](https://www.pexels.com/video/energetic-rock-band-performance-with-red-lighting-30618930/) | [pexels](https://www.pexels.com/license) |
+| Video | Man Is Talking While Recording Using Condenser Microphone | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/video/man-is-talking-while-recording-using-condenser-microphone-8135170/) | [pexels](https://www.pexels.com/license) |
+| Image | A Man Wearing A Denim Jacket Singing In A Studio | AI25.Studio  AI GENERATIVE | [Pexels](https://www.pexels.com/photo/a-man-wearing-a-denim-jacket-singing-in-a-studio-8412286/) | [pexels](https://www.pexels.com/license) |
+| Video | Energetic Live Concert Performance In Club | Frontlajn Pey | [Pexels](https://www.pexels.com/video/energetic-live-concert-performance-in-club-30636173/) | [pexels](https://www.pexels.com/license) |
+| Image | Man Standing Holding His Acoustic Guitar | Alena Darmel | [Pexels](https://www.pexels.com/photo/man-standing-holding-his-acoustic-guitar-7715308/) | [pexels](https://www.pexels.com/license) |
+| Image | A Musician Being Recorded | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/a-musician-being-recorded-8041225/) | [pexels](https://www.pexels.com/license) |
+| Image | A Singer In The Recording Studio | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-singer-in-the-recording-studio-7087169/) | [pexels](https://www.pexels.com/license) |
+| Image | Members Of The Band Sitting Closely | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/members-of-the-band-sitting-closely-7802608/) | [pexels](https://www.pexels.com/license) |
+| Image | A Band Playing On Stage | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/a-band-playing-on-stage-8044170/) | [pexels](https://www.pexels.com/license) |
+| Image | Singer Singing On Stage Beside Guitar Player And Bass Player | Thibault Trillet | [Pexels](https://www.pexels.com/photo/singer-singing-on-stage-beside-guitar-player-and-bass-player-167636/) | [pexels](https://www.pexels.com/license) |
+| Video | A Cameraman Recording A Band | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/video/a-cameraman-recording-a-band-8041941/) | [pexels](https://www.pexels.com/license) |
+| Image | A Group Of Men Sitting On Chairs And Talking | Aj Collins  Artistry | [Pexels](https://www.pexels.com/photo/a-group-of-men-sitting-on-chairs-and-talking-28321911/) | [pexels](https://www.pexels.com/license) |
+| Video | Man Taking A Video Of Him Playing Guitar And Singing | Tima Miroshnichenko | [Pexels](https://www.pexels.com/video/man-taking-a-video-of-him-playing-guitar-and-singing-6671650/) | [pexels](https://www.pexels.com/license) |
+| Image | People Gathered Around A Table | Ron Lach | [Pexels](https://www.pexels.com/photo/people-gathered-around-a-table-9809821/) | [pexels](https://www.pexels.com/license) |
+| Video | A Cameraman Preparing For The Shooting Production | Ron Lach | [Pexels](https://www.pexels.com/video/a-cameraman-preparing-for-the-shooting-production-8089126/) | [pexels](https://www.pexels.com/license) |
+| Image | Elderly Man Wearing Hat Singing On Stage | Brayan Guzman Cortez | [Pexels](https://www.pexels.com/photo/elderly-man-wearing-hat-singing-on-stage-15370147/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Pointing On Musical Notes | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/person-pointing-on-musical-notes-7520788/) | [pexels](https://www.pexels.com/license) |
+| Image | Man Sitting With Acoustic Guitar Showing Music Sheet Chord In Front Of A Smartphone | Tima Miroshnichenko | [Pexels](https://www.pexels.com/photo/man-sitting-with-acoustic-guitar-showing-music-sheet-chord-in-front-of-a-smartphone-6671979/) | [pexels](https://www.pexels.com/license) |
+| Image | Illuminated Smartphone Screen Playing Music | Pew Nguyen | [Pexels](https://www.pexels.com/photo/illuminated-smartphone-screen-playing-music-11989313/) | [pexels](https://www.pexels.com/license) |
+| Image | Mobile Phone On A Tripod | Amar  Preciado | [Pexels](https://www.pexels.com/photo/mobile-phone-on-a-tripod-13709178/) | [pexels](https://www.pexels.com/license) |
+| Video | Closeup Stylus Interaction With Data On Tablet | Jakub Zerdzicki | [Pexels](https://www.pexels.com/video/closeup-stylus-interaction-with-data-on-tablet-36418628/) | [pexels](https://www.pexels.com/license) |
+| Video | Professional Podcast Interview In Modern Studio | Mihaela Claudia  Puscas | [Pexels](https://www.pexels.com/video/professional-podcast-interview-in-modern-studio-38630315/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of Anthology Of Music Of Black Africa Album | Aaron Burden | [Pexels](https://www.pexels.com/photo/close-up-of-anthology-of-music-of-black-africa-album-36692239/) | [pexels](https://www.pexels.com/license) |
+| Video | Devastated Forest Landscape Reflects Climate Impact | Engin Akyurt | [Pexels](https://www.pexels.com/video/devastated-forest-landscape-reflects-climate-impact-28689413/) | [pexels](https://www.pexels.com/license) |
+| Video | Smoldering Aftermath Of A Forest Fire | Engin Akyurt | [Pexels](https://www.pexels.com/video/smoldering-aftermath-of-a-forest-fire-28689414/) | [pexels](https://www.pexels.com/license) |
+| Video | All Boys Choir Singing | cottonbro studio | [Pexels](https://www.pexels.com/video/all-boys-choir-singing-7568736/) | [pexels](https://www.pexels.com/license) |
+| Video | Choir Singing | Thirdman | [Pexels](https://www.pexels.com/video/choir-singing-6193819/) | [pexels](https://www.pexels.com/license) |
+| Image | Band Performing On Smoky Stage In Front Of People During Night Time | Sascha Hormel | [Pexels](https://www.pexels.com/photo/band-performing-on-smoky-stage-in-front-of-people-during-night-time-1416969/) | [pexels](https://www.pexels.com/license) |
+| Video | Energetic Live Concert With Vibrant Crowd | Milan Kiro | [Pexels](https://www.pexels.com/video/energetic-live-concert-with-vibrant-crowd-31540263/) | [pexels](https://www.pexels.com/license) |
+| Image | Cozy Acoustic Performance In Mar Del Plata Bar | Leonardo Delsabio | [Pexels](https://www.pexels.com/photo/cozy-acoustic-performance-in-mar-del-plata-bar-33731251/) | [pexels](https://www.pexels.com/license) |
+| Image | Musicians Preparing For Concert | K | [Pexels](https://www.pexels.com/photo/musicians-preparing-for-concert-17513729/) | [pexels](https://www.pexels.com/license) |
+| Image | Professional Audio Mixing Console In Studio | Dainé Zeferino | [Pexels](https://www.pexels.com/photo/professional-audio-mixing-console-in-studio-36936571/) | [pexels](https://www.pexels.com/license) |
+| Image | Ring Light And Smartphone In Front Of A Girl Playing Guitar | Yan Krukau | [Pexels](https://www.pexels.com/photo/ring-light-and-smartphone-in-front-of-a-girl-playing-guitar-8189628/) | [pexels](https://www.pexels.com/license) |
+| Image | Two People Broadcasting In Modern Radio Studio | Yusuf Çelik | [Pexels](https://www.pexels.com/photo/two-people-broadcasting-in-modern-radio-studio-32213239/) | [pexels](https://www.pexels.com/license) |
+| Image | Bruce Springsteen | Shayne Kaye | [Flickr](https://www.flickr.com/photos/8229764@N02/8223024693) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Bruce and Little Steven... | manu_gt500 | [Flickr](https://www.flickr.com/photos/22805906@N03/3785989455) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Young Woman Holding A Guitar And Writing | Tima Miroshnichenko | [Pexels](https://www.pexels.com/photo/young-woman-holding-a-guitar-and-writing-6671692/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Holding A Music Manuscript Paper | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/person-holding-a-music-manuscript-paper-7802616/) | [pexels](https://www.pexels.com/license) |
+| Video | A Man Composing Music | cottonbro studio | [Pexels](https://www.pexels.com/video/a-man-composing-music-7096828/) | [pexels](https://www.pexels.com/license) |
+| Video | Vinyl Record Spinning On Turntable Close Up | Matheus Bertelli | [Pexels](https://www.pexels.com/video/vinyl-record-spinning-on-turntable-close-up-36056985/) | [pexels](https://www.pexels.com/license) |
+| Video | Vintage Vinyl Record Playing On Turntable | Steve B | [Pexels](https://www.pexels.com/video/vintage-vinyl-record-playing-on-turntable-30556508/) | [pexels](https://www.pexels.com/license) |
+| Image | Professional Audio Mixing Console In Studio | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/professional-audio-mixing-console-in-studio-34538640/) | [pexels](https://www.pexels.com/license) |
+| Image | Professional Audio Mixing Console In Studio | MD. Raktim Raze | [Pexels](https://www.pexels.com/photo/professional-audio-mixing-console-in-studio-30642559/) | [pexels](https://www.pexels.com/license) |
+| Image | Synthesizer Beside A Laptop | cottonbro studio | [Pexels](https://www.pexels.com/photo/synthesizer-beside-a-laptop-7097859/) | [pexels](https://www.pexels.com/license) |
+| Video | Hands Of A Person Using A Midi Controller | utopia 36 | [Pexels](https://www.pexels.com/video/hands-of-a-person-using-a-midi-controller-12336863/) | [pexels](https://www.pexels.com/license) |
+| Video | Singer Singing In A Soundproof Room In A Recording Studio | utopia 36 | [Pexels](https://www.pexels.com/video/singer-singing-in-a-soundproof-room-in-a-recording-studio-12331336/) | [pexels](https://www.pexels.com/license) |
+| Image | Die australische Gothic Rock und Post Punk Band Ikon auf dem WGT - 2023 in Leipzig - 2 | Mr. Rossi | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=134792515) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Turntable With Red Slipmat And A Music Magazine On A Table | cottonbro studio | [Pexels](https://www.pexels.com/photo/turntable-with-red-slipmat-and-a-music-magazine-on-a-table-6863620/) | [pexels](https://www.pexels.com/license) |
+| Image | Pages Of Open Magazines | alleksana | [Pexels](https://www.pexels.com/photo/pages-of-open-magazines-4271615/) | [pexels](https://www.pexels.com/license) |
+| Image | Red Lip Gloss And Cup Of Coffee On White Desk | Karolina Grabowska www.kaboompics.com | [Pexels](https://www.pexels.com/photo/red-lip-gloss-and-cup-of-coffee-on-white-desk-6358/) | [pexels](https://www.pexels.com/license) |
+| Audio | Skyline Dreams | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/skyline-dreams-2/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | feelin good | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/feelin-good/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | cosy dreaming | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/cosy-dreaming/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
