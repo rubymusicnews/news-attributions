@@ -1,0 +1,68 @@
+# Sources for 2026-09-24 News Episode 
+- [Taylor Swift announces deluxe version of The Life of a Showgirl with 4 new songs](https://www.cbc.ca/news/entertainment/taylor-swift-4-new-songs-life-of-a-show-girl-encore-deluxe-extended-album-9.7355150) - CBC News
+- [Taylor Swift Announces ‘The Life of a Showgirl: The Encore’](https://www.rollingstone.com/music/music-news/taylor-swift-the-life-of-a-showgirl-deluxe-album-1235630197) - Rollingstone
+- [Taylor Swift announces deluxe 'Life of a Showgirl' album with four ...](https://www.wcax.com/2026/09/23/taylor-swift-announces-deluxe-life-showgirl-album-with-four-new-songs) - Wcax
+- [Taylor Swift sparkles in fringe minidress for 'The Life of a Showgirl: The Encore'](https://pagesix.com/2026/09/23/style/taylor-swift-sparkles-in-fringe-bodysuit-for-the-life-of-a-showgirl-the-encore) - Pagesix
+- [Taylor Swift announces major music release after 'Patient Zero' news](https://pagesix.com/2026/09/23/entertainment/taylor-swift-announces-the-life-of-a-showgirl-the-encore-album) - Pagesix
+- [Taylor Swift reveals new 'Life of a Showgirl The Encore' album](https://www.usatoday.com/story/entertainment/music/2026/09/23/taylor-swift-the-life-of-a-showgirl-encore-album/91902265007) - Usatoday
+- [Taylor Swift Announces Life of a Showgirl: The Encore With 4 ...](https://www.hollywoodreporter.com/music/music-news/taylor-swift-life-of-a-showgirl-the-encore-4-new-songs-1236708341) - Hollywoodreporter
+- [African pop was poised for a U.S. takeover. Can its stars finish the job?](https://www.npr.org/2026/09/23/nx-s1-5931860/african-pop-tyla-ayra-starr-davido) - NPR
+- [Tyla, Ayra Starr and the African Popstar Rivalry the Internet Created.](https://www.deedsmag.com/stories/tyla-ayra-starr-and-the-african-popstar-rivalry-the-internet-created) - Deedsmag
+- [Ayra Starr Talks 'Starrgirl,' 'Children of Blood & Bone' & New York](https://www.billboard.com/music/features/ayra-starr-talks-starrgirl-children-blood-bone-afrobeats-1236345512) - Billboard
+- [YouTube Extends Exclusive Coachella Livestreams Through 2030](http://deadline.com/2026/09/youtube-extends-coachella-livestreams-2030-1237111203/) - Deadline
+- [Coachella Extends YouTube Streaming Partnership Through 2030](https://www.thewrap.com/creative-content/music/coachella-youtube-2030/) - TheWrap
+- [YouTube extends exclusive Coachella livestream deal with ...](https://www.musicbusinessworldwide.com/coachella-stays-exclusive-to-youtube-through-2030-as-goldenvoice-renews-livestream-deal) - Musicbusinessworldwide
+- [YouTube extends Coachella partnership through 2030](https://breakingthenews.net/Article/YouTube-extends-Coachella-partnership-through-2030/67163015) - Breakingthenews
+- [Coachella will stream exclusively on YouTube through 2030](https://blog.youtube/news-and-events/made-on-youtube-coachella-exclusively-stream-youtube-2030) - Blog
+- [YouTube Secures Exclusive Coachella Streaming Rights Through 2030, Confirms 2027 Festival Dates in California](https://www.rockumweb.com/reportes/2481/youtube-secures-exclusive-coachella-streaming-rights-through-2030-confirms-2027-festival-dates-in-california) - Rockumweb
+- [YouTube acquires Coachella streaming rights through 2030](https://themusicuniverse.com/youtube-acquires-coachella-streaming-rights-through-2030) - Themusicuniverse
+- [Justin Bieber shocks onlookers as he performs surprise acoustic set in one of LA's most dangerous areas: 'This is insane!'](https://www.dailymail.com/tvshowbiz/article-16155807/justin-bieber-performs-acoustic-los-angeles-park.html) - Dailymail.com
+- [Justin Bieber’s surprise LA MacArthur Park performance explained](https://pagesix.com/2026/09/23/celebrity-news/justin-biebers-surprise-macarthur-park-concert-explained/) - Page Six
+- [Justin Bieber Plays Surprise Acoustic Set in L.A.'s MacArthur Park: Songs He Performed](https://www.musictimes.com/articles/112877/20260923/justin-bieber-plays-surprise-acoustic-set-ls-macarthur-park-songs-he-performed.htm) - Musictimes
+- [Justin Bieber Plays Surprise Acoustic Concert in Los Angeles ...](https://www.complex.com/music/a/jaelaniturnerwilliams/justin-bieber-macarthur-park-surprise-performance) - Complex
+- [Justin Bieber Plays Surprise Acoustic Set at LA’s MacArthur Park: Watch](https://consequence.net/2026/09/justin-bieber-macarthur-park-surprise-acoustic-set-watch) - Consequence
+- [Justin Bieber holds impromptu show in L.A.’s embattled MacArthur Park](https://ktla.com/news/local-news/justin-bieber-holds-impromptu-show-in-l-a-s-embattled-macarthur-park) - Ktla
+- [Angry Anderson, rock star who soundtracked Kylie's wedding in Neighbours, dies aged 79](https://www.bbc.co.uk/news/articles/cqn745px55nno) - BBC News
+- [Angry Anderson, Frontman of Rose Tattoo, Dead at 79](https://consequence.net/2026/09/angry-anderson-rose-tattoo-dead/) - Consequence.net
+- [Rock star Angry Anderson dead at 79 after heart attack during farewell tour](https://www.news.com.au/entertainment/celebrity-life/celebrity-deaths/rose-tattoo-frontman-angry-anderson-dies-aged-79-after-heart-attack-on-farewell-tour/news-story/a3def6299921f03b4905fd34e77afa0e) - News.com.au
+- [Breaking: Australian rock legend Angry Anderson dies, aged 79](https://www.abc.net.au/news/2026-09-23/angry-anderson-rose-tattoo-frontman-dies/107028898) - ABC News (AU)
+- [As Australia’s rock ‘n’ roll outlaw, Angry Anderson embodied the appeal and limitations of Oz Rock](https://theconversation.com/as-australias-rock-n-roll-outlaw-angry-anderson-embodied-the-appeal-and-limitations-of-oz-rock-290938) - The Conversation Africa
+- [Billboard - 2018 Full Year](https://post.rlsbb.cc/billboard-2018-full-year/) - Rlsbb.cc
+- [Billboard - 2024 Full Year](https://post.rlsbb.cc/billboard-2024-full-year/) - Rlsbb.cc
+- [Billboard - 2017 Full Year](https://post.rlsbb.cc/billboard-2017-full-year/) - Rlsbb.cc
+- [Billboard - 2022 Full Year](https://post.rlsbb.cc/billboard-2022-full-year/) - Rlsbb.cc
+- [Queens of the Stone Age Unveil New Song “Where the Goth Girls At?”: Stream](https://consequence.net/2026/09/queens-of-the-stone-age-new-song-where-the-goth-girls-at-interview/) - Consequence.net
+- [Queens of the Stone Age Ask “Where the Goth Girls At?” in New Song](https://pitchfork.com/story/queens-of-the-stone-age-ask-where-the-goth-girls-at-in-new-song/) - Pitchfork
+- [Queens of the Stone Age Ask “Where the Goth Girls At?” in ...](https://pitchfork.com/story/queens-of-the-stone-age-ask-where-the-goth-girls-at-in-new-song) - Pitchfork
+- [Queens of the Stone Age Release “Where The Goth Girls At?” - V13 Media](https://v13.net/2026/09/queens-of-the-stone-age-release-single-where-the-goth-girls-at) - V13
+- [Queens Of The Stone Age remember teenage love on ...](https://www.nme.com/news/music/queens-of-the-stone-age-share-new-single-where-the-goth-girls-at-listen-watch-video-3970425) - Nme
+- [Queens of the Stone Age Unveil New Song "Where ...](https://consequence.net/2026/09/queens-of-the-stone-age-new-song-where-the-goth-girls-at-interview) - Consequence
+- [Queens of the Stone Age Founder Doesn’t Recommend Seeking Out Near-Death Experiences, but He Does Admit They’re ‘Really Wonderful’](https://www.vice.com/en/article/queens-of-the-stone-age-founder-doesnt-recommend-seeking-out-near-death-experiences-but-he-does-admit-theyre-really-wonderful) - Vice
+- [U2 have announced a new album, their first of original material in almost a decade](https://www.thejournal.ie/u2-new-album-carnaval-de-luz-7171283-Sep2026/) - TheJournal.ie
+- [U2 have revealed the title of their upcoming album](https://www.nova.ie/u2-have-revealed-the-title-of-their-upcoming-album) - Nova
+- [U2 announce title of next album and new single \| Hotpress](https://www.hotpress.com/music/u2-announce-title-of-next-album-and-new-single-23162514) - Hotpress
+- [Taylor Swift and U2 will each release a new song in a huge week for music](https://www.yahoo.com/entertainment/music/articles/taylor-swift-u2-release-song-133002626.html) - Yahoo
+- [U2 at 50: Irish rockers reveal anniversary album \| AFP.com](https://www.afp.com/en/u2-50-irish-rockers-reveal-anniversary-album) - Afp
+- [U2 at 50: Irish Rockers Reveal Anniversary Album - Ground News](https://ground.news/article/u2-reveal-title-of-new-album) - Ground
+- [Grateful Dead – Summer Magic 85 (2026)](https://exystence.net/blog/2026/09/23/grateful-dead-summer-magic-85-2026/) - Exystence.net
+- [Albums Of The Week: Grateful Dead \| Summer Magic 1985 / Merriweather 6/30/85 - Tinnitist](https://tinnitist.com/2026/09/17/albums-of-the-week-grateful-dead-summer-magic-1985-merriweather-6-30-85) - Tinnitist
+- [Grateful Dead Release Merriweather ’85 on Play Dead](https://www.gratefulweb.com/articles/grateful-dead-release-merriweather-85-on-play-dead) - Gratefulweb
+- [Release Round-Up: Week of September 18 - The Second Disc](https://theseconddisc.com/2026/09/18/release-round-up-september-18-2026) - Theseconddisc
+- [Next Week In Music \| September 14-20 • The Slightly Shorter List: 50 Titles You Want to Hear (Part 3) - Tinnitist](https://tinnitist.com/2026/09/13/next-week-in-music-september-14-20-the-slightly-shorter-list-50-titles-you-want-to-hear-part-3) - Tinnitist
+- [Oops! He Did It Again: The Man Behind Some of Music’s Most Iconic Videos Releases New Memoir](https://www.spinmagazine.com/2026/09/oops-he-did-it-again-the-man-behind-some-of-musics-most-iconic-videos-releases-new-memoir/) - Spinmagazine.com
+- [Book Review: Music Video Mischief by Nigel Dick - Joyzine](https://joyzine.org/2026/09/15/book-review-music-video-mischief) - Joyzine
+- [One of Axl Rose's signature moves was almost cut from the Sweet Child O' Mine video](https://www.yahoo.com/entertainment/music/articles/one-axl-roses-signature-moves-121233339.html) - Yahoo
+- [A Timeline Of The Complicated History Between JAŸ-Z & Lil Wayne](https://hiphopwired.com/3066263/jay-z-lil-wayne-history-timeline/) - Hip-Hop Wired
+- [Singer Michael Kiwanuka reveals he is recovering from a stroke](https://www.bbc.co.uk/news/articles/cmvgy4yydj1do) - BBC News
+- [Singer Michael Kiwanuka recovering from ‘severe’ brain injury after stroke: ‘I’m fighting to get better’ \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/michael-kiwanuka-stroke-brain-injury-symptoms-new-album-b3055128.html) - Independent
+- [Michael Kiwanuka recovering from ‘severe’ brain injury after stroke: ‘I’m fighting to get better’ \| The Independent](https://www.the-independent.com/arts-entertainment/music/news/michael-kiwanuka-stroke-brain-injury-symptoms-new-album-b3055128.html) - The-independent
+- [Michael Kiwanuka suffers stroke at 39 'brought on by common health problem' - Yahoo News UK](https://uk.news.yahoo.com/michael-kiwanuka-suffers-stroke-39-152316694.html) - Yahoo
+- [Michael Kiwanuka reveals details of "severe" brain injury](https://faroutmagazine.co.uk/michael-kiwanuka-severe-brain-injury-stroke-new-album) - Faroutmagazine
+- [Ed Sheeran loses almost half a million followers with a 'steep decline' after he was accused of 'bowing to the mob' during 'the worst week of my life'](https://www.dailymail.com/tvshowbiz/article-16153361/Ed-Sheeran-loses-half-million-followers-steep-decline-accused-bowing-mob-worst-week-life.html) - Dailymail.com
+- [Ed Sheeran suffers another nasty blow after 'worst week of his life'](https://www.mirror.co.uk/3am/celebrity-news/ed-sheeran-palestine-instagram-controversy-37692584) - Mirror
+- [Jorja Smith 'very grateful' as she bags independent music prize](https://www.bbc.co.uk/news/articles/c8r4v71qg5l4o) - BBC News
+- [Robyn and Jorja Smith among big winners at Independent Music Awards](https://www.thelineofbestfit.com/news/robyn-jorja-smith-among-winners-at-independent-music-awards) - Thelineofbestfit.com
+- [Jorja Smith triumphs at 2026 Independent Music Awards](https://www.yahoo.com/entertainment/music/articles/jorja-smith-triumphs-2026-independent-234817784.html) - Yahoo
+- [See all the winners from 2026 AIM Independent Music Awards...](https://www.contactmusic.com/story/467/3613866/see-all-the-winners-from-2026-aim-independent-music-awards) - Contactmusic
+- [Jorja Smith, Pauline Black, Robyn and Jalen Ngonda among winners at Independent Music Awards 2026](https://www.musicweek.com/talent/read/jorja-smith-pauline-black-robyn-and-jalen-ngonda-among-winners-at-independent-music-awards-2026/095041) - Musicweek
+- [UK Independent Music Awards 2026: Winners](https://news.pollstar.com/2026/09/23/uk-independent-music-awards-2026-winners) - Pollstar
