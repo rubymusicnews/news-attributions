@@ -1,0 +1,67 @@
+# Sources for 2026-09-25 News Episode 
+- [Dolly Parton's final vocal recording to appear on U2's new album 'Carnaval de Luz'](https://abcnews.com/GMA/Culture/dolly-partons-final-vocal-recording-u2s-new-album/story?id=136731828) - Abcnews.com
+- ['CARNAVAL DE LUZ' - New Album In November.](https://www.u2.com/blogs/news/carnaval-de-luz-new-album-coming-in-november) - U2
+- [U2's new album 'Carnaval De Luz' will feature Dolly Parton on a song](https://www.courant.com/2026/09/24/u2-new-album-carnaval-de-luz-dolly-parton) - Courant
+- [Dolly Parton’s Final Song, a Bono Duet, Is on the New U2 Album](https://www.rollingstone.com/music/music-news/dolly-parton-final-recording-bono-u2-torn-interview-1235630774) - Rollingstone
+- [Bono Says Dolly Parton ‘Sang Her Heart Out’ for Her Final Recording With U2](https://www.yahoo.com/entertainment/music/articles/bono-says-dolly-parton-sang-025655927.html) - Yahoo
+- [Dolly Parton’s Final Song to Be Included on U2 Album, Bono Says She ‘Got Out of Her Bed’ to Record It](https://www.yahoo.com/entertainment/music/articles/dolly-parton-final-song-included-200940377.html) - Yahoo
+- [Morphine Unveil Lost Album Cocoon](https://pitchfork.com/story/morphine-unveil-lost-album-cocoon/) - Pitchfork
+- [Morphine Plan 'Cocoon' Archival Album](https://www.rollingstone.com/music/music-news/morphine-cocoon-archival-album-1235630979) - Rollingstone
+- [Morphine to release archival album Cocoon on December 4 — Rolling Stone](https://ua.news/en/culture/morphine-vipustit-arkhivnii-albom-cocoon-4-grudnia-rolling-stone) - Ua
+- [Morphine Announce Posthumous Album 'Cocoon': Hear Title Track](https://stereogum.com/2512392/morphine-announce-new-album-cocoon-featuring-recordings-mark-sandman-made-before-his-1999-death/music) - Stereogum
+- [Morphine Unveil Lost Album Cocoon](https://pitchfork.com/story/morphine-unveil-lost-album-cocoon) - Pitchfork
+- [BLACKPINKのLISA初のドキュメンタリー映画『ALWAYS LALISA』の日本予告編が完成しました。10月12日、14日、17日の3日間限定公開です。](https://prtimes.jp/main/html/rd/p/000000361.000101737.html) - Prtimes.jp
+- [BLACKPINKのLISA(リサ)初のドキュメンタリー映画『ALWAYS LALISA』が世界公開に合わせて、日本でも劇場公開が決定！10月12日（月）より期間限定公開。 \| カルチャヴィル合同会社のプレスリリース](https://prtimes.jp/main/html/rd/p/000000359.000101737.html) - Prtimes
+- [BLACKPINKのLISA(リサ)初のドキュメンタリー映画『ALWAYS LALISA』が世界公開に合わせて、日本でも劇場公開が決定！10月12日（月）より期間限定公開。](https://mantan-web.jp/prtimes/article/20260918prt00m200001624a/photopage/001.html) - Mantan-web
+- [BLACKPINKリサの初ドキュメンタリー映画、日本で上映決定 10月12日より期間限定公開【ALWAYS LALISA／上映劇場・日程一覧】](https://mdpr.jp/k-enta/detail/4846371) - Mdpr
+- [10月に最新作『PRESS PLAY』の世界同時発売を控えるLISA、初のドキュメンタリー映画『ALWAYS LALISA』の日本限定公開が決定！](https://pointed.jp/2026/09/18/press-play-always-lalisa) - Pointed
+- [LISAの初長編ドキュメンタリー映画『ALWAYS LALISA』日本公開決定。ソロ活動の1年間と素顔をスクリーンで](https://k-entame.jp/archives/116074) - K-entame
+- [40th Anniversary Editions of Motörhead’s Orgasmatron Announced](https://consequence.net/2026/09/motorhead-40th-anniversary-orgasmatron/) - Consequence.net
+- [40th Anniversary Editions of Motörhead's Orgasmatron Announced](https://consequence.net/2026/09/motorhead-40th-anniversary-orgasmatron) - Consequence
+- [MOTÖRHEAD Proudly Announce The 40th Anniversary Edition Of "Orgasmatron" Featuring A Brand-New Remix & The Remastered Original Recording](https://www.sonicperspectives.com/news/motorhead-proudly-announce-the-40th-anniversary-edition-of-orgasmatron-featuring-a-brand-new-remix-the-remastered-original-recording?amp=1) - Sonicperspectives
+- [Motörhead’s ‘Orgasmatron’ Getting New Remix For 40th Anniversary Edition](https://themosh.net/motorhead-orgasmatron-40th-anniversary-remix) - Themosh
+- [Tiny Desk Radio: Sheer Mag, Blood Orange, Turnstile](https://www.npr.org/2026/09/24/g-s1-144875/tiny-desk-radio-sheer-mag-blood-orange-turnstile) - NPR
+- [Tiny Desk Radio: Sheer Mag, Blood Orange, Turnstile \| KALW](https://www.kalw.org/npr-music/2026-09-24/tiny-desk-radio-sheer-mag-blood-orange-turnstile) - Kalw
+- [Tiny Desk Radio: Sheer Mag, Blood Orange, Turnstile \| WUNC News](https://www.wunc.org/2026-09-24/tiny-desk-radio-sheer-mag-blood-orange-turnstile) - Wunc
+- [Women Are Dominating Country Music. Why Don’t Festival Lineups Reflect That?](http://www.rollingstone.com/music/music-features/country-music-festivals-lineup-women-1235631006/) - Rolling Stone
+- [Country Music Festival Lineups: Where Are the Women?](https://www.rollingstone.com/music/music-features/country-music-festivals-lineup-women-1235631006) - Rollingstone
+- [Boys Noize announces first solo album in five years ‘7LLVSION’](https://www.thefader.com/2026/09/24/boys-noize-announces-first-solo-album-five-years-7llvsion) - The FADER
+- [Boys Noize announce first album in five years, ‘7LLVSION’](https://www.pastemagazine.com/music/boys-noize/boys-noize-announce-first-album-in-five-years-7llvsion) - Pastemagazine
+- [Boys Noize to Release 7LLVSION Album November 6](https://www.broadwayworld.com/bwwmusic/article/Boys-Noize-to-Release-7LLVSION-Album-November-6-20260924) - Broadwayworld
+- [Boys Noize Announces First Album in Five Years, '7LLVSION'](https://www.rollingstone.com/music/music-news/boys-noize-new-album-7llvsion-1235630911) - Rollingstone
+- [Boys Noize announces new album '7LLVSION' with throbbing single '1+1+1'](https://www.nme.com/news/music/boys-noize-announces-new-album-7llvsion-with-throbbing-single-111-3970577) - Nme
+- [Boys Noize Announces New Album 7LLVSION, Shares "1+1+1": Stream](https://consequence.net/2026/09/boys-noize-new-album-7llvsion-new-song-1-1-1-stream) - Consequence
+- [Boys Noize Announces First Solo Album in Five Years, 7LLVSION - EDMTunes](https://www.edmtunes.com/2026/09/boys-noize-first-album-five-years) - Edmtunes
+- [John Summit Saved $20,000 and Quit His Accounting Job to Become a DJ. Now He’s Building an Entertainment Empire](https://www.entrepreneur.com/building-a-business/john-summit-saved-20000-and-quit-his-accounting-job-to-become-a-dj-now-hes-building-an-entertainment-empire) - Entrepreneur
+- [John Summit's Experts Only Festival Adds Levity to Lineup and Prepares for 50,000+ Fans Across 2 Days; Limited Tickets Remain as 2026 Brand Partners Are Announced](https://www.bignewsnetwork.com/news/279296268/john-summit-experts-only-festival-adds-levity-to-lineup-and-prepares-for-50000-fans-across-2-days-limited-tickets-remain-as-2026-brand-partners-are-announced) - Bignewsnetwork
+- [Exclusive \| John Summit 2026 Experts Only Festival review and observations](https://nypost.com/2026/09/23/ticket-sales/john-summit-2026-experts-only-festival-review-and-observations) - Nypost
+- [A New York Stock Exchange Takeover & 60K Fans: Inside John Summit’s Experts Only Festival Diary](https://www.nylon.com/entertainment/john-summit-experts-only-2026-photo-diary) - Nylon
+- [Lizzy McAlpine Announces 2027 “The Over Country Tour”](https://consequence.net/2026/09/lizzy-mcalpine-2027-the-over-country-tour-dates/) - Consequence.net
+- [Lizzy McAlpine Announces 2027 "The Over Country Tour"](https://consequence.net/2026/09/lizzy-mcalpine-2027-the-over-country-tour-dates) - Consequence
+- [Lizzy McAlpine Brings "The Over Country Tour" to the Fox Theatre May 7, 2027 \| 313 Presents](https://www.313presents.com/news/detail/lizzy-mcalpine-brings-the-over-country-tour-to-the-fox-theatre-may-7-2027) - 313presents
+- [Lizzy McAlpine announces new 2027 tour](https://theneedledrop.com/news/lizzy-mcalpine-announces-new-2027-tour) - Theneedledrop
+- [Lizzy McAlpine: The Over Country Tour heads to Europe](https://karlobag.eu/en/music/lizzy-mcalpine-announces-the-over-country-tour-with-munich-warsaw-berlin-and-col-c4lra) - Karlobag
+- [Lizzy McAlpine Announces The Over Country Tour ::antiMusic.com](https://www.antimusic.com/p/26/p0924lizzy_mcalpine_announces_the_over_country_tour.shtml) - Antimusic
+- [Bullet for My Valentine Announce New Album, Unleash “Social Apocalypse”: Stream](https://consequence.net/2026/09/bullet-for-my-valentine-social-apocalypse/) - Consequence.net
+- [Bullet For My Valentine Premiere New Single & Music Video "Social Apocalypse" From Upcoming New Album](http://www.metalunderground.com/news/details.cfm?newsid=162155) - Metalunderground.com
+- [Bullet For My Valentine announce new album featuring Lorna Shore’s Will Ramos, debut lead single and title track Social Apocalypse \| Louder](https://www.loudersound.com/news/bullet-for-my-valentine-announce-new-album-lead-single-social-apocalypse-2026) - Loudersound
+- [Bullet For My Valentine Announce Social Apocalypse With First New Song In Four Years](https://www.noise11.com/news/bullet-for-my-valentine-announce-social-apocalypse-with-first-new-song-in-four-years-20260924) - Noise11
+- [Bullet For My Valentine announce new album, release new single and tour dates for 2027 - Chaoszine](https://chaoszine.net/bullet-for-my-valentine-announce-new-album-release-new-single-and-tour-dates-for-2027) - Chaoszine
+- [Bullet For My Valentine announce new album ‘Social Apocalypse’ and huge UK arena tour with Pendulum](https://moshville.co.uk/news/video/2026/09/bullet-for-my-valentine-announce-new-album-social-apocalypse-and-huge-uk-arena-tour-with-pendulum) - Moshville
+- [Bullet For My Valentine Return With 'Social Apocalypse'](https://www.antimusic.com/p/26/r0924bullet_for_my_valentine_return_with_social_apocalypse.shtml) - Antimusic
+- [Evanescence Announce 20th Anniversary Expanded Edition of The Open Door](https://consequence.net/2026/09/evanescence-20th-anniversary-the-open-door/) - Consequence.net
+- [Evanescence celebrate The Open Door with 20th anniversary reissue](https://www.altpress.com/evanescence-the-open-door-20-anniversary-vinyl) - Altpress
+- [Evanescence Announce 20th Anniversary Edition of The Open Door](https://consequence.net/2026/09/evanescence-20th-anniversary-the-open-door) - Consequence
+- [EVANESCENCE Announces ‘The Open Door’ 20th Anniversary Deluxe Edition](https://www.iconvsicon.com/2026/09/24/evanescence-the-open-door-20th-anniversary-deluxe-edition) - Iconvsicon
+- [Macklemore Announced a ‘Free Palestine’ Tour Weeks After He Was Dropped as Ed Sheeran’s Opener for Making Palestine Speeches on Stage](https://thoughtcatalog.com/january-nelson/2026/09/macklemore-announced-a-free-palestine-tour-weeks-after-he-was-dropped-as-ed-sheerans-opener-for-making-palestine-speeches-on-stage/) - Thoughtcatalog.com
+- [US rapper Macklemore announces Free Palestine tour ...](https://www.aljazeera.com/news/2026/9/24/us-rapper-macklemore-announces-free-palestine-tour-after-ed-sheeran-fallout) - Aljazeera
+- [Macklemore Announces 'Free Palestine' Tour After Ed Sheeran Drama](https://variety.com/2026/music/news/macklemore-free-palestine-tour-1236874352) - Variety
+- [Macklemore announces ‘Free Palestine’ tour after Ed Sheeran dismissal](https://www.washingtonpost.com/entertainment/music/2026/09/24/macklemore-announces-free-palestine-tour-after-ed-sheeran-dismissal) - Washingtonpost
+- [Macklemore Dropped From Ed Sheeran Tour After ‘Free Palestine’ Remarks](https://www.nytimes.com/2026/09/14/arts/music/macklemore-ed-sheeran-tour-palestine-gaza.html) - Nytimes
+- [MTV VMAs 2026 Seating Chart Revealed: See Where Madonna, Charli xcx & More Stars Are Sitting!](https://www.justjared.com/2026/09/24/2026-mtv-vmas-seating-chart-madonna-stars-seats-revealed/) - Just Jared
+- [2026 MTV VMAs Seating Chart: Madonna, Charli xcx & More Stars' Seats Revealed](https://www.justjared.com/2026/09/24/2026-mtv-vmas-seating-chart-madonna-stars-seats-revealed) - Justjared
+- [Who’s Sitting Where at the 2026 VMAs? Seating Chart Details](https://www.cosmopolitan.com/entertainment/celebs/a73875075/2026-vmas-seating-chart) - Cosmopolitan
+- [Tom Morello – Everyone Gets Everything They Want (2026)](https://exystence.net/blog/2026/09/24/tom-morello-everyone-gets-everything-they-want-2026/) - Exystence.net
+- [Tom Morello - ‘Everyone Gets Everything They Want’ (Mom + Pop Music) - Über Röck](https://uber-rock.co.uk/tom-morello-everyone-gets-everything-they-want-mon-pop-music) - Uber-rock
+- [Tom Morello talks teaming up with Kneecap and his new solo album: "It’s a record for everyone who’s had enough"](https://www.nme.com/news/music/tom-morello-interview-new-albums-everyone-gets-everything-they-want-rage-against-the-machine-kneecap-macklemore-3969993) - Nme
+- [Tom Morello wants to make dangerous rock 'n' roll again - Salon.com](https://www.salon.com/2026/09/22/tom-morello-wants-to-make-dangerous-rock-n-roll-again) - Salon
