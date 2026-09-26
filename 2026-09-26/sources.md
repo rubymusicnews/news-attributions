@@ -1,0 +1,63 @@
+# Sources for 2026-09-26 News Episode 
+- [Todd Rundgren: Taylor Swift Ruined Music](https://pitchfork.com/story/todd-rundgren-taylor-swift-ruined-music/) - Pitchfork
+- [Todd Rundgren Says Taylor Swift “Ruined Music,” Calls Her “Apotheosis of Mediocrity”](https://consequence.net/2026/09/todd-rundgren-taylor-swift-ruined-music/) - Consequence.net
+- [Todd Rundgren claims that Taylor Swift ruined music](https://www.pastemagazine.com/music/taylor-swift/todd-rundgren-claims-that-taylor-swift-ruined-music) - Pastemagazine
+- [Todd Rundgren says Taylor Swift ‘ruined music’](https://www.washingtontimes.com/news/2026/sep/25/todd-rundgren-says-taylor-swift-ruined-music) - Washingtontimes
+- [Todd Rundgren Says Taylor Swift “Ruined Music,” Calls Her “Apotheosis of Mediocrity”](https://www.imdb.com/news/ni66033055?ref_=nmnw_art_perm) - Imdb
+- [Todd Rundgren Says Taylor Swift "Ruined Music," Calls Her "Apotheosis of Mediocrity"](https://consequence.net/2026/09/todd-rundgren-taylor-swift-ruined-music) - Consequence
+- [Spotify ‘Reserved’ feature adds setlists and share cards for fans](https://musically.com/2026/09/25/spotify-reserved-feature-adds-setlists-and-share-cards-for-fans/) - Music Ally
+- [Spotify adds share cards, setlist playlists, and a new in-app destination to its Reserved ticketing feature - Music Business Worldwide](https://www.musicbusinessworldwide.com/spotify-adds-share-cards-setlist-playlists-and-a-new-in-app-destination-to-its-reserved-ticketing-feature) - Musicbusinessworldwide
+- [Spotify Adds Setlist Playlists and Share Cards to Reserved \| Technobezz](https://www.technobezz.com/news/spotify-reserved-presale-tickets-setlist-playlists) - Technobezz
+- [Spotify ‘Reserved’ feature adds setlists and share cards for fans - Music Ally](https://musically.com/2026/09/25/spotify-reserved-feature-adds-setlists-and-share-cards-for-fans) - Musically
+- [Spotify Adds Setlists, Venue Info to Reserved Concert Ticket Program](https://www.ticketnews.com/2026/09/spotify-reserved-setlists-venue-info) - Ticketnews
+- [Spotify’s ‘Reserved’ Concert Ticket Feature Now Includes Setlists, Share Cards & More](https://www.billboard.com/pro/spotify-concert-ticket-feature-reserved-setlists) - Billboard
+- [EXCLUSIVE: Liam Gallagher Warns Oasis 2027 Reunion Tour Could Be Their Last](https://radaronline.com/p/liam-gallagher-oasis-2027-reunion-tour-last/) - Radaronline.com
+- [Oasis Announces 2027 Tour Dates](https://variety.com/2026/music/news/oasis-2027-tour-dates-1236537398) - Variety
+- [Oasis' 2027 Tour Extended With More Dates Due To 'Phenomenal Demand' \| HuffPost UK Entertainment](https://www.huffingtonpost.co.uk/entry/oasis-tour-2027-more-dates-extended_uk_6ab3b378e4b085277b54cd72) - Huffingtonpost
+- [Oasis announce 2027 tour: How to get tickets, prices and full list of concert dates](https://www.inkl.com/news/oasis-announce-2027-tour-how-to-get-tickets-prices-and-full-list-concert-of-dates) - Inkl
+- [Apple Music launches new profile features for artists](https://musically.com/2026/09/25/apple-music-launches-new-profile-features-for-artists/) - Music Ally
+- [Apple Music launches new profile features for artists - Music Ally](https://musically.com/2026/09/25/apple-music-launches-new-profile-features-for-artists) - Musically
+- [Celine Dion looks fashion forward in a white feathered skirt and blouse as she leaves hotel in Paris ahead of gig](https://www.dailymail.com/tvshowbiz/article-16160623/Celine-Dion-fashion-forward-white-feathered-skirt-hotel-Paris.html) - Dailymail.com
+- [Celine Dion Returns With Gorgeous French-Language Song ‘Dansons,’ Her First Single in 7 Years - Billboard](https://www.billboard.com/music/music-news/celine-dion-new-song-dansons-1236225169/) - Billboard
+- [Celine Dion Adds Six Dates To Paris Concert Season - Deadline](https://deadline.com/2026/04/celine-dion-six-dates-paris-concert-season-1236783336/) - Deadline
+- [Critics celebrate Céline Dion's 'risky' comeback show in Paris](https://www.bbc.com/news/articles/cj3dzy3n84no) - Bbc
+- ['It's all coming back to me now': Celine Dion returns to the stage in Paris \| Reuters](https://www.reuters.com/lifestyle/its-all-coming-back-me-now-celine-dion-returns-stage-paris-2026-09-11) - Reuters
+- [Celine Dion prepares for comeback shows in Paris - ABC News](https://abcnews.com/GMA/Culture/celine-dion-prepares-comeback-shows-paris/story?id=136335614) - Abcnews
+- [Celine Dion Paris 2026 appearance – Celine Dion concert 2026 photos](https://www.usatoday.com/story/entertainment/music/2026/08/28/celine-dion-paris-2026-concert-appearance/91512097007) - Usatoday
+- [Celine Dion overcomes rare neurological disorder to perform first concert in 6 years](https://www.cbsnews.com/news/celine-dion-first-concert-in-6-years-rare-neurological-disorder-stiff-person-syndrome) - Cbsnews
+- [Celine Dion completes her first full concert in 6 years after overcoming rare illness - ABC News](https://abcnews.com/Entertainment/wireStory/celine-dion-completes-full-concert-6-years-after-136405203) - Abcnews
+- ['Somebody wrote Bono is God on the back wall, probably Bono'... The real story of U2's beginnings, and the trick that kept them together for 50 years ago according to Irish music scene insider Tom Dunne](https://www.dailymail.com/news/article-16161197/Somebody-wrote-Bono-God-wall-probably-Bono-inside-story-U2s-beginnings-trick-kept-50-years-ago-according-Irish-music-scene-insider-Tom-Dunne.html) - Dailymail.com
+- [U2 reflect on 'extraordinary' Mount Temple return](https://www.rte.ie/entertainment/2026/0925/1593002-u2-reflect-on-extraordinary-mount-temple-return/) - RTE
+- [U2 goes back to school to put on a show where it all began 50 years ago](https://www.bozemandailychronicle.com/wire/international/u2-goes-back-to-school-to-put-on-a-show-where-it-all-began-50/article_6d712cec-370c-5dfc-9da3-4aaaeec5f340.html) - Bozemandailychronicle
+- [U2 celebrate 50th anniversary at the school where they formed](https://www.bbc.com/news/articles/cm9w4042yklko) - Bbc
+- [Rhea Raj is here for South Asia’s global domination](https://www.thefader.com/2026/09/25/rhea-raj-hybe-republic-signing-interview) - The FADER
+- [Que Grupo De Hibe Va A Debutar En 2027](https://www.tiktok.com/discover/que-grupo-de-hibe-va-a-debutar-en-2027) - Tiktok
+- [Rhea Raj Wants to Achieve Global Superstardom — And Some of the Industry’s Most Powerful Execs Believe She Can](https://www.billboard.com/music/features/rhea-raj-republic-hybe-5junction-album-deals-1236340443) - Billboard
+- [Meet Rhea Raj, Sister of KATSEYE's Lara Raj and Rising Star](https://mega-asia.com/women/spotlight/rhea-raj-an-indian-pop-star-on-the-rise) - Mega-asia
+- [Watch on YouTube #threadsandtrends #reehaa #interview ...](https://www.instagram.com/reel/DdhZXshO5z_) - Instagram
+- [Ed Sheeran’s controversial Gillette Stadium concerts canceled amid Macklemore fallout: report](https://pagesix.com/2026/09/25/entertainment/ed-sheerans-gillette-stadium-concerts-canceled-amid-macklemore-fallout-report/) - Page Six
+- [Ed Sheeran's tour faces yet another setback: Mother Nature](https://www.businessinsider.com/ed-sheeran-boston-show-canceled-weather-2026-9#article) - Business Insider
+- [Ed Sheeran Gillette Stadium concerts canceled due to nor' ...](https://www.usatoday.com/story/entertainment/music/2026/09/25/ed-sheeran-tour-gillette-stadium-shows-canceled/91936784007) - Usatoday
+- [Sheeran’s Gillette Stadium concerts canceled ahead of nor'easter storm](https://www.providencejournal.com/story/entertainment/music/2026/09/25/ed-sheeran-gillette-stadium-cancelled-loop-tour-boston-nor-easter-refunds/91937129007) - Providencejournal
+- [Ed Sheeran's Gillette Stadium Shows Might Be Canceled Even Without Macklemore](https://stereogum.com/2512538/refunds-offered-for-ed-sheerans-gillette-stadium-shows-which-may-be-canceled-due-to-weather-anyway/news) - Stereogum
+- [Ed Sheeran's Gillette Stadium Shows Canceled Over Weather: How to Get a Refund - Newsweek](https://www.newsweek.com/ed-sheeran-weekend-concerts-canceled-over-weather-after-macklemore-fallout-12490388) - Newsweek
+- [Tokio Hotel launch anniversary podcast in 3 languages](https://musically.com/2026/09/25/tokio-hotel-launch-anniversary-podcast-in-3-languages/) - Music Ally
+- [Tokio Hotel launch anniversary podcast in 3 languages - Music Ally](https://musically.com/2026/09/25/tokio-hotel-launch-anniversary-podcast-in-3-languages) - Musically
+- [Indie and punk music made me feel I was betraying my race](https://www.bbc.co.uk/news/articles/ckrerpx4wz7xo) - BBC News
+- [How rock’n’roll went white \| The Observer](https://observer.co.uk/culture/books/article/how-rocknroll-went-white) - Observer
+- [Jay-Z’s Accuser Has Recanted Her Allegations](http://www.thecut.com/article/the-woman-who-accused-jay-z-of-rape-recanted-her-allegations.html) - The Cut
+- [Woman who accused rapper Jay-Z of rape drops claim](https://www.rte.ie/entertainment/2026/0925/1593026-jay-z/) - RTE
+- [Woman clears Jay-Z of rape allegation](https://punchng.com/woman-clears-jay-z-of-rape-allegation/) - The Punch
+- [Jay-Z Accuser Recants Claims Under Oath, Says She ...](https://www.lawcommentary.com/articles/jay-z-accuser-recants-sexual-assault-claims-never-met-him) - Lawcommentary
+- [JAY-Z Accuser Recants Rape Allegations and Says Claims Were False](https://consequence.net/2026/09/jay-z-accuser-recants-rape-allegations) - Consequence
+- [The Woman Who Accused Jay-Z of Rape Recants Her Allegations](https://www.thecut.com/article/the-woman-who-accused-jay-z-of-rape-recanted-her-allegations.html) - Thecut
+- [Jay-Z accuser says her rape claims against him were false](https://www.nbcnews.com/pop-culture/music/jay-z-accuser-says-rape-claims-false-rcna599844) - Nbcnews
+- [Bluegrass virtuoso Billy Strings](https://www.npr.org/2026/09/25/nx-s1-5981144/bluegrass-virtuoso-billy-strings) - NPR
+- [Rock Cellar Magazine  - Billy Strings Honors His Mother with Emotional New Album ‘So Much for Goodbyes’ (Out Now)](https://rockcellarmagazine.com/billy-strings-new-album-so-much-for-goodbyes-out-aug-28-listen-tour-dates) - Rockcellarmagazine
+- [Album Review – Billy Strings – “So Much For Goodbyes” - Saving Country Music](https://savingcountrymusic.com/album-review-billy-strings-so-much-for-goodbyes) - Savingcountrymusic
+- [Billy Strings Net Worth \| Celebrity Net Worth](https://www.celebritynetworth.com/richest-celebrities/rock-stars/billy-strings-net-worth) - Celebritynetworth
+- [Bluegrass virtuoso Billy Strings : Fresh Air : NPR](https://www.npr.org/transcripts/nx-s1-5981144) - Npr
+- [MTV used to rule pop culture. Now it mostly breaks through once a year.](https://www.yahoo.com/entertainment/music/article/mtv-used-to-rule-pop-culture-now-it-mostly-breaks-through-once-a-year-213709140.html) - Yahoo Entertainment
+- [2ŁØT Release New 16-Track Album ‘RE/SOLVE’](https://www.spinmagazine.com/2026/09/2lot-release-new-album/) - Spinmagazine.com
+- [2ŁØT Release New 16-Track Album ‘RE/SOLVE’](https://www.yahoo.com/entertainment/music/articles/2-t-release-16-track-210947765.html) - Yahoo
+- [2ŁØT Offers a “Second Hero’s Journey” on Sophomore Release 'RE/SOLVE'](https://jambands.com/news/2026/09/25/2lot-offers-a-second-heros-journey-on-sophomore-release-re-solve) - Jambands

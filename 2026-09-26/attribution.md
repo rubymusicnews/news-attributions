@@ -1,0 +1,100 @@
+# Daily News Video Credits - 2026-09-26
+Full media attributions for all assets used.
+
+| Type | Title / Description | Author | Source | License |
+|------|---------------------|---------|---------|----------|
+| Image | U2 performing at Sphere in Las Vegas on Oct 5 2023 by Erik Bartlett (16) | Erik Bartlett | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=146546826) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | U2 performing at Sphere in Las Vegas on Sept 29 2023 (45) | Phillip Lebowitz | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=138494048) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | U2 performing at Sphere in Las Vegas on Sept 29 2023 by Paul White (27) | Paul White on Instagram, Twitter / X | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=139207626) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | U2 performing at Sphere in Las Vegas on Oct 18 2023 by Jeff Hollett (10) | Jeff Hollett | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=142434753) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | U2 performing at Sphere in Las Vegas on Nov 4 2023 by Chris Combe | Chris Combe from York, UK | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=145209131) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | U2 performing at Sphere in Las Vegas on Oct 18 2023 by Jeff Hollett (17) | Jeff Hollett | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=142434731) | [by](https://creativecommons.org/licenses/by/4.0/) |
+| Image | U2 performing at Sphere in Las Vegas on Sept 29 2023 by Paul White (73) | Paul White on Instagram, Twitter / X | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=139207531) | [by-sa](https://creativecommons.org/licenses/by-sa/4.0/) |
+| Image | Music Teacher And Student Looking At Notes Drawn On A Blackboard | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/music-teacher-and-student-looking-at-notes-drawn-on-a-blackboard-7521299/) | [pexels](https://www.pexels.com/license) |
+| Image | Young Students Attentively Listening Outdoors | Partha Dutta | [Pexels](https://www.pexels.com/photo/young-students-attentively-listening-outdoors-38955420/) | [pexels](https://www.pexels.com/license) |
+| Video | School Assembly With Engaged Audience And Presenters | JMT 35 | [Pexels](https://www.pexels.com/video/school-assembly-with-engaged-audience-and-presenters-34495148/) | [pexels](https://www.pexels.com/license) |
+| Image | U2 | klem@s | [Flickr](https://www.flickr.com/photos/7922608@N02/4004751273) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | U2 360º TOUR TORONTO / 160909 | Pop Martian | [Flickr](https://www.flickr.com/photos/35671653@N00/3991194233) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Video | Crowd Of People At A Concert | Luis Quintero | [Pexels](https://www.pexels.com/video/crowd-of-people-at-a-concert-12695733/) | [pexels](https://www.pexels.com/license) |
+| Video | Man Interviewing Woman | cottonbro studio | [Pexels](https://www.pexels.com/video/man-interviewing-woman-6883829/) | [pexels](https://www.pexels.com/license) |
+| Image | Neon Signage During Nighttime | JS Leng | [Pexels](https://www.pexels.com/photo/neon-signage-during-nighttime-4374757/) | [pexels](https://www.pexels.com/license) |
+| Image | Two Women Using A Ticket Vending Machine | Sóc Năng Động | [Pexels](https://www.pexels.com/photo/two-women-using-a-ticket-vending-machine-31467490/) | [pexels](https://www.pexels.com/license) |
+| Image | Man With A Cardboard Sign | Omar Ramadan | [Pexels](https://www.pexels.com/photo/man-with-a-cardboard-sign-27151463/) | [pexels](https://www.pexels.com/license) |
+| Image | File:Celine Dion Concert Stage @ Montreal.jpg | Anirudh Koul | [Wikimedia](https://commons.wikimedia.org/w/index.php?curid=6709755) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Celine Dion Returns \| 150902-0024256-jikatu | jikatu | [Flickr](https://www.flickr.com/photos/7221539@N06/20481892534) | [by-sa](https://creativecommons.org/licenses/by-sa/2.0/) |
+| Image | Moskva Hotel In Belgrade In Serbia | Hatice Baran | [Pexels](https://www.pexels.com/photo/moskva-hotel-in-belgrade-in-serbia-23697262/) | [pexels](https://www.pexels.com/license) |
+| Image | Dynamic Concert Performance With Stunning Light Show | Jesus  Rivera | [Pexels](https://www.pexels.com/photo/dynamic-concert-performance-with-stunning-light-show-34629095/) | [pexels](https://www.pexels.com/license) |
+| Image | A Man Singing On Stage While Holding A Microphone | behrouz sasani | [Pexels](https://www.pexels.com/photo/a-man-singing-on-stage-while-holding-a-microphone-5847498/) | [pexels](https://www.pexels.com/license) |
+| Video | A Man Reading Legal Documents | KATRIN  BOLOVTSOVA | [Pexels](https://www.pexels.com/video/a-man-reading-legal-documents-6100011/) | [pexels](https://www.pexels.com/license) |
+| Image | Journalists Hands Holding Microphones Around Man In Suit | Werner Pfennig | [Pexels](https://www.pexels.com/photo/journalists-hands-holding-microphones-around-man-in-suit-6950231/) | [pexels](https://www.pexels.com/license) |
+| Image | Judge Signing On The Papers | KATRIN  BOLOVTSOVA | [Pexels](https://www.pexels.com/photo/judge-signing-on-the-papers-6077447/) | [pexels](https://www.pexels.com/license) |
+| Image | Judges Desk With Gavel And Scales | Sora Shimazaki | [Pexels](https://www.pexels.com/photo/judges-desk-with-gavel-and-scales-5669619/) | [pexels](https://www.pexels.com/license) |
+| Video | Lawyer Doing Paperwork | cottonbro studio | [Pexels](https://www.pexels.com/video/lawyer-doing-paperwork-6538454/) | [pexels](https://www.pexels.com/license) |
+| Video | Manukau District Court Exterior With Officers | Kiwi and Camera | [Pexels](https://www.pexels.com/video/manukau-district-court-exterior-with-officers-38885767/) | [pexels](https://www.pexels.com/license) |
+| Image | Clients At Lawyers Office | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/clients-at-lawyers-office-8112153/) | [pexels](https://www.pexels.com/license) |
+| Video | Close Up Of Man Playing Guitar | Cameron Gawn | [Pexels](https://www.pexels.com/video/close-up-of-man-playing-guitar-14032741/) | [pexels](https://www.pexels.com/license) |
+| Video | A Man In A Floral Shirt Playing An Acoustic Guitar | khanhhoangminh | [Pexels](https://www.pexels.com/video/a-man-in-a-floral-shirt-playing-an-acoustic-guitar-17421492/) | [pexels](https://www.pexels.com/license) |
+| Image | Man Singing And Playing Guitar In Studio | Murat IŞIK | [Pexels](https://www.pexels.com/photo/man-singing-and-playing-guitar-in-studio-36758341/) | [pexels](https://www.pexels.com/license) |
+| Image | Man In Brown Button Up Shirt Playing Acoustic Guitar | Andrea Piacquadio | [Pexels](https://www.pexels.com/photo/man-in-brown-button-up-shirt-playing-acoustic-guitar-3914682/) | [pexels](https://www.pexels.com/license) |
+| Video | A Journalist Interviewing A Musician | cottonbro studio | [Pexels](https://www.pexels.com/video/a-journalist-interviewing-a-musician-9400321/) | [pexels](https://www.pexels.com/license) |
+| Video | A Man Sitting And Talking With A Microphone | cottonbro studio | [Pexels](https://www.pexels.com/video/a-man-sitting-and-talking-with-a-microphone-6878209/) | [pexels](https://www.pexels.com/license) |
+| Video | Man Talking On The Microphone | Henri Mathieu-Saint-Laurent | [Pexels](https://www.pexels.com/video/man-talking-on-the-microphone-8246857/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Photo Of A Condenser Microphone | Los Muertos Crew | [Pexels](https://www.pexels.com/photo/close-up-photo-of-a-condenser-microphone-7586689/) | [pexels](https://www.pexels.com/license) |
+| Image | Energetic Concert Audience With Raised Hands | Caleb Oquendo | [Pexels](https://www.pexels.com/photo/energetic-concert-audience-with-raised-hands-39351605/) | [pexels](https://www.pexels.com/license) |
+| Image | Crowd Enjoying Concert In The Rain With Colorful Umbrellas | VINVIVU ® | [Pexels](https://www.pexels.com/photo/crowd-enjoying-concert-in-the-rain-with-colorful-umbrellas-39397026/) | [pexels](https://www.pexels.com/license) |
+| Video | Aerial View Of Outdoor Music Stage In Tennessee | K | [Pexels](https://www.pexels.com/video/aerial-view-of-outdoor-music-stage-in-tennessee-34004204/) | [pexels](https://www.pexels.com/license) |
+| Video | An Animation Of Sorry We Re Closed On A Frame | Thirdman | [Pexels](https://www.pexels.com/video/an-animation-of-sorry-we-re-closed-on-a-frame-5961724/) | [pexels](https://www.pexels.com/license) |
+| Image | Crop Unrecognizable Black Woman Using Ticket Machine In Metro Station | Uriel Mont | [Pexels](https://www.pexels.com/photo/crop-unrecognizable-black-woman-using-ticket-machine-in-metro-station-6280656/) | [pexels](https://www.pexels.com/license) |
+| Video | Customer Service Agent Working At Desk | Giorgio Tomassetti | [Pexels](https://www.pexels.com/video/customer-service-agent-working-at-desk-35402293/) | [pexels](https://www.pexels.com/license) |
+| Image | Ed Sheeran Concert at Manchester City's Etihad Arena Football Stadium | Czermak Photography | [Flickr](https://www.flickr.com/photos/126951421@N05/41610706635) | [by](https://creativecommons.org/licenses/by/2.0/) |
+| Image | Smartphone Playing Music | cottonbro studio | [Pexels](https://www.pexels.com/photo/smartphone-playing-music-5083212/) | [pexels](https://www.pexels.com/license) |
+| Image | Illuminated Smartphone Screen Playing Music | Pew Nguyen | [Pexels](https://www.pexels.com/photo/illuminated-smartphone-screen-playing-music-11989313/) | [pexels](https://www.pexels.com/license) |
+| Image | A Person Using Cellphone | Adeniji  Abdullahi A | [Pexels](https://www.pexels.com/photo/a-person-using-cellphone-9780867/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Listening To Music On A Smartphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/person-listening-to-music-on-a-smartphone-5077396/) | [pexels](https://www.pexels.com/license) |
+| Image | A Girl Sitting In A Car Listening To Music On Her Smartphone And Looking At Song Lyrics | Viralyft | [Pexels](https://www.pexels.com/photo/a-girl-sitting-in-a-car-listening-to-music-on-her-smartphone-and-looking-at-song-lyrics-16897649/) | [pexels](https://www.pexels.com/license) |
+| Image | Concert Crowd Capturing Live Performance On Phones | Aleksandr Sochnev | [Pexels](https://www.pexels.com/photo/concert-crowd-capturing-live-performance-on-phones-30663701/) | [pexels](https://www.pexels.com/license) |
+| Image | Phones In Hands Of People At Concert | Nur Andi Ravsanjani Gusma | [Pexels](https://www.pexels.com/photo/phones-in-hands-of-people-at-concert-22857360/) | [pexels](https://www.pexels.com/license) |
+| Image | Energetic Rock Concert Crowd With Cell Phones | Konstantin Mishchenko | [Pexels](https://www.pexels.com/photo/energetic-rock-concert-crowd-with-cell-phones-31020032/) | [pexels](https://www.pexels.com/license) |
+| Image | Man In Suit Presenting | addy  bronzzz | [Pexels](https://www.pexels.com/photo/man-in-suit-presenting-14564882/) | [pexels](https://www.pexels.com/license) |
+| Video | A Person Scrolling At A Social Media Account | cottonbro studio | [Pexels](https://www.pexels.com/video/a-person-scrolling-at-a-social-media-account-6963832/) | [pexels](https://www.pexels.com/license) |
+| Image | A Close Up Shot Of A Smartphone With An Open Application | Egor Komarov | [Pexels](https://www.pexels.com/photo/a-close-up-shot-of-a-smartphone-with-an-open-application-12605416/) | [pexels](https://www.pexels.com/license) |
+| Image | Two Smartphones Displaying Software Update Screen | Andrey Matveev | [Pexels](https://www.pexels.com/photo/two-smartphones-displaying-software-update-screen-37421861/) | [pexels](https://www.pexels.com/license) |
+| Video | Two Music Producers Working In A Studio | utopia 36 | [Pexels](https://www.pexels.com/video/two-music-producers-working-in-a-studio-12336230/) | [pexels](https://www.pexels.com/license) |
+| Video | Men Discussing While Looking On A Paper | Monstera Production | [Pexels](https://www.pexels.com/video/men-discussing-while-looking-on-a-paper-9305769/) | [pexels](https://www.pexels.com/license) |
+| Image | Person Using A Spotify On His Smartphone | Pew Nguyen | [Pexels](https://www.pexels.com/photo/person-using-a-spotify-on-his-smartphone-11989314/) | [pexels](https://www.pexels.com/license) |
+| Image | A Woman In Cream Jacket Holding Black Pen | Anastasia  Shuraeva | [Pexels](https://www.pexels.com/photo/a-woman-in-cream-jacket-holding-black-pen-7647214/) | [pexels](https://www.pexels.com/license) |
+| Video | A Young Singer Performing On Stage | WeStarMoney  Rec | [Pexels](https://www.pexels.com/video/a-young-singer-performing-on-stage-14880660/) | [pexels](https://www.pexels.com/license) |
+| Image | Elegant Female Singer Performing On Stage | Tran Kien | [Pexels](https://www.pexels.com/photo/elegant-female-singer-performing-on-stage-38570129/) | [pexels](https://www.pexels.com/license) |
+| Image | Two Girls With A Laptop Wearing Headsets | PNW Production | [Pexels](https://www.pexels.com/photo/two-girls-with-a-laptop-wearing-headsets-7577336/) | [pexels](https://www.pexels.com/license) |
+| Image | A Young Girl Listening To Music While Wearing Headset | PNW Production | [Pexels](https://www.pexels.com/photo/a-young-girl-listening-to-music-while-wearing-headset-7577329/) | [pexels](https://www.pexels.com/license) |
+| Image | Award Statue In The Shape Of An Astronaut | Jonathan Cooper | [Pexels](https://www.pexels.com/photo/award-statue-in-the-shape-of-an-astronaut-11862827/) | [pexels](https://www.pexels.com/license) |
+| Image | Photo Of A Studio Set Up | SHAHBAZ ZAMAN | [Pexels](https://www.pexels.com/photo/photo-of-a-studio-set-up-7865064/) | [pexels](https://www.pexels.com/license) |
+| Video | Engaging With Social Media Video Feeds | Hamim Rony | [Pexels](https://www.pexels.com/video/engaging-with-social-media-video-feeds-38369995/) | [pexels](https://www.pexels.com/license) |
+| Video | Vibrant Theater Concert With Engaged Audience | eQzit | [Pexels](https://www.pexels.com/video/vibrant-theater-concert-with-engaged-audience-28833086/) | [pexels](https://www.pexels.com/license) |
+| Image | Award Ceremony With Two Smiling Presenters | Jitte Davidson | [Pexels](https://www.pexels.com/photo/award-ceremony-with-two-smiling-presenters-35755225/) | [pexels](https://www.pexels.com/license) |
+| Video | Teens Using Their Smartphones | https://kaboompics.com/ | [Pexels](https://www.pexels.com/video/teens-using-their-smartphones-7716315/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Of Anthology Of Music Of Black Africa Album | Aaron Burden | [Pexels](https://www.pexels.com/photo/close-up-of-anthology-of-music-of-black-africa-album-36692239/) | [pexels](https://www.pexels.com/license) |
+| Image | Portrait Of Woman With Vinyl Disk | Lisa from Pexels | [Pexels](https://www.pexels.com/photo/portrait-of-woman-with-vinyl-disk-26953540/) | [pexels](https://www.pexels.com/license) |
+| Image | Music Producer Working In Cozy Recording Studio | AstroBhelt Inc. | [Pexels](https://www.pexels.com/photo/music-producer-working-in-cozy-recording-studio-32019607/) | [pexels](https://www.pexels.com/license) |
+| Image | Man Lying On Floor Surrounded By Vinyl Records | Jaycee300s | [Pexels](https://www.pexels.com/photo/man-lying-on-floor-surrounded-by-vinyl-records-15797149/) | [pexels](https://www.pexels.com/license) |
+| Image | Men Talking While Sitting On An Indoor Stage | Pavel Danilyuk | [Pexels](https://www.pexels.com/photo/men-talking-while-sitting-on-an-indoor-stage-7803598/) | [pexels](https://www.pexels.com/license) |
+| Image | A Man Standing Near A Condenser Microphone | cottonbro studio | [Pexels](https://www.pexels.com/photo/a-man-standing-near-a-condenser-microphone-7086748/) | [pexels](https://www.pexels.com/license) |
+| Image | Men Recording In A Music Studio | Anna Pou | [Pexels](https://www.pexels.com/photo/men-recording-in-a-music-studio-8132988/) | [pexels](https://www.pexels.com/license) |
+| Video | Close Up Of A Microphone At A Recording Studio | utopia 36 | [Pexels](https://www.pexels.com/video/close-up-of-a-microphone-at-a-recording-studio-13283745/) | [pexels](https://www.pexels.com/license) |
+| Video | Podcast Interview | cottonbro studio | [Pexels](https://www.pexels.com/video/podcast-interview-6883826/) | [pexels](https://www.pexels.com/license) |
+| Video | A Woman Talking In The Microphone While In Front Of The Laptop | https://kaboompics.com/ | [Pexels](https://www.pexels.com/video/a-woman-talking-in-the-microphone-while-in-front-of-the-laptop-6953421/) | [pexels](https://www.pexels.com/license) |
+| Video | Darkroom Video Editing Studio With Professionals | Somogro Bangladesh | [Pexels](https://www.pexels.com/video/darkroom-video-editing-studio-with-professionals-31050550/) | [pexels](https://www.pexels.com/license) |
+| Video | Professional Audio Microphone Setup For Podcasts | Franco Garcia | [Pexels](https://www.pexels.com/video/professional-audio-microphone-setup-for-podcasts-36564655/) | [pexels](https://www.pexels.com/license) |
+| Video | Crowd Dancing During Rock Band Concert | Erik Mclean | [Pexels](https://www.pexels.com/video/crowd-dancing-during-rock-band-concert-12525522/) | [pexels](https://www.pexels.com/license) |
+| Image | Young Man Listening To Music Isolated Over Colour Background Chilling And Enjoying Music Headphones Music Concept | Arnav Pratap Singh | [Pexels](https://www.pexels.com/photo/young-man-listening-to-music-isolated-over-colour-background-chilling-and-enjoying-music-headphones-music-concept-16591968/) | [pexels](https://www.pexels.com/license) |
+| Image | Expressive Guitarist Enjoying Music At Home | Vitaly Gariev | [Pexels](https://www.pexels.com/photo/expressive-guitarist-enjoying-music-at-home-36764764/) | [pexels](https://www.pexels.com/license) |
+| Image | Close Up Shot Of A Bearded Man Wearing Headphones | Olha Ruskykh | [Pexels](https://www.pexels.com/photo/close-up-shot-of-a-bearded-man-wearing-headphones-7504870/) | [pexels](https://www.pexels.com/license) |
+| Image | A Band Practicing Together | RDNE Stock project | [Pexels](https://www.pexels.com/photo/a-band-practicing-together-8197337/) | [pexels](https://www.pexels.com/license) |
+| Image | A Band Rehearsing Inside A Dark Room | AI25.Studio  AI GENERATIVE | [Pexels](https://www.pexels.com/photo/a-band-rehearsing-inside-a-dark-room-8041221/) | [pexels](https://www.pexels.com/license) |
+| Image | Band Members Looking At Each Other | Artem Podrez | [Pexels](https://www.pexels.com/photo/band-members-looking-at-each-other-6270151/) | [pexels](https://www.pexels.com/license) |
+| Image | Man In Black Suit Playing Electric Guitar | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/man-in-black-suit-playing-electric-guitar-8044098/) | [pexels](https://www.pexels.com/license) |
+| Image | A Musician Playing An Electric Guitar | ANTONI SHKRABA production | [Pexels](https://www.pexels.com/photo/a-musician-playing-an-electric-guitar-8040855/) | [pexels](https://www.pexels.com/license) |
+| Image | Electric Guitarist Performing Live On Stage | Rahimat Onize Shaibu | [Pexels](https://www.pexels.com/photo/electric-guitarist-performing-live-on-stage-33716041/) | [pexels](https://www.pexels.com/license) |
+| Audio | piano sadness.mp3 | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/piano-sadnessmp3/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | moon beat [lofi] | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/moon-beat-lofi/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
+| Audio | Little Joys in the Air | snoozy beats | [Freemusicarchive](https://freemusicarchive.org/music/snoozy-beats/single/little-joys-in-the-air/) | [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/) |
