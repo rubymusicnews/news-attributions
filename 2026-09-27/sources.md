@@ -1,0 +1,62 @@
+# Sources for 2026-09-27 News Episode 
+- [Taylor Swift's puerile new album exposes her most devastating flaw... that even marriage and billions of dollars can't fix: LINK LAUREN](https://www.dailymail.com/tvshowbiz/article-16162359/Taylor-Swift-Encore-puerile-album-LINK-LAUREN.html) - Dailymail.com
+- [Review: Taylor Swift 'The Life of a Showgirl: The Encore'](https://www.slantmagazine.com/music/taylor-swift-the-life-of-a-showgirl-the-encore-album-review) - Slantmagazine
+- [Taylor Swift: The Life of a Showgirl: The Encore review – flashes of humanity and bafflingly vindictive love songs](https://www.theguardian.com/music/2026/sep/25/taylor-swift-the-life-of-a-showgirl-the-encore-review) - Theguardian
+- [Megadeth’s Dave Mustaine Explains Why He’s Retiring: ‘I Live Every Day Like It’s My Last’](http://www.rollingstone.com/music/music-news/megadeth-dave-mustaine-in-my-darkest-hour-book-launch-video-1235627256/) - Rolling Stone
+- [Dave Mustaine explains Megadeth’s end by hand problem \| UA.NEWS](https://ua.news/en/culture/deiv-mastein-poiasniv-zavershennia-megadeth-problemoiu-z-rukoiu-rolling-stone) - Ua
+- [Dave Mustaine on Megadeth’s farewell: “I’m grateful to be able to go out on top”](https://www.goldminemag.com/articles/dave-mustaine-on-megadeths-farewell-im-grateful-to-be-able-to-go-out-on-top) - Goldminemag
+- [Megadeth's Dave Mustaine Explains Why He's Retiring](https://www.rollingstone.com/music/music-news/megadeth-dave-mustaine-in-my-darkest-hour-book-launch-video-1235627256) - Rollingstone
+- [Rock legend Dave Mustaine admits becoming a ‘different person’ since throat cancer diagnosis](https://www.thenews.com.pk/latest/1417418-rock-legend-dave-mustaine-admits-becoming-a-different-person-since-throat-cancer-diagnosis) - Thenews
+- [Olivia Rodrigo’s ‘Unraveled’ Tour Setlist: Every Song Played on Opening Night in Connecticut](https://variety.com/2026/music/news/olivia-rodrigo-unraveled-tour-setlist-opening-connecticut-1236875900/) - Variety
+- [Olivia Rodrigo Unraveled Tour Setlist: See Every Song](https://inmusicblog.com/news/olivia-rodrigo-unraveled-tour-setlist) - Inmusicblog
+- [Olivia Rodrigo Setlist for 2026 'Unraveled Tour' Revealed After Opening Night Show \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/25/olivia-rodrigo-setlist-for-2026-unraveled-tour-revealed-after-opening-night-show) - Justjared
+- [Here's what Olivia Rodrigo played as she kicked off the 'Unraveled' tour](https://www.nme.com/news/music/heres-what-olivia-rodrigo-played-as-she-kicked-off-the-unraveled-tour-3970884) - Nme
+- [Olivia Rodrigo Kicks Off "Unraveled Tour": See 26-Song Setlist + Video](https://consequence.net/2026/09/olivia-rodrigo-unraveled-tour-kickoff-setlist-video) - Consequence
+- [Reba McEntire Says She Missed a Call from Dolly Parton Before Her Death and ‘Couldn’t’ Get Back in Touch: ‘I’ll Never Know Why She Called’](https://variety.com/2026/music/news/reba-mcentire-dolly-parton-missed-call-1236876408/) - Variety
+- [Reba McEntire Missed a Call From Dolly Parton Before Her Death](http://www.hollywoodreporter.com/music/music-news/reba-mcentire-missed-call-dolly-parton-before-death-1236712561/) - Hollywood Reporter
+- [Reba McEntire Missed a Call From Dolly Parton Before Her Death](https://www.hollywoodreporter.com/music/music-news/reba-mcentire-missed-call-dolly-parton-before-death-1236712561) - Hollywoodreporter
+- [Reba McEntire Says She Missed A Call From Dolly Parton Before She Died](https://variety.com/2026/music/news/reba-mcentire-dolly-parton-missed-call-1236876408) - Variety
+- [Reba McEntire missed Dolly Parton’s final call: ‘I’ll never know why she called me’](https://www.thenews.com.pk/latest/1417689-reba-mcentire-missed-dolly-partons-final-call-ill-never-know-why-she-called-me) - Thenews
+- [Nene Royal, a Metal-Loving Teen from Thailand, Won ‘America’s Got Talent.’ A Rock Album Is Next](http://www.rollingstone.com/music/music-features/nene-royal-americas-got-talent-album-1235632344/) - Rolling Stone
+- [Thais hail teen rocker Nene for 'America's Got Talent' win \| Hindustan Times](https://www.hindustantimes.com/entertainment/music/thais-hail-teen-rocker-nene-for-america-s-got-talent-win-101790230942293.html) - Hindustantimes
+- [Nene Royal Wins America’s Got Talent Season 21](https://www.eonline.com/news/1436391/nene-royal-wins-americas-got-talent-season-21) - Eonline
+- [Avenged Sevenfold reveal Nene Royal as opening act for their show in Singapore - Chaoszine](https://chaoszine.net/avenged-sevenfold-reveal-nene-royal-as-opening-act-for-their-show-in-singapore) - Chaoszine
+- ['America's Got Talent' Winner Nene Royal](https://www.rollingstone.com/music/music-features/nene-royal-americas-got-talent-album-1235632344) - Rollingstone
+- [Thai AGT winner Nene Royal to open for Avenged Sevenfold in S'pore on Oct. 13 - Mothership.SG - News from Singapore, Asia and around the world](https://mothership.sg/2026/09/nene-royal-open-a7x) - Mothership
+- [Taylor Swift Admits 'Patient Zero' Isn't About an Ex, and Netizens Are Still Arguing Over Fan Theories](https://www.ibtimes.co.uk/taylor-swift-explains-patient-zero-inspiration-1822032) - International Business Times UK
+- [Taylor Swift Reveals Real Meaning Behind Song “Patient Zero”](https://www.eonline.com/news/1436439/taylor-swift-reveals-real-meaning-behind-song-patient-zero) - Eonline
+- [Taylor Swift Reveals Real Meaning Behind Song “Patient Zero”](https://fr.eonline.com/news/1436439/taylor-swift-reveals-real-meaning-behind-song-patient-zero) - Eonline
+- [Is Taylor Swift’s Patient Zero the next chapter of The Life of a Showgirl?](https://www.prestigeonline.com/my/lifestyle/culture-plus-entertainment/taylor-swift-patient-zero-release-date-meaning-theories) - Prestigeonline
+- [‘Farm Aid 2026’ Performers & Set Times: How to Watch Willie Nelson, Neil Young, Dave Matthews & More](https://www.justjared.com/2026/09/26/farm-aid-2026-performers-set-times-how-to-watch/) - Just Jared
+- [How To Watch Neil Young, Willie Nelson, Dave Matthews Band and More Perform Live at CNN’s ‘Farm Aid Music Festival’](https://variety.com/2026/shopping/news/how-to-watch-farm-aid-2026-music-festival-live-1236875088/) - Variety
+- [How To Watch Farm Aid 2026: Willie Nelson, Neil Young, John Mellencamp, Dave Matthews & More To Perform](http://deadline.com/2026/09/farm-aid-how-to-watch-1237114491/) - Deadline
+- [AS FAMILY FARMERS FACE GROWING ECONOMIC PRESSURE, FARM AID 2026 LIFTS THEIR VOICES IN HAMPTON ROADS](https://www.prnewswire.com/news-releases/as-family-farmers-face-growing-economic-pressure-farm-aid-2026-lifts-their-voices-in-hampton-roads-302890724.html) - PRNewswire
+- [Where to Stream Farm Aid Music Festival Live Online for Free](https://www.rollingstone.com/product-recommendations/streaming/watch-farm-aid-music-festival-2026-online-free-stream-cnn-1235631751) - Rollingstone
+- [Listen Live to Farm Aid 2026 with Willie Nelson, Neil Young & More](https://www.siriusxm.com/blog/farm-aid) - Siriusxm
+- [What To Watch This Week: Stream Our Top 7 TV and Movie Picks (Sept. 21–27)](https://www.cabletv.com/what-to-watch) - Cabletv
+- [‘JAŸ-Z in 8’ Episode Four: 4 Things We Learned](http://www.billboard.com/lists/jay-z-in-8-review-episode-four-rick-rubin-hbo-max/) - Billboard
+- [‘JAŸ-Z in 8’ Episode Four: 4 Things We Learned](https://www.billboard.com/lists/jay-z-in-8-review-episode-four-rick-rubin-hbo-max) - Billboard
+- [Lawrence Rothman Wants to Break Free From Music’s Ones and Zeroes](http://www.rollingstone.com/music/music-features/lawrence-rothman-interview-here-lies-love-1235632050/) - Rolling Stone
+- [Lawrence Rothman's 'Here Lies Love' Album Deals With Karma](https://www.rollingstone.com/music/music-features/lawrence-rothman-interview-here-lies-love-1235632050) - Rollingstone
+- [Lawrence Rothman Unveils New Single “Demons” With Accompanying Music Video – R o c k 'N' L o a d](https://rocknloadmag.com/lawrence-rothman-unveils-new-single-demons-with-accompanying-music-video) - Rocknloadmag
+- [REVIEW: Lawrence Rothman "Here Lies Love/ Sawdust to Stardust" • Americana Highways](https://americanahighways.org/2026/09/24/review-lawrence-rothman-here-lies-love-sawdust-to-stardust) - Americanahighways
+- [Chuck Varga, Founding Member of Heavy Metal Band Gwar, Dies at 68](https://variety.com/2026/music/news/chuck-varga-dead-gwar-founding-member-1236876474/) - Variety
+- [Chuck Varga Dies: Singer With Shock Metal Band GWAR Was 68](http://deadline.com/2026/09/chuck-varga-dead-1237114451/) - Deadline
+- [Chuck Varga (formerly of GWAR) has passed away - Chaoszine](https://chaoszine.net/chuck-varga-formerly-of-gwar-has-passed-away) - Chaoszine
+- [Beloved music star dies after tragic cancer battle as tributes flood in - AOL](https://www.aol.co.uk/articles/beloved-music-star-dies-tragic-213100000.html) - Aol
+- [Chuck Varga Dead: Founding Member of Gwar Was 68](https://variety.com/2026/music/news/chuck-varga-dead-gwar-founding-member-1236876474) - Variety
+- [Chuck Varga Death: GWAR Founding Member Dies After Cancer Battle](https://www.billboard.com/music/rock/chuck-varga-death-gwar-founding-member-dies-cancer-battle-1236348335) - Billboard
+- [GWAR Classic Member Chuck Varga Dies After Battle With Cancer](https://consequence.net/2026/09/gwar-classic-member-chuck-varga-dies-after-battle-with-cancer) - Consequence
+- [Dur-Dur Band – Volume 3 (1988) & Volume 4 (1989) (Analog Africa Nr. 46) (2026)](https://exystence.net/blog/2026/09/26/dur-dur-band-volume-3-1988-volume-4-1989-analog-africa-nr-46-2026/) - Exystence.net
+- [ALBUM REVIEW – DUR-DUR BAND: DUR-DUR VOLUME 3 (1988) & 4 (1989) : Silent Radio](https://www.silentradio.co.uk/09/12/album-review-dur-dur-band-dur-dur-volume-3-1988-4-1989) - Silentradio
+- [ALBUM REVIEW: DUR-DUR BAND – DUR-DUR BAND VOLUME 3 (1988) & 4 (1989) - Joyzine](https://joyzine.org/2026/09/18/album-review-dur-dur-band-dur-dur-volume-3-1988-4-1989) - Joyzine
+- [Two high points of Somali funk and disco, on wax ...](https://www.facebook.com/rushhourrecordstore/posts/two-high-points-of-somali-funk-and-disco-on-wax-for-the-first-time-dur-dur-band-/1562858902551398) - Facebook
+- [Angela Autumn brings a new sound to her Appalachian roots](https://www.npr.org/2026/09/26/nx-s1-5978944/angela-autumn-brings-a-new-sound-to-her-appalachian-roots) - NPR
+- [Angela Autumn Releases BELIEVER Album via Gar Hole Records \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Angela-Autumn-Releases-BELIEVER-Album-via-Gar-Hole-Records-20260911) - Broadwayworld
+- [Angela Autumn carries Appalachia with her](https://www.pastemagazine.com/music/angela-autumn/angela-autumn-the-best-of-whats-next-september-2026) - Pastemagazine
+- [Angela Autumn: Believer Album Review](https://pitchfork.com/reviews/albums/angela-autumn-believer) - Pitchfork
+- [Iggy Azalea is recording music again](https://ohnotheydidnt.livejournal.com/132923910.html) - Livejournal.com
+- [Iggy Azalea teases new music years after stepping away from industry](https://www.thenews.com.pk/latest/1417768-iggy-azalea-teases-new-music-cooking-years-after-distance-from-industry) - Thenews
+- [Iggy Azalea Wonders if It’s a ‘Bad Idea’ To Record a New Album for the First Time in Five Years](https://www.vice.com/en/article/iggy-azalea-wonders-if-its-a-bad-idea-to-record-a-new-album-for-the-first-time-in-five-years) - Vice
+- [Oklou – Choke Enough album art, EP and single covers](https://fontsinuse.com/uses/72712/oklou-choke-enough-album-art-ep-and-single-co) - Fontsinuse.com
+- [Instagram](https://www.instagram.com/reel/Ddbh9u-RmHD) - Instagram
