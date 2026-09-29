@@ -1,0 +1,83 @@
+# Sources for 2026-09-29 News Episode 
+- [Shakira to Take Massive Madrid Residency Global With First Full-Concert Livestream](https://consequence.net/2026/09/shakira-madrid-residency-global-livestream/) - Consequence.net
+- [Amazon Music Announces Global Livestream Of Shakira’s Madrid Residency Show Oct. 3 – Arise News](https://www.arise.tv/amazon-music-announces-global-livestream-of-shakiras-madrid-residency-show-oct-3) - Arise
+- [Amazon Music and Shakira Celebrate The Women Shaping Latin Music and Culture - US Press Center](https://press.aboutamazon.com/2026/9/amazon-music-and-shakira-celebrate-the-women-shaping-latin-music-and-culture) - Aboutamazon
+- [Shakira livestream: How to watch the Madrid concert via Prime Video, Amazon Music, and Twitch](https://www.aboutamazon.com/news/entertainment/shakira-livestream-amazon-music-prime-video) - Aboutamazon
+- [Shakira’s Madrid concert to stream globally on Amazon Music on October 3; celebration to spotlight women in Latin music : Bollywood News - Bollywood Hungama](https://www.bollywoodhungama.com/amp/news/bollywood/shakiras-madrid-concert-to-stream-globally-on-amazon-music-on-october-3-celebration-to-spotlight-women-in-latin-music) - Bollywoodhungama
+- [Shakira Announces Global Livestream of Madrid Residency Concert](https://consequence.net/2026/09/shakira-madrid-residency-global-livestream) - Consequence
+- [Taylor Swift Accepts Inaugural MTV VMAs Artist Director Honor](http://www.rollingstone.com/music/music-news/taylor-swift-directors-award-acceptance-speech-1235631393/) - Rolling Stone
+- [Taylor Swift passe devant Beyoncé au sommet des MTV Video Music Awards](https://www.20minutes.fr/arts-stars/culture/musique/4249330-20260928-taylor-swift-passe-devant-beyonce-sommet-mtv-video-music-awards) - 20 Minutes
+- [Taylor Swift er nå tidenes mestvinnende artist](https://www.vg.no/rampelys/i/vrax0w/taylor-swift-er-naa-tidenes-mestvinnende-artist) - Www.vg.no
+- [MTV VMAs: Taylor Swift Dedicates Video Of The Year Award To Dolly Parton “The Ultimate Showgirl”](http://deadline.com/2026/09/taylor-swift-video-of-the-year-award-dolly-parton-vmas-1237115037/) - Deadline
+- [Taylor Swift breaks record for most MTV VMAs as Madonna also wins](https://www.bbc.co.uk/news/articles/c8ly403p1rwpo) - BBC News
+- [2026 MTV VMAs: Taylor Swift Arrives for Artist Director Honor (VIDEO)](https://bleedingcool.com/tv/2026-mtv-vmas-taylor-swift-arrives-for-artist-director-honor-video/) - Bleeding Cool News
+- [Taylor Swift Dedicates VMAs Video of the Year Award to Dolly Parton](https://consequence.net/2026/09/taylor-swift-dolly-parton-vmas/) - Consequence.net
+- [Taylor Swift Dedicates Video of the Year Award to ‘Ultimate Showgirl’ Dolly Parton at MTV VMAs 2026](https://www.justjared.com/2026/09/27/taylor-swift-dedicates-video-of-the-year-award-to-ultimate-showgirl-dolly-parton-at-mtv-vmas-2026/) - Just Jared
+- [Musikwettbewerb: Taylor Swift holt Top-Preis bei MTV Video Music Awards](https://www.horizont.net/medien/nachrichten/musikwettbewerb-taylor-swift-holt-top-preis-bei-mtv-video-music-awards-235998) - Horizont.net
+- [Taylor Swift Takes Home First-of-its-Kinds Awards at VMAs](https://www.thehollywoodgossip.com/2026/09/taylor-swift-first-ever-director-award-vmas/) - The Hollywood Gossip
+- [Taylor Swift Does It for the Fans](http://www.vulture.com/article/taylor-swift-vma-director-speech-dakota-johnson.html) - Vulture
+- [Dakota Johnson Starred in Taylor Swift’s ‘Patient Zero’ Video, Then Handed Her an MTV Directing Honor That Broke Her VMA Record Tie with Beyoncé](https://thoughtcatalog.com/january-nelson/2026/09/dakota-johnson-starred-in-taylor-swifts-patient-zero-video-then-handed-her-an-mtv-directing-honor-that-broke-her-vma-record-tie-with-beyonce/) - Thoughtcatalog.com
+- [Here’s Taylor Swift’s Full Speech at the VMAs for You to Read Into!](https://www.cosmopolitan.com/entertainment/celebs/a73914671/taylor-swift-full-2026-vmas-speech/) - Cosmopolitan.com
+- [Taylor Swift Explains ‘Patient Zero’ Video Meaning, Reveals Cara Delevingne’s Surprise Role](https://www.justjared.com/2026/09/27/taylor-swift-patient-zero-video-dakota-johnson-colin-farrell-cara-delevingne-meaning/) - Just Jared
+- [Taylor Swift’s ‘Patient Zero’ Music Video Is a Fun Thriller](http://www.vulture.com/article/taylor-swift-patient-zero-music-video-meaning.html) - Vulture
+- [Taylor Swift Brought Her Lob to the VMAs](http://www.thecut.com/article/taylor-swift-vmas-2026.html) - The Cut
+- [NFL player makes unexpected cameo in Taylor Swift music video](https://www.usatoday.com/story/sports/nfl/rams/2026/09/28/taylor-swift-patient-zero-music-video-matthew-stafford-nfl/91981273007/) - USA Today
+- [Taylor Swift debuts 'Patient Zero' music video with Dakota Johnson, Colin Farrell at MTV VMAs](https://pagesix.com/2026/09/27/entertainment/taylor-swift-debuts-patient-zero-music-video-with-dakota-johnson-colin-farrell-at-mtv-vmas) - Pagesix
+- [Taylor Swift "Patient Zero" Video Warns Dakota Johnson of Colin Farrell](https://www.eonline.com/news/1436454/taylor-swift-patient-zero-video-warns-dakota-johnson-of-colin-farrell) - Eonline
+- [Taylor Swift Patient Zero Video: Plot, Cast & Meaning](https://www.justjared.com/2026/09/27/taylor-swift-patient-zero-video-dakota-johnson-colin-farrell-cara-delevingne-meaning) - Justjared
+- [Taylor Swift Reveals Real Meaning Behind Song “Patient Zero”](https://www.eonline.com/news/1436439/taylor-swift-reveals-real-meaning-behind-song-patient-zero) - Eonline
+- [U2 Plotting New Stadium Tour](https://consequence.net/2026/09/u2-plotting-new-stadium-tour/) - Consequence.net
+- [U2 Plotting New Stadium Tour](https://consequence.net/2026/09/u2-plotting-new-stadium-tour) - Consequence
+- [U2 Interview: Making New Album 'Carnaval De Luz,' Larry Mullen Jr.](https://www.rollingstone.com/music/music-features/u2-cover-story-carnaval-de-luz-larry-mullen-dolly-parton-1235631171) - Rollingstone
+- [U2 are gearing up for a new stadium tour, their first since ...](https://www.facebook.com/consequence/posts/u2-are-gearing-up-for-a-new-stadium-tour-their-first-since-the-joshua-tree-tour-/1569948051839627) - Facebook
+- [Madonna Slid Into Sabrina Carpenter’s DMs](http://www.vulture.com/article/mtv-vma-madonna-sabrina-carpenter-win-best-collab.html) - Vulture
+- [Madonna Drags Sabrina Carpenter After VMAs Win: ‘Didn’t Hear Back From Her …](https://www.thehollywoodgossip.com/2026/09/madonna-sabrina-carpenter-vmas/) - The Hollywood Gossip
+- [A Lip Reader Says Madonna Told Taylor Swift: “Call Me So We Can Chat”](https://thoughtcatalog.com/january-nelson/2026/09/a-lip-reader-says-madonna-told-taylor-swift-call-me-so-we-can-chat/) - Thoughtcatalog.com
+- [Madonna Had to DM Sabrina Carpenter for ‘Bring Your Love’](https://inmusicblog.com/news/madonna-sabrina-carpenter-bring-your-love-collaboration) - Inmusicblog
+- [VMAs 2026: Madonna Reveals DM Led to Sabrina Carpenter Collaboration](https://www.eonline.com/news/1436500/vmas-2026-madonna-reveals-dm-led-to-sabrina-carpenter-collaboration) - Eonline
+- [Madonna & Sabrina Carpenter Win Best Collaboration for " ...](https://www.youtube.com/watch?v=BjS2WJU0AFQ) - Youtube
+- [Madonna & Sabrina Carpenter Win Best Collaboration at VMAs 2026](https://www.billboard.com/music/awards/madonna-sabrina-carpenter-win-best-collaboration-vmas-2026-1236348666) - Billboard
+- [Madonna kicks off VMAs 2026 with risqué performance alongside Sabrina Carpenter, Charli XCX](https://pagesix.com/2026/09/27/entertainment/madonna-kicks-off-vmas-2026-with-risque-performance-alongside-sabrina-carpenter-charli-xcx) - Pagesix
+- [The Appeal of Taylor Swift as an Ethical Billionaire Is Where Her Money Comes From: Her Art, Not an Alcohol or Beauty Line](https://thoughtcatalog.com/january-nelson/2026/09/the-appeal-of-taylor-swift-as-an-ethical-billionaire-is-where-her-money-comes-from-her-art-not-an-alcohol-or-beauty-line/) - Thoughtcatalog.com
+- [Oprah Winfrey and Taylor Swift Are ‘Too Poor’ to Make the Forbes 400](https://www.complex.com/pop-culture/a/bernadette-giacomazzo/oprah-winfrey-taylor-swift-billionaire-list) - Complex
+- [Small habit that changed their finances: Taylor Swift, whose networth is said to be over $2 billion by Forbes, follows a simple money lesson her stockbroker father taught her - The Economic Times](https://m.economictimes.com/magazines/panache/small-habit-that-changed-their-finances-taylor-swift-whose-networth-is-said-to-be-over-2-billion-by-forbes-follows-a-simple-money-lesson-her-stockbroker-father-taught-her/articleshow/134487015.cms) - Economictimes
+- [Ranked: The World’s Richest Celebrity Billionaires](https://www.visualcapitalist.com/ranked-the-worlds-richest-celebrity-billionaires) - Visualcapitalist
+- [Photo by Mind blowing facts (@blowingfacts365)](https://www.instagram.com/p/Ddz25z8iKSj) - Instagram
+- [The Eras Tour Made $2 Billion. The $360M She Spent After ...](https://www.youtube.com/watch?v=T-gt01rTDDQ) - Youtube
+- [The Appeal of Taylor Swift as an Ethical Billionaire Is Where Her Money Comes From: Her Art, Not an Alcohol or Beauty Line](https://thoughtcatalog.com/january-nelson/2026/09/the-appeal-of-taylor-swift-as-an-ethical-billionaire-is-where-her-money-comes-from-her-art-not-an-alcohol-or-beauty-line) - Thoughtcatalog
+- [Adam Lambert Makes Surprise Appearance During George Michael Tribute at MTV VMAs 2026 With Sombr, Raye & Teddy Swims](https://www.justjared.com/2026/09/27/adam-lambert-makes-surprise-appearance-during-george-michael-tribute-at-mtv-vmas-2026-with-sombr-raye-teddy-swims/) - Just Jared
+- [Adam Lambert Shocks Crowd With Surprise Performance During VMAs George Michael Tribute](https://www.today.com/popculture/awards/adam-lambert-surprise-performance-george-michael-tribute-rcna600099) - Today
+- [George Michael honored at MTV VMAs 2026 with surprise appearance from Adam Lambert](https://pagesix.com/2026/09/27/celebrity-news/george-michael-honored-at-mtv-vmas-2026-with-surprise-appearance-from-adam-lambert) - Pagesix
+- [Adam Lambert Makes Surprise Appearance During George Michael Tribute at MTV VMAs 2026 With Sombr, Raye & Teddy Swims \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/27/adam-lambert-makes-surprise-appearance-during-george-michael-tribute-at-mtv-vmas-2026-with-sombr-raye-teddy-swims) - Justjared
+- [Unseen Photos of David Bowie at His Peak](https://www.anothermag.com/art-photography/17509/david-bowie-photographs-venice-immersive-unseen-unheard) - AnOther Magazine
+- [David Bowie’s Official Photographer Transforms His Photo Archive Into an Immersive Experience \| PetaPixel](https://petapixel.com/2026/09/05/david-bowies-official-photographer-transforms-his-photo-archive-into-an-immersive-experience) - Petapixel
+- [‘He was always a bit of a groundbreaker’: David Bowie enters a new dimension in ‘extended reality’ documentary](https://www.theguardian.com/film/2026/sep/02/david-bowie-unseen-unheard-documentary-venice-film-festival) - Theguardian
+- [Boyzone Concert Coming To Sky As ‘No Matter What’ Producer Curious Films Moves Into Live Programming](http://deadline.com/2026/09/boyzone-live-concert-sky-one-for-the-road-curious-films-1237112323/) - Deadline
+- [What's Showing On Sky And NOW Next Week: Go To WAR With Boyzone And Yuja On Saturday Night Live With One Last Shot! - Future of the Force](https://thefutureoftheforce.com/2026/09/17/whats-showing-on-sky-and-now-next-week-go-to-war-with-boyzone-and-yuja-on-saturday-night-live-with-one-last-shot) - Thefutureoftheforce
+- [Boyzone Live Concert Coming To Sky From Curious Films](https://deadline.com/2026/09/boyzone-live-concert-sky-one-for-the-road-curious-films-1237112323) - Deadline
+- [Boyzone Concert Coming To Sky As ‘No Matter What’ Producer Curious Films Moves Into Live Programming](https://www.imdb.com/news/ni66036515?ref_=nmnw_art_perm) - Imdb
+- ['Icebreaker' Netflix Series Casts Daisy Jelley & Connor Simos As Leads](https://deadline.com/2026/09/icebreaker-netflix-series-cast-daisy-jelley-connor-simos-1237115165) - Deadline
+- [Shaboozey is Joined By Gunna for MTV VMAs 2026 Performance](https://www.justjared.com/2026/09/27/shaboozey-is-joined-by-gunna-for-mtv-vmas-2026-performance/) - Just Jared
+- [Shaboozey and Gunna Bring ‘High Noon’ to the VMAs](https://www.rollingstone.com/music/music-news/shaboozey-gunna-high-noon-vmas-performance-1235631662) - Rollingstone
+- [Shaboozey and Gunna lit up the #VMAs stage. ...](https://www.instagram.com/p/Ddz7kf4DGhD) - Instagram
+- [Shaboozey is Joined By Gunna for MTV VMAs 2026 Performance \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/09/27/shaboozey-is-joined-by-gunna-for-mtv-vmas-2026-performance) - Justjared
+- [Shaboozey & Gunna Perform 'High Noon' & 'Cowgirl' at 2026 MTV VMAs](https://www.billboard.com/music/awards/shaboozey-gunna-high-noon-cowgirl-performance-vmas-1236348693) - Billboard
+- [Protomartyr Invites to Check Into Hotel Usona](https://www.spinmagazine.com/2026/09/protomartyr-invites-to-check-into-hotel-usona/) - Spinmagazine.com
+- [Protomartyr disassemble distorted patriotism on “Exalted Eagles” – Beats Per Minute](https://beatsperminute.com/protomartyr-disassemble-distorted-patriotism-on-exalted-eagles) - Beatsperminute
+- [Protomartyr debut new single "Exalted Eagles" - Northern Transmissions](https://northerntransmissions.com/protomartyr-debut-new-single-exalted-eagles) - Northerntransmissions
+- [Protomartyr - "Hotel Usona" \| Album Review — POST-TRASH](http://post-trash.com/news/2026/9/23/protomartyr-hotel-usona-album-review) - Post-trash
+- [Review: Protomartyr dive headlong into the American nightmare on 'Hotel Usona'](https://www.pastemagazine.com/music/protomartyr/protomartyr-hotel-usona-review) - Pastemagazine
+- [Sienna Spiro Wows MTV VMAs 2026 with ‘Great Expectation’ Performance, Wins Best New Artist Award](https://www.justjared.com/2026/09/27/sienna-spiro-wows-mtv-vmas-2026-with-great-expectation-performance-wins-best-new-artist-award/) - Just Jared
+- [Sienna Spiro debuts at MTV VMAs with Great Expectation \| UA.NEWS](https://ua.news/en/culture/siienna-spiro-debiutuvala-na-mtv-video-music-awards-z-great-expectation-rolling-stone) - Ua
+- [Sienna Spiro Makes VMAs Performance Debut With 'Great Expectations'](https://www.rollingstone.com/music/music-news/sienna-spiro-vmas-performance-debut-1235631694) - Rollingstone
+- [Brutally honest reviews of every VMAs 2026 performance](https://www.usatoday.com/story/entertainment/music/awards/2026/09/27/mtv-vmas-2026-performances-review/91829134007) - Usatoday
+- [Sienna Spiro Wins Best New Artist at 2026 MTV VMAs](https://www.rollingstone.com/music/music-news/sienna-spiro-best-new-artist-2026-vmas-1235631056) - Rollingstone
+- [AMÉMÉ sends off the summer with "Chulo," the track that ruled his Ibiza season](https://earmilk.com/2026/09/28/ameme-sends-off-the-summer-with-chulo-the-track-that-ruled-his-ibiza-season/) - Earmilk.com
+- [AMÉMÉ Releases 'Chulo' as One Tribe Wraps Landmark Ibiza Residency at Cova Santa \| EDMNOMAD](https://edmnomad.com/ameme-releases-chulo-as-one-tribe-wraps-landmark-ibiza-residency-at-cova-santa) - Edmnomad
+- [Photos: AMÉMÉ Releases "Chulo" Closing One Tribe's Debut Ibiza Residency \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Photos-AMM-Releases-Chulo-Closing-One-Tribes-Debut-Ibiza-Residency-20260918) - Broadwayworld
+- [AMÉMÉ sends off the summer with "Chulo," the track that ruled his Ibiza season](https://earmilk.com/2026/09/28/ameme-sends-off-the-summer-with-chulo-the-track-that-ruled-his-ibiza-season) - Earmilk
+- [New EDM Friday Sep 11: David Guetta, Armin van Buuren, Skrillex & More - EDM House Network](https://edmhousenetwork.com/new-edm-friday-sep-11-david-guetta-armin-van-buuren-skrillex-more) - Edmhousenetwork
+- [Ado’s Agency Threatens Legal Action as Harassment Surges Following K-Pop Festival Appearance](https://news.sankakucomplex.com/n/oM1tL9g0aO_iOytQkcI1fg) - Sankakucomplex.com
+- [J-pop star Ado faces backlash over filming restrictions at K-pop festival, agency warns of legal action over abuse](https://mustsharenews.com/ado-backlash-festival/amp) - Mustsharenews
+- [J-pop star Ado faces backlash over filming restrictions at K-pop festival, agency warns of legal action over abuse](https://mustsharenews.com/ado-backlash-festival) - Mustsharenews
+- [Ado's agency warns of legal action over abuse after K-pop event backlash \| Electric Bloom Webzine](https://electricbloomwebzine.com/2026/09/ado-agency-legal-action-inkigayo-live-tokyo-backlash.html) - Electricbloomwebzine
