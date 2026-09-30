@@ -1,0 +1,80 @@
+# Sources for 2026-09-30 News Episode 
+- [Roger Waters’ Son Harry to Lead Touring ‘Legacy – A Pink Floyd Show’ Celebrating Dad’s Music](http://www.rollingstone.com/music/music-news/roger-waters-harry-waters-legacy-pink-floyd-show-1235633699/) - Rolling Stone
+- [Roger Waters, Son Harry Waters Team Up for Legacy - A Pink Floyd Show](https://www.rollingstone.com/music/music-news/roger-waters-harry-waters-legacy-pink-floyd-show-1235633699) - Rollingstone
+- [PINK FLOYD Show 'Legacy', Created By ROGER WATERS And Featuring His Son HARRY WATERS, To Tour North America And Europe - BLABBERMOUTH.NET](https://blabbermouth.net/news/pink-floyd-show-legacy-created-by-roger-waters-and-featuring-his-son-harry-waters-to-tour-north-america-and-europe) - Blabbermouth
+- ['Legacy - A Pink Floyd Show': Roger Waters and son Harry's new live production to tour North America in 2027](https://www.nme.com/news/music/legacy-pink-floyd-roger-waters-son-harry-live-production-tour-north-america-3971418) - Nme
+- [Roger Waters and Harry Waters Announce Pink Floyd Legacy 2027 Tour](https://consequence.net/2026/09/roger-waters-harry-waters-singer-pink-floyd-legacy-show-2027-tour) - Consequence
+- [Harry Waters Set To Lead 'Roger Waters Presents Legacy - A Pink Floyd Show' Tour 2027](https://www.jambase.com/article/pink-floyd-legacy-tour-dates-2027-harry-waters) - Jambase
+- [i-dle’s Soyeon Returns To League Of Legends’ Virtual Group True Damage For 2026 Worlds Anthem](http://www.soompi.com/article/1874264wpp/i-dles-soyeon-returns-to-league-of-legends-virtual-group-true-damage-for-2026-worlds-anthem) - soompi
+- [i-dle's Soyeon Returns To League Of Legends' Virtual Group True Damage For 2026 Worlds Anthem \| Soompi](https://www.soompi.com/article/1874264wpp/i-dles-soyeon-returns-to-league-of-legends-virtual-group-true-damage-for-2026-worlds-anthem) - Soompi
+- [True Damage Returns for League of Legends Worlds 2026 Anthem Know My Name - Shane the Gamer](https://www.shanethegamer.com/news/true-damage-returns-for-league-of-legends-worlds-2026-anthem-know-my-name) - Shanethegamer
+- [League of Legends Virtual Hip-Hop Group True Damage Drops “Know My Name” for Worlds 2026 - Esports Kingdom](https://esportskingdom.gg/league-of-legends/league-of-legends-virtual-hip-hop-group-true-damage-drops-know-my-name-for-worlds-2026) - Esportskingdom
+- [True Damage returns with Know My Name for Worlds 2026](https://dotesports.com/league-of-legends/news/true-damage-worlds-2026-anthem) - Dotesports
+- [True Damage returns to perform League of Legends Worlds 2026 anthem - Inven Global](https://www.invenglobal.com/articles/26599/true-damage-returns-to-perform-league-of-legends-worlds-2026-anthem) - Invenglobal
+- [Drake Teases Multiple New Songs Set To Drop This Thursday](https://hiphopwired.com/3066651/drake-teases-multiple-new-songs-set-to-drop-this-thursday/) - Hip-Hop Wired
+- [Drake's 'FOMO' Comes to Streaming on October 1st \| Hypebeast](https://hypebeast.com/2026/9/drakes-fomo-coming-to-streaming-october-1st) - Hypebeast
+- [Drake Is Releasing Songs From FOMO on Streaming Services](https://www.xxlmag.com/drake-fomo-streaming-release-date) - Xxlmag
+- [Drake Confirms October 1 FOMO Streaming Release for Select Songs - 24Hip-Hop](https://24hip-hop.com/drake-fomo-streaming-release) - 24hip-hop
+- [Drake Teases Multiple New Songs Set To Drop This Thursday](https://hiphopwired.com/3066651/drake-teases-multiple-new-songs-set-to-drop-this-thursday) - Hiphopwired
+- [Drake Previews Numerous New Songs During "FOMO" Livestream](https://www.hotnewhiphop.com/1009887-drake-fomo-livestream-new-songs) - Hotnewhiphop
+- [‘Choosin’ Texas (Remix)’ by Drake & Don Toliver - Lyrics & Meaning \| Holler](https://holler.country/lyrics/choosin-texas-remix-by-drake-and-don-toliver-lyrics-and-meaning) - Holler
+- [Taylor Swift Wrote a Song About Cleveland. Here Are 10 Other Great Ones](http://www.rollingstone.com/music/music-lists/cleveland-songs-taylor-swift-1235633235/) - Rolling Stone
+- [Taylor Swift has a new song called ‘Cleveland!’ Here’s when you can hear it - cleveland.com](https://www.cleveland.com/entertainment/2026/09/taylor-swift-has-a-new-song-called-cleveland-heres-when-you-can-hear-it.html) - Cleveland
+- [Cleveland Songs: Taylor Swift, Huey Lewis, Randy Newman, and More](https://www.rollingstone.com/music/music-lists/cleveland-songs-taylor-swift-1235633235) - Rollingstone
+- [Taylor Swift’s ‘Cleveland!’ isn’t really about Travis Kelce town. These songs are](https://www.kansascity.com/news/local/article317381449.html) - Kansascity
+- [Brazil’s The Town Festival Backs Marilyn Manson Booking Despite Abuse Allegations: “He Hasn’t Been Convicted”](https://consequence.net/2026/09/brazil-the-town-backs-marilyn-manson-despite-abuse-allegations/) - Consequence.net
+- [Brazil's The Town Defends Marilyn Manson Booking Despite Abuse Allegations](https://consequence.net/2026/09/brazil-the-town-backs-marilyn-manson-despite-abuse-allegations) - Consequence
+- [Brazilian festival defends booking Marilyn Manson with ...](https://faroutmagazine.co.uk/brazilian-festival-defends-marilyn-manson-slipknot-support-hasnt-been-convicted) - Faroutmagazine
+- [Michael Shannon, Jason Narducy Surveying R.E.M.’s ‘Document’](https://www.spinmagazine.com/2026/09/michael-shannon-jason-narducy-rem-document/) - Spinmagazine.com
+- [Michael Shannon and Jason Narducy Announce 2027 Tour Celebrating R.E.M.’s Document](https://consequence.net/2026/09/michael-shannon-jason-narducy-2027-rem-document-tour/) - Consequence.net
+- [Michael Shannon & Jason Narducy Announce R.E.M. Tribute Tour](https://stereogum.com/2512985/michael-shannon-jason-narducy-announce-tour-covering-r-e-m-s-document-for-its-40th-anniversary/news) - Stereogum
+- [Michael Shannon & Jason Narducy Plot 2027 Tour Celebrating R.E.M.’s ‘Document’](https://www.jambase.com/article/michael-shannon-jason-narducy-rem-document-tour-dates-2027) - Jambase
+- [Michael Shannon and Jason Narducy will tour with R.E.M.’s "Document"](https://www.chicagotribune.com/2026/09/29/michael-shannon-rem-document-tour) - Chicagotribune
+- [Michael Shannon, Jason Narducy Surveying R.E.M.’s ‘Document’](https://www.yahoo.com/entertainment/music/articles/michael-shannon-jason-narducy-surveying-135000885.html) - Yahoo
+- [Michael Shannon and Jason Narducy Announce 2027 R.E.M. Document Tour](https://consequence.net/2026/09/michael-shannon-jason-narducy-2027-rem-document-tour) - Consequence
+- [Metallica's James Hetfield Debuts New Hairstyle For Sphere Shows](https://loudwire.com/metallica-james-hetfield-hairstyle-sphere/) - Loudwire
+- [How Metallica Fans Can Save Lives at Las Vegas Sphere Shows](https://loudwire.com/james-hetfield-donates-blood-metallica-las-vegas-sphere/) - Loudwire
+- [James Hetfield Debuts New Hairstyle Ahead of Metallica Las Vegas Residency](https://suaragarut.id/en/james-hetfield-debuts-new-hairstyle-las-vegas) - Suaragarut
+- [Metallica's James Hetfield Debuts New Hairstyle For Sphere Shows](https://loudwire.com/metallica-james-hetfield-hairstyle-sphere) - Loudwire
+- [James Hetfield Debuts Bold New Hairstyle Ahead of Metallica’s Las Vegas Residency](https://news.ssbcrack.com/james-hetfield-debuts-bold-new-hairstyle-ahead-of-metallicas-las-vegas-residency) - Ssbcrack
+- [Greta Van Fleet Talks New Album On ‘Lipps Service’](https://www.spinmagazine.com/2026/09/greta-van-fleet-lipps-service/) - Spinmagazine.com
+- [Greta Van Fleet Announce Intimate Nashville Residency](https://therockrevival.com/rock-news/greta-van-fleet-announce-intimate-nashville-residency) - Therockrevival
+- [Greta Van Fleet Releases 'Tear It Down' Single Ahead of October Album - 93.3 WMMR](https://wmmr.com/2026/09/22/greta-van-fleet-releases-tear-it-down-single-ahead-of-october-album) - Wmmr
+- [Greta Van Fleet Talk New Single 'Saw You Stand,' Explain 3-Year Break](https://www.billboard.com/video/greta-van-fleet-billboard-news-interview-saw-you-stand) - Billboard
+- [Greta Van Fleet sets three-show Nashville residency at The Basement East \| Big Country News](https://www.bigcountrynewsconnection.com/greta-van-fleet-sets-three-show-nashville-residency-at-the-basement-east) - Bigcountrynewsconnection
+- [Greta Van Fleet Announce Intimate Nashville Residency](https://www.udiscovermusic.com/news/greta-van-fleet-nashville-residency) - Udiscovermusic
+- [Forlorn Madonna, 68, breaks cover with toyboy Akeem Morris, 30, in first sighting since VMAs disaster led to family intervention](https://www.dailymail.com/tvshowbiz/article-16170079/madonna-breaks-cover-toyboy-akeem-morris-sighting-vmas-disaster-intervention-family.html) - Dailymail.com
+- [Bruce Willis, 71, appears in a rare photo with newlywed daughter Tallulah, 32, amid dementia battle](https://www.thisismoney.co.uk/tvshowbiz/article-16168623/Bruce-Willis-rare-photo-newlywed-daughter-Tallulah-dementia-battle.html) - Thisismoney
+- [ビリー・ジョエル『Turnstiles』50周年記念、未発表音源＆映像を多数収録した4CD＋Blu-rayボックスセット発売](https://amass.jp/192135/) - Amass.jp
+- [Billy Joel Announces Massive Turnstiles 50th Anniversary Box Set with 54 Unreleased Tracks](https://consequence.net/2026/09/billy-joel-turnstiles-50th-anniversary-box-set/) - Consequence.net
+- [Billy Joel Details Turnstiles 50th Anniversary Box Set with Unreleased Music](https://consequence.net/2026/09/billy-joel-turnstiles-50th-anniversary-box-set) - Consequence
+- [In a New York State of Mind: Billy Joel Archive Sets 'Turnstiles' Box for 50th Anniversary - The Second Disc](https://theseconddisc.com/2026/09/29/billy-joel-turnstiles-50th-anniversary-box) - Theseconddisc
+- [Billy Joel Announces 'Turnstiles' 50th Anniversary Edition](https://stereogum.com/2513027/billy-joel-announces-turnstiles-50th-anniversary-edition-with-54-previously-unreleased-tracks/music) - Stereogum
+- [BILLY JOEL Announces 50th Anniversary Edition Of Turnstiles Album, Available In December](https://bravewords.com/news/billy-joel-announces-50th-anniversary-edition-of-turnstiles-album-available-in-december) - Bravewords
+- [Even expands its D2C tools for musicians with Even Studio launch](https://musically.com/2026/09/29/even-expands-its-d2c-tools-for-musicians-with-even-studio-launch/) - Music Ally
+- [Direct-to-fan platform EVEN launches STUDIO, giving artists a standalone destination to sell music, tickets and merch - Music Business Worldwide](https://www.musicbusinessworldwide.com/direct-to-fan-platform-even-launches-studio-giving-artists-a-standalone-destination-to-sell-music-tickets-and-merch) - Musicbusinessworldwide
+- [Even expands its D2C tools for musicians with Even Studio launch - Music Ally](https://musically.com/2026/09/29/even-expands-its-d2c-tools-for-musicians-with-even-studio-launch) - Musically
+- [A Perfect Circle Announce 2027 North American Tour, Unleash Single “To Whom It May Concern”: Stream](https://consequence.net/2026/09/a-perfect-circle-2027-north-american-tour-single-to-whom-it-may-concern/) - Consequence.net
+- [A Perfect Circle Book 2027 North American Tour, Release New Song](https://loudwire.com/a-perfect-circle-2027-north-american-tour-to-whom-it-may-concern/) - Loudwire
+- [A Perfect Circle Tap Puscifer for 2027 North American Tour](https://exclaim.ca/music/article/a-perfect-circle-tap-puscifer-for-2027-north-american-tour) - Exclaim!
+- [A Perfect Circle Unveil Single and 2027 Tour Dates with Puscifer and T – Knotfest](https://knotfest.com/blogs/news/a-perfect-circle-unveil-single-and-2027-tour-dates-with-puscifer-and-the-cult) - Knotfest
+- [A Perfect Circle release new single “To Whom It May Concern” and announce North American tour for 2027 - Chaoszine](https://chaoszine.net/a-perfect-circle-release-new-single-to-whom-it-may-concern-and-announce-north-american-tour-for-2027) - Chaoszine
+- [A Perfect Circle Book 2027 North American Tour, Release New Song](https://loudwire.com/a-perfect-circle-2027-north-american-tour-to-whom-it-may-concern) - Loudwire
+- [A Perfect Circle Announce 2027 North American Tour With New Single "To Whom It May Concern"](https://numetalagenda.com/a-perfect-circle-release-to) - Numetalagenda
+- [A PERFECT CIRCLE Release New Single And Visualizer "To Whom It May Concern"; 2027 North American Tour Announced With Special Guests PUSCIFER And THE CULT](https://bravewords.com/news/a-perfect-circle-release-new-single-and-visualizer-to-whom-it-may-concern-2027-north-american-tour-announced-with-special-guests-puscifer-and-the-cult) - Bravewords
+- [A PERFECT CIRCLE Releases New Single 'To Whom It May Concern', Announces Spring 2027 North American Tour - BLABBERMOUTH.NET](https://blabbermouth.net/news/a-perfect-circle-releases-new-single-to-whom-it-may-concern-announces-spring-2027-north-american-tour) - Blabbermouth
+- [Ryley Walker Signs to AD 93 and Unveils First Song in Five Years](https://pitchfork.com/story/ryley-walker-signs-to-ad93-and-unveils-first-song-in-five-years/) - Pitchfork
+- [Ryley Walker signs to AD 93 and returns with new song, "Carrier"](https://www.thelineofbestfit.com/news/ryley-walker-signs-to-ad-93-and-returns-with-new-song-carrier) - Thelineofbestfit.com
+- [Ryley Walker Signs to AD 93 and Unveils First Song in Five Years \| Pitchfork](https://pitchfork.com/story/ryley-walker-signs-to-ad93-and-unveils-first-song-in-five-years) - Pitchfork
+- [Ryley Walker Signs To AD 93, Shares New Song "Carrier": Listen](https://stereogum.com/2512922/ryley-walker-carrier/music) - Stereogum
+- [Ryley Walker Signs to AD 93, Shares New Single - Our Culture](https://ourculturemag.com/2026/09/29/ryley-walker-signs-to-ad-93-shares-new-single) - Ourculturemag
+- [Ryley Walker Signs to AD 93 and Unveils First Song in Five Years](https://www.yahoo.com/entertainment/music/articles/ryley-walker-signs-ad-93-134232152.html) - Yahoo
+- [Can Outkast Make Ovrkast Change His Name? A Trademark Expert Explains](http://www.rollingstone.com/music/music-features/outkast-ovrkast-change-name-trademark-expert-1235633632/) - Rolling Stone
+- [Outkast vs. Ovrkast: Hip-hop duo sues rapper for 'nearly identical' name \| CBC News](https://www.cbc.ca/news/entertainment/outkast-ovrkast-lawsuit-9.7355464) - Cbc
+- [Outkast sue rapper Ovrkast for using "nearly identical" name](https://www.pastemagazine.com/music/outkast/outkast-sue-rapper-ovrkast-for-using-nearly-identical-name) - Pastemagazine
+- [Outkast sue Ovrkast after he reneges on commitment to change performer name to something less confusingly similar](https://completemusicupdate.com/outkast-sues-ovrkast-after-he-reneges-on-commitment-to-change-performer-name-to-something-less-confusingly-similar) - Completemusicupdate
+- [The Source \|Outkast Files Lawsuit Against Rapper "Ovrkast" Over "Nearly Identical" Stage Name](https://thesource.com/2026/09/24/outkast-files-lawsuit-against-rapper-ovrkast-over-nearly-identical-stage-name) - Thesource
+- [Outkast Sues Rapper Ovrkast Over 'Nearly Identical' Name in Trademark Battle](https://www.musictimes.com/articles/112870/20260923/outkast-sues-rapper-ovrkast-over-nearly-identical-name-trademark-battle.htm) - Musictimes
+- [Atlanta hip-hop duo Outkast sues rapper Ovrkast for breaking name-change agreement \| 11alive.com](https://www.11alive.com/article/entertainment/music/atlantas-outkast-sues-rapper-ovrkast-for-breaking-name-change-agreement/85-8a7e1ccb-d19f-4e6a-9cc4-bba7467c0955) - 11alive
+- [Outkast’s trademark company sues rapper Ovrkast, claiming he reneged on deal to drop ‘nearly identical’ name - Music Business Worldwide](https://www.musicbusinessworldwide.com/outkasts-trademark-company-sues-rapper-ovrkast-claiming-he-reneged-on-deal-to-drop-nearly-identical-name) - Musicbusinessworldwide
+- [OutKast Takes Ovrkast to Court After Rapper Misses Agreed Name-Change Deadline - DancehallMag](https://www.dancehallmag.com/2026/09/23/news/outkast-takes-ovrkast-to-court-after-rapper-misses-agreed-name-change-deadline.html) - Dancehallmag
