@@ -1,0 +1,69 @@
+# Sources for 2026-10-01 News Episode 
+- [Giles Martin’s ‘Rubber Soul’](https://www.spinmagazine.com/2026/09/giles-martins-rubber-soul/) - Spinmagazine.com
+- [The Beatles, Rubber Soul [Super Deluxe Edition]](https://sterlewine.substack.com/p/the-beatles-rubber-soul-super-deluxe) - Substack
+- [Giles Martin’s ‘Rubber Soul’](https://www.yahoo.com/entertainment/music/articles/giles-martin-rubber-soul-141229762.html) - Yahoo
+- [Giles Martin Is Remixing the Beatles as They Wanted to Be Heard │ Exclaim!](https://exclaim.ca/music/article/giles-martin-is-remixing-the-beatles-as-they-would-have-wanted-to-be-heard) - Exclaim
+- [Mogwai Go Punk on New Iggy Pop Collab ‘Underground’](http://www.rollingstone.com/music/music-news/iggy-pop-mogwai-underground-happy-tears-song-1235633862/) - Rolling Stone
+- [Mogwai Teases 30-Year Comp With Iggy Pop Team-Up](https://www.spinmagazine.com/2026/09/mogwai-iggy-pop-new-song/) - Spinmagazine.com
+- [FLOOD - Mogwai Team Up with Iggy Pop on “Underground” Ahead of Newly Announced Career-Spanning Compilation](https://floodmagazine.com/233882/listen-mogwai-iggy-pop-underground) - Floodmagazine
+- [Mogwai team up with Iggy Pop on pulverising new song 'Underground' from career-spanning compilation 'Happy Tears'](https://www.nme.com/news/music/mogwai-team-up-with-iggy-pop-new-song-underground-announce-compilation-happy-tears-3971639) - Nme
+- [Mogwai Share New Iggy Pop Collaboration “Underground”](https://consequence.net/2026/09/mogwai-happy-tears-underground-iggy-pop-underground) - Consequence
+- [Mogwai Announce ‘Happy Tears’ And Iggy Pop Collaboration](https://www.xsnoize.com/mogwai-happy-tears-underground-iggy-pop) - Xsnoize
+- [NEWS: Mogwai unveil new single featuring Iggy Pop ahead of career-spanning compilation and documentary for next year](https://www.godisinthetvzine.co.uk/2026/10/01/news-mogwai-unveil-new-single-featuring-iggy-pop-ahead-of-career-spanning-compilation-and-documentary-for-next-year) - Godisinthetvzine
+- [Mrs. Green Apple have 2.1m TikTok followers – and now an in-app hub](https://musically.com/2026/09/30/mrs-green-apple-have-2-1m-tiktok-followers-and-now-an-in-app-hub/) - Music Ally
+- [Mrs Green Apple Unveils Global Community Challenge - Music Ally](https://musically.com/2026/09/30/mrs-green-apple-have-2-1m-tiktok-followers-and-now-an-in-app-hub) - Musically
+- [Fontaines D.C. Release New Single “Tongue” from Upcoming Album Dopamine Chamber: Stream](https://consequence.net/2026/09/fontaines-dc-tongue-dopamine-chamber/) - Consequence.net
+- [FLOOD - Fontaines D.C. Share New “Dopamine Chamber” Single “Tongue”](https://floodmagazine.com/233913/watch-fontaines-d-c-tongue) - Floodmagazine
+- [Fontaines D.C. share new single "Tongue"](https://theneedledrop.com/news/fontaines-d-c-share-new-single-tongue) - Theneedledrop
+- [Hear a new song from Fontaines D.C., "Tongue" - Treble](https://www.treblezine.com/hear-a-new-song-from-fontaines-d-c-tongue) - Treblezine
+- [Fontaines D.C. Share New Single ‘Tongue’](https://www.xsnoize.com/fontaines-dc-tongue-dopamine-chamber) - Xsnoize
+- [Fontaines D.C. debuts new single "Tongue" - Northern Transmissions](https://northerntransmissions.com/fontaines-d-c-debuts-new-single-tongue) - Northerntransmissions
+- [Hear Fontaines D.C.’s new song “Tongue”](https://www.goldminemag.com/artist-news/hear-fontaines-d-c-s-new-song-tongue) - Goldminemag
+- [Kings of Leon Team with The Weather Channel for New Song “Cold Blue Dawn”: Stream](https://consequence.net/2026/09/kings-of-leon-cold-blue-dawn-weather-channel-video/) - Consequence.net
+- [Kings Of Leon share serene new single 'Cold Blue Dawn' with groundbreaking Weather Channel video](https://www.nme.com/news/music/kings-of-leon-share-serene-single-cold-blue-dawn-with-weather-channel-video-3971652) - Nme
+- [Kings of Leon Team With Weather Channel For 'Cold Blue Dawn' Lyric Video](https://www.billboard.com/music/rock/kings-of-leon-weather-channel-cold-blue-dawn-lyric-video-watch-1236350825) - Billboard
+- [Kings of Leon Team with The Weather Channel for New Song "Cold Blue Dawn"](https://consequence.net/2026/09/kings-of-leon-cold-blue-dawn-weather-channel-video) - Consequence
+- [Kings Of Leon Share New Single ‘Cold Blue Dawn’](https://www.xsnoize.com/kings-of-leon-cold-blue-dawn-o-my-beloved) - Xsnoize
+- [Kings of Leon Team Up With The Weather Channel For Groundbreaking ‘Cold Blue Dawn’ Lyric Video Using NASA Satellite Imagery](https://www.yahoo.com/entertainment/music/articles/kings-leon-team-weather-channel-160243943.html) - Yahoo
+- [What Solange’s A Seat at the Table meant to a generation, 10 years on](https://www.dazeddigital.com/music/article/71078/1/solange-a-seat-at-the-table-ten-year-anniversary-2026-album-black-womanhood?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=what-solange-s-a-seat-at-the-table-meant-to-a-generation-10-years-on) - Dazed
+- [How Solange’s A Seat at the Table shaped a generation](https://www.dazeddigital.com/music/article/71078/1/solange-a-seat-at-the-table-ten-year-anniversary-2026-album-black-womanhood?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=how-solange-s-a-seat-at-the-table-shaped-a-generation) - Dazed
+- [saobserver - Solange’s ‘A Seat At The Table’ Turns 10, Remaining a Cultural Touchstone](https://saobserver.com/solanges-a-seat-at-the-table-turns-10-remaining-a-cultural-touchstone) - Saobserver
+- [How Solange’s A Seat at the Table shaped a generation \| Dazed](https://www.dazeddigital.com/music/article/71078/1/solange-a-seat-at-the-table-ten-year-anniversary-2026-album-black-womanhood) - Dazeddigital
+- [Rod Stewart, 81, needed oxygen on stage. Lionel Richie, 77, sang Dancing On The Ceiling sitting down - and Barry Manilow, 83, performs with part of his lung removed... It's rock around the crocks!](https://www.dailymail.com/lifestyle/article-16173425/Rod-Stewart-81-needed-oxygen-stage-Lionel-Richie-77-sang-Dancing-Ceiling-sitting-Barry-Manilow-83-performs-lung-removed-rock-crocks.html) - Dailymail.com
+- [Rod Stewart disappoints fans with major announcement: 'time to say farewell'](https://www.hellomagazine.com/us/925909/rod-stewart-disappoints-fans-with-major-announcement-time-to-say-farewell) - Hellomagazine
+- [Rod Stewart Announces 2027 Tour Dates](https://therockrevival.com/rock-news/rod-stewart-announces-2027-tour-dates) - Therockrevival
+- [Gavin Newsom whines that Joe Rogan is 'too chicken' to have him on show while begging for other podcast invitations \| Daily Mail Online](https://www.dailymail.com/media/article-16173663/gavin-newsom-joe-rogan-podcast-artist-scared.html) - Dailymail
+- [Watch Tom Morello Perform ‘Soldier in the Army of Love’ on ‘Kimmel’](http://www.rollingstone.com/music/music-news/tom-morello-soldier-in-the-army-of-love-performance-kimmel-1235634389/) - Rolling Stone
+- [Tom Morello and Son Roman Rock “Soldier in the Army of Love” on Jimmy Kimmel Live: Watch](https://consequence.net/2026/09/tom-morello-roman-soldier-in-the-army-of-love-kimmel/) - Consequence.net
+- [Watch: TOM MORELLO Performs 'Soldier In The Army Of Love' On 'Jimmy Kimmel Live!' - BLABBERMOUTH.NET](https://blabbermouth.net/news/watch-tom-morello-performs-soldier-in-the-army-of-love-on-jimmy-kimmel-live) - Blabbermouth
+- [Watch Tom Morello Perform 'Soldier in the Army of Love' on 'Kimmel'](https://www.rollingstone.com/music/music-news/tom-morello-soldier-in-the-army-of-love-performance-kimmel-1235634389) - Rollingstone
+- [Tom Morello Performs SOLDIER IN THE ARMY OF LOVE on JIMMY KIMMEL LIVE](https://www.broadwayworld.com/bwwtv/article/Tom-Morello-Performs-SOLDIER-IN-THE-ARMY-OF-LOVE-on-JIMMY-KIMMEL-LIVE-20260930) - Broadwayworld
+- [Oasis brothers take legal action over ‘unfiltered’ backstage recordings set for £1.6m auction](https://www.thepinknews.com/2026/09/30/oasis-tapes-auction-2026/) - Thepinknews.com
+- [Oasis Sues Former Sound Engineer Over 100 Hours of Unreleased Recordings \| Law Commentary](https://www.lawcommentary.com/articles/oasis-sues-former-sound-engineer-unreleased-recordings) - Lawcommentary
+- [Oasis stars Noel, Liam Gallagher take legal action against former sound engineer](https://www.thenews.com.pk/latest/1418165-oasis-stars-noel-liam-gallagher-take-legal-action-against-former-sound-engineer) - Thenews
+- [Oasis take legal action to stop sale of unheard recordings valued at more than €1.17m](https://www.irishexaminer.com/world/arid-41918131.html) - Irishexaminer
+- [Oasis file lawsuit to stop £1,600,000 auction of recordings](https://faroutmagazine.co.uk/oasis-legal-action-engineer-selling-recordings-1600000-auction) - Faroutmagazine
+- [Oasis brothers take legal action over ‘unfiltered’ backstage recordings set for £1.6m auction \| PinkNews](https://www.thepinknews.com/2026/09/30/oasis-tapes-auction-2026) - Thepinknews
+- [Bon Iver Goes Back To ’22, A Million’](https://www.spinmagazine.com/2026/09/bon-iver-22-a-million-reissue/) - Spinmagazine.com
+- [Bon Iver Announce 10th Anniversary Edition of 22, A Million](https://consequence.net/2026/09/bon-iver-22-a-million-10th-anniversary/) - Consequence.net
+- [Bon Iver to Release 10th-Anniversary Edition of Album with Elaborate Artwork Elucidated](https://www.artnews.com/art-news/news/bon-iver-22-million-10th-anniversary-edition-1234800129/) - ARTnews
+- [Bon Iver announces '22, A Million' 10th anniversary edition with new artwork](https://theneedledrop.com/news/bon-iver-announces-22-a-million-10th-anniversary-edition-with-new-artwork) - Theneedledrop
+- [Bon Iver Goes Back To ’22, A Million’](https://www.yahoo.com/entertainment/music/articles/bon-iver-goes-back-22-142600318.html) - Yahoo
+- [Bon Iver Revisits ’22, A Million’ with 10th Anniversary Edition](https://www.famemagazine.co.uk/bon-iver-revisits-22-a-million-with-10th-anniversary-edition) - Famemagazine
+- [Bon Iver Announce 22, A Million (10th Anniversary Edition)](https://consequence.net/2026/09/bon-iver-22-a-million-10th-anniversary) - Consequence
+- [Angèle joins forces with Caroline Polachek and SebastiAn on new track, “Love Triangle”](https://www.thelineofbestfit.com/news/angele-joins-forces-with-caroline-polachek-and-sebastian-on-new-track-love-triangle) - Thelineofbestfit.com
+- [Angèle shares new single “Love Triangle” from ‘INSTINCT’](https://theneedledrop.com/news/angele-shares-new-single-love-triangle-from-instinct) - Theneedledrop
+- [Angèle Releases New Song "Love Triangle" With Caroline Polachek and SebastiAn - mxdwn Music](https://music.mxdwn.com/2026/09/29/news/angele-releases-new-song-love-triangle-with-caroline-polachek-and-sebastian) - Mxdwn
+- [Angèle Joins Caroline Polachek and SebastiAn for ‘Love Triangle’](https://www.famemagazine.co.uk/angele-joins-caroline-polachek-and-sebastian-for-love-triangle) - Famemagazine
+- [Every Superchunk Album, Ranked](https://www.spinmagazine.com/2026/09/every-superchunk-album-ranked/) - Spinmagazine.com
+- [Every Superchunk Album, Ranked - SPIN](https://www.spinmagazine.com/2026/09/every-superchunk-album-ranked) - Spinmagazine
+- [Every Superchunk Album, Ranked](https://www.yahoo.com/entertainment/music/articles/every-superchunk-album-ranked-120000180.html) - Yahoo
+- [The Format Is Back After Two Decades Away — and This Time, They’re Writing Protest Anthems](http://www.rollingstone.com/music/music-features/the-format-ohana-festival-new-album-boycott-heaven-1235633125/) - Rolling Stone
+- [The Format Are Back After Two Decades — and Writing Protest Anthems](https://www.rollingstone.com/music/music-features/the-format-ohana-festival-new-album-boycott-heaven-1235633125) - Rollingstone
+- [The Format Is Back After Two Decades Away](https://au.rollingstone.com/music/music-features/the-format-ohana-festival-new-album-boycott-heaven-101723) - Rollingstone
+- [The Format Return to Speak Their Truth on Latest Single](https://www.yahoo.com/entertainment/music/articles/format-return-speak-truth-latest-134954106.html) - Yahoo
+- [The Format Benefits Local Communities On Tour](https://www.musicinminnesota.com/theformat-firstavenue) - Musicinminnesota
+- [R.E.M. Appends Live LP To ‘Reveal’ 25th Bday Edition](https://www.spinmagazine.com/2026/09/rem-reveal-expanded-edition/) - Spinmagazine.com
+- [Rock Cellar Magazine - R.E.M. ‘Reveal (25th Anniversary Edition)’ + ‘Black Sessions Revealed’ Coming Nov. 20 (Preview/Pre-Order)](https://rockcellarmagazine.com/rem-reveal-25th-anniversary-reissue-listen-black-sessions-revealed) - Rockcellarmagazine
+- [R.E.M. Announce ‘Reveal’ 25th Anniversary Edition](https://www.xsnoize.com/rem-reveal-25th-anniversary-edition) - Xsnoize
+- [R.E.M. announce ‘Reveal’ 25th anniversary reissue – featuring previously unreleased live session](https://www.nme.com/news/music/r-e-m-reveal-25th-anniversary-reissue-previously-unreleased-live-session-3971667) - Nme
