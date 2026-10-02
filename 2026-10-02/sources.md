@@ -1,0 +1,60 @@
+# Sources for 2026-10-02 News Episode 
+- [Oh No, Alexander Skarsgård Forgot His Shirt in the Video for The Rolling Stones’ “Mr. Charm”: Watch](https://consequence.net/2026/10/rolling-stones-alexander-skarsgard-mr-charm-music-video/) - Consequence.net
+- [The Rolling Stones Share Star-Studded New Music Video For “Mr Charm” Featuring Alexander Skarsgard - mxdwn Music](https://music.mxdwn.com/2026/10/01/news/the-rolling-stones-share-star-studded-new-music-video-for-mr-charm-featuring-alexander-skarsgard) - Mxdwn
+- [THE ROLLING STONES Unveil Music Video For New Single "Mr Charm" Starring Actor ALEXANDER SKARSGÅRD](https://bravewords.com/news/the-rolling-stones-unveil-music-video-for-new-single-mr-charm-starring-actor-alexander-skarsgard) - Bravewords
+- [The Rolling Stones release video for new single Mr Charm](https://www.hennemusic.com/2026/10/the-rolling-stones-release-video-for.html) - Hennemusic
+- [Alexander Skarsgård Stars in The Rolling Stones "Mr. Charm" Music Video](https://consequence.net/2026/10/rolling-stones-alexander-skarsgard-mr-charm-music-video) - Consequence
+- [Conrad ‘Cronos’ Lant, Singer and Bassist of Black Metal Pioneers Venom, Dead at 63](http://www.rollingstone.com/music/music-news/conrad-cronos-lant-venom-singer-bassist-dead-obit-1235635420/) - Rolling Stone
+- [Conrad “Cronos” Lant, Legendary Venom Frontman, Dead at 63](https://consequence.net/2026/10/conrad-cronos-lant-venom-dead/) - Consequence.net
+- [Venom Frontman Conrand "Cronos" Lant Passes Away Aged 63](http://www.metalunderground.com/news/details.cfm?newsid=162203) - Metalunderground.com
+- [Venom Legend Conrad 'Cronos' Lant Has Died at 63](https://loudwire.com/venom-cronos-dead-63/) - Loudwire
+- [Venom Legend Conrad 'Cronos' Lant Has Died at 63](https://loudwire.com/venom-cronos-dead-63) - Loudwire
+- [Venom Frontman Conrad “Cronos” Lant Dies at 63](https://therockrevival.com/rock-news/venom-frontman-conrad-cronos-lant-dies-at-63) - Therockrevival
+- [Conrad ‘Cronos’ Lant, frontman of UK heavy metal band Venom, dies aged 63](https://www.theguardian.com/music/2026/oct/01/conrad-cronos-lant-heavy-metal-venom-dies) - Theguardian
+- [Conrad 'Cronos' Lant dead – Venom frontman dies at 63](https://www.shelbystar.com/story/entertainment/music/2026/10/01/venom-conrad-cronos-lant-death/92041627007) - Shelbystar
+- [Conrad ‘Cronos’ Lant, Founder of Venom and Godfather of Black Metal, Dead at 63](https://www.vice.com/en/article/conrad-cronos-lant-founder-of-venom-and-godfather-of-black-metal-dead-at-63) - Vice
+- [Lil Nas X Returns with New Song “World’s Greatest”](https://pitchfork.com/story/lil-nas-x-returns-with-new-song-worlds-greatest/) - Pitchfork
+- [Lil Nas X returns with uplifting single "World's Greatest"](https://www.pastemagazine.com/music/lil-nas-x/lil-nas-x-returns-with-single-worlds-greatest) - Pastemagazine
+- [Lil Nas X Celebrates Life, Mourns Mother on New Song 'World's Greatest!'](https://www.rollingstone.com/music/music-news/lil-nas-x-worlds-greatest-video-1235634760) - Rollingstone
+- [Lil Nas X Returns With New Song “World’s Greatest” \| Pitchfork](https://pitchfork.com/story/lil-nas-x-returns-with-new-song-worlds-greatest) - Pitchfork
+- [Lil Nas X Shares New Single "World's Greatest"](https://stereogum.com/2513256/lil-nas-x-returns-to-music-with-worlds-greatest/music) - Stereogum
+- [Bruno Mars Reunites With Karol G for “Dance With Me” Music Video: Watch](https://consequence.net/2026/10/bruno-mars-karol-g-dance-with-me-video/) - Consequence.net
+- [Bruno Mars Drops “Dance With Me” Video With Karol G: Watch](https://inmusicblog.com/news/bruno-mars-dance-with-me-karol-g-video) - Inmusicblog
+- [Bruno Mars Releases Music Video for DANCE WITH ME Featuring Karol G \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Bruno-Mars-Releases-Music-Video-for-DANCE-WITH-ME-Featuring-Karol-G-20261001) - Broadwayworld
+- [Bruno Mars releases Dance With Me video with Karol G \| UA.NEWS](https://ua.news/en/culture/spivak-bruno-mars-vipustiv-klip-dance-with-me-z-karol-g-rolling-stone) - Ua
+- [Watch: Bruno Mars and Karol G release music video for Dance With Me \| Contactmusic.com](https://www.contactmusic.com/story/467/3618960/watch-bruno-mars-and-karol-g-release-music-video-for-dance-with-me) - Contactmusic
+- [Panteón Rococó: Tiny Desk Concert](https://www.npr.org/2026/10/01/g-s1-132180/panteon-rococo-tiny-desk-concert) - NPR
+- [Panteón Rococó llega al Tiny Desk Concert con dedicación a los desaparecidos en México - El Sol de México](https://oem.com.mx/elsoldemexico/gossip/panteon-rococo-llega-al-tiny-desk-concert-con-dedicacion-a-los-desaparecidos-en-mexico-32376565) - Oem
+- [Yung Miami Announces Debut Solo Album Watch Dis](https://pitchfork.com/story/yung-miami-announces-debut-solo-album-watch-dis-features/) - Pitchfork
+- [Yung Miami Drops “F U” and “2008” Singles Ahead of Debut Album](https://hip-hopvibe.com/audio/yung-miami-f-u-2008) - Hip-hopvibe
+- [Yung Miami Announces Debut Solo Album Watch Dis \| Pitchfork](https://pitchfork.com/story/yung-miami-announces-debut-solo-album-watch-dis-features) - Pitchfork
+- [Yung Miami Reveals Release Date And Features For New Album "Watch Dis"](https://www.hotnewhiphop.com/1011619-yung-miami-watch-dis-release-date) - Hotnewhiphop
+- [Sheryl Crow says she's found 'great liberation' in not chasing the next hit](https://www.npr.org/2026/10/01/nx-s1-5984965/sheryl-crow-pick-you-up) - NPR
+- [Sheryl Crow says she's found 'great liberation' in not chasing the next hit \| WXXI News](https://www.wxxinews.org/npr-news/2026-10-01/sheryl-crow-says-shes-found-great-liberation-in-not-chasing-the-next-hit) - Wxxinews
+- [Sheryl Crow says she's found 'great liberation' in not chasing the next hit \| Georgia Public Broadcasting](https://www.gpb.org/news/2026/10/01/sheryl-crow-says-shes-found-great-liberation-in-not-chasing-the-next-hit) - Gpb
+- [Nina Simone, Langston Hughes and their forgotten creative collaboration](https://theconversation.com/nina-simone-langston-hughes-and-their-forgotten-creative-collaboration-290878) - The Conversation Africa
+- [New book explores the singular ties and shared artistry of Nina Simone and Langston Hughes](https://mountainx.com/news/history/new-book-explores-the-singular-ties-and-shared-artistry-of-nina-simone-and-langston-hughes) - Mountainx
+- [The Day the Priestess and the Poet Met in Asheville](https://indyweek.com/news/culture/nina-simone-langston-hughes-book-exerpt) - Indyweek
+- [Apartment where Kurt Cobain wrote Nirvana's greatest hits is now an Airbnb you can rent for $250 a night - guest says 'I felt like Kurt was still there'](https://www.dailymail.com/yourmoney/article-16173775/kurt-cobain-nirvana-apartment-airbnb-olympia-washington.html) - Dailymail.com
+- [Kurt Cobain's Nirvana studio hits Airbnb in Olympia \| FOX 13 Seattle](https://www.fox13seattle.com/news/kurt-cobain-airbnb) - Fox13seattle
+- [Kurt Cobain’s Olympia apartment, where he lived from 1989 to 1991 and wrote some of Nirvana’s best-known music, is now an Airbnb; fans can stay inside a preserved piece of rock history for $250 to $300 a night - The Times of India](https://timesofindia.indiatimes.com/world/us/kurt-cobains-olympia-apartment-where-he-lived-from-1989-to-1991-and-wrote-some-of-nirvanas-best-known-music-is-now-an-airbnb-fans-can-stay-inside-a-preserved-piece-of-rock-history-for-250-to-300-a-night/articleshow/134592498.cms) - Indiatimes
+- [Kurt Cobain’s former apartment where Nirvana hits were written is now an Airbnb for $250 a night - The Mirror US](https://www.themirror.com/entertainment/music/kurt-cobain-nirvana-apartment-airbnb-2049233) - Themirror
+- [Kurt Cobain's former Olympia apartment is on Airbnb](https://rock95.com/kurt-cobain-olympia-apartment) - Rock95
+- [The Warning Say Rock Has Changed for Women But It’s Still a “Constant Battle” to Prove They Belong](https://consequence.net/2026/10/the-warning-rock-changed-for-women-constant-battle/) - Consequence.net
+- [The Warning Say Women Still Have to Prove They Belong in Rock](https://consequence.net/2026/10/the-warning-rock-changed-for-women-constant-battle) - Consequence
+- [Talking Heads Announce Super Deluxe Edition of Fear of Music, Drop New Live Video of “Life During Wartime:” Watch](https://consequence.net/2026/10/talking-heads-announce-super-deluxe-edition-of-fear-of-music-drop-new-live-video-of-life-during-wartime-watch/) - Consequence.net
+- [Talking Heads reveal extensive reissue of 1979’s Fear Of Music](https://www.classicpopmag.com/news/talking-heads-reveal-extensive-reissue-of-1979s-fear-of-music) - Classicpopmag
+- [Talking Heads / Fear Of Music reissue – SuperDeluxeEdition](https://superdeluxeedition.com/news/talking-heads-remain-in-light-reissue) - Superdeluxeedition
+- [Talking Heads - Fear Of Music (Super Deluxe Edition) \| Shore Fire Media](https://shorefire.com/releases/entry/talking-heads-fear-of-music-super-deluxe-edition) - Shorefire
+- [Talking Heads Announce Sprawling 'Fear of Music' Reissue](https://ultimateclassicrock.com/talking-heads-fear-of-music-2026) - Ultimateclassicrock
+- [Talking Heads Announce Super Deluxe Edition of Fear of Music](https://consequence.net/2026/10/talking-heads-announce-super-deluxe-edition-of-fear-of-music-drop-new-live-video-of-life-during-wartime-watch) - Consequence
+- [Charles Kelley diagnosed with rare blood cancer: Lady A singer plans to perform during treatment; What is Multiple Myeloma?](https://economictimes.indiatimes.com/magazines/panache/charles-kelley-diagnosed-with-rare-blood-cancer-lady-a-singer-plans-to-perform-during-treatment-what-is-multiple-myeloma/articleshow/134614477.cms) - The Times of India
+- [Lady A Singer Charles Kelley Announces Cancer Diagnosis: ‘I Feel Really Hopeful’](https://www.yahoo.com/entertainment/music/articles/lady-singer-charles-kelley-announces-170845664.html) - Yahoo
+- [Lady A’s Charles Kelley Announces Blood Cancer Diagnosis](https://www.imdb.com/news/ni66038768?ref_=nwc_art_perm) - Imdb
+- [Charles Kelley reveals multiple myeloma diagnosis after unexplained rib fractures; Lady A singer plans to keep performing: 'I’m hopeful. I really am' \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/music/news/charles-kelley-reveals-multiple-myeloma-diagnosis-after-unexplained-rib-fractures-lady-a-singer-plans-to-keep-performing-im-hopeful-i-really-am/articleshow/134633722.cms) - Indiatimes
+- [Lady A's Charles Kelley Reveals Multiple Myeloma Diagnosis.](https://www.countryinsider.com/news/lady-as-charles-kelley-reveals-multiple-myeloma-diagnosis/article_c1dac949-f0a9-4d21-99a7-0e3519766a40.html) - Countryinsider
+- [Lady A's Charles Kelley reveals cancer diagnosis alongside wife after unexplained broken ribs](https://www.hellomagazine.com/us/926161/lady-a-charles-kelley-reveals-cancer-diagnosis-alongside-wife-after-unexplained-broken-ribs) - Hellomagazine
+- [Dave Holland 80: Experte für alles](https://www.faz.net/aktuell/feuilleton/musik-und-buehne/dem-jazzbassisten-dave-holland-zum-80-geburtstag-accg-201276018.html) - Faz.net
+- [Dave Holland – Box Set ‘Freedom Call’ - UK Jazz News](https://ukjazznews.com/dave-holland-box-set-freedom-call) - Ukjazznews
+- [Dave Holland – ‘Freedom Call’ - UK Jazz News](https://ukjazznews.com/dave-holland-freedom-call) - Ukjazznews
+- [Post Malone leaves Aussie fans furious as he attends Paris Fashion Week after postponing Australian tour](https://www.dailymail.com/tvshowbiz/article-16177189/Post-Malone-leaves-Aussie-fans-furious.html) - Dailymail.com
