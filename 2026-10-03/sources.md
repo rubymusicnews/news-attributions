@@ -1,0 +1,73 @@
+# Sources for 2026-10-03 News Episode 
+- [K-pop giants Stray Kids join BTS in boycotting the Grammys](https://www.bbc.co.uk/news/articles/c5398kkx27ewo) - BBC News
+- [Stray Kids Join BTS in Sitting Out Grammy Awards](https://variety.com/2026/music/news/stray-kids-bts-not-submitting-grammy-awards-1236897475/) - Variety
+- [Populaire K-pop-band Stray Kids steunt BTS in boycot van Grammy’s, uit protest tegen introductie van aparte prijs voor ‘Aziatische muziek’](https://www.nrc.nl/nieuws/2026/10/02/populaire-k-pop-band-stray-kids-vergezelt-bts-in-boycot-van-grammys-uit-protest-tegen-introductie-van-aparte-prijs-voor-aziatische-muziek-a4938111) - Www.nrc.nl
+- [Stray Kids rejects the Grammys too](https://www.laineygossip.com/the-importance-of-stray-kids-rejecting-the-grammys-alongside-bts/) - LaineyGossip
+- [The Korea Herald](https://www.koreaherald.com/Kpop) - Koreaherald
+- [Stray Kids Join BTS in 2027 Grammys Boycott](https://www.billboard.com/music/awards/stray-kids-join-bts-2027-grammys-boycott-1236353243) - Billboard
+- [Stray Kids Won't Be Submitting For Consideration At The 2027 Grammy Awards, Why? - JazmineMedia](https://jazminemedia.com/news/stray-kids-not-submitting-2027-grammys) - Jazminemedia
+- [Grammys moves ahead with Asian Pop award after BTS opts out - Aju Press AMP](https://m.ajupress.com/amp/20261002095907374) - Ajupress
+- [Why K-pop titans Stray Kids and BTS are boycotting the 2027 Grammys?](https://www.clarin.com/us-news/why-k-pop-titans-stray-kids-and-bts-are-boycotting-the-2027-grammys_0_gzkzBOfGvI.html) - Clarin
+- [Grammys to keep Asian Pop category for 2027 despite BTS boycott](https://www.wionews.com/entertainment/grammys-to-keep-asian-pop-category-for-2027-despite-bts-boycott-1790935392680) - Wionews
+- [Ringo Starr Plays Forest Hills Stadium for First Time Since Beatlemania in 1964](http://www.rollingstone.com/music/music-live-reviews/ringo-starr-forest-hills-stadium-first-time-1964-1235635951/) - Rolling Stone
+- [Act Natural, Ringo Is Back in Queens](http://www.vulture.com/article/act-natural-ringo-is-back-in-queens.html) - Vulture
+- [Ringo at Forest Hills Stadium October 2026](https://www.facebook.com/Beatlefanmagazine/posts/october-1-2026-ringo-returned-to-forest-hills-stadium-tonight-62-years-after-app/1678594000760458) - Facebook
+- [Ringo Starr returns to Forest Hills Stadium on October 1st ...](https://www.facebook.com/ForestHillsStadium/posts/ringo-starr-returns-to-forest-hills-stadium-on-october-1st-for-the-first-time-si/1626843179485516) - Facebook
+- [Ringo Starr returns to Forest Hills Stadium for the first time ...](https://www.instagram.com/p/Dd9VUMtDJDS) - Instagram
+- [Ringo Starr Returns to Forest Hills Stadium for First Time ...](https://navirexoluma.com/article/ringo-starr-returns-to-forest-hills-stadium-for-first-time-since-the-beatles-in-1964) - Navirexoluma
+- [Drake and Don Toliver’s “Choosin’ Texas” Remix Is Officially Here](https://pitchfork.com/story/drake-and-don-tolivers-choosin-texas-remix-is-officially-here/) - Pitchfork
+- [Washed - YBeJeff](https://x.com/YBeJeff/all) - X
+- [Drake Debuts "Choosin' Texas" Remix With Don Toliver](https://www.hitsdailydouble.com/news/releases/drake-ella-langley-don-toliver-2026-09-16?year=2026) - Hitsdailydouble
+- [Joe Budden Gives His Flowers To Drake's "FOMO": "The Music Is There"](https://www.hotnewhiphop.com/1010354-joe-budden-drake-fomo) - Hotnewhiphop
+- [BLACKPINKのLISA初のドキュメンタリー映画『ALWAYS LALISA』10/12(月)、14(水)、17(土)の3日間限定で劇場公開に。劇場鑑賞者に入場プレゼントの実施が決定！](https://prtimes.jp/main/html/rd/p/000000364.000101737.html) - Prtimes.jp
+- [Instagram](https://www.instagram.com/p/Ddti-3EByjF) - Instagram
+- [Discursive Verses: when pulling rank goes wrong](https://www.npr.org/2026/10/02/nx-s1-5987979/the-week-in-hip-hop-remy-ma-outkast-billboard) - NPR
+- [Remy Ma Blasts Ex Papoose On Diss Track "Why I Get Married?"](https://madamenoire.com/1692043/remy-ma-keke-wyatt-why-i-get-married-papoose-diss-track) - Madamenoire
+- [Papoose Takes Aim at Remy Ma on Scathing New Diss Track: 'You're a Demon'](https://www.yahoo.com/entertainment/music/articles/papoose-takes-aim-remy-ma-164944848.html) - Yahoo
+- [‘Feeling like I’m Tyler Perry’: Remy Ma ups the ante with Papoose diss ‘Why I Get Married’ featuring Keke Wyatt](https://www.yahoo.com/entertainment/music/articles/feeling-m-tyler-perry-remy-225534566.html) - Yahoo
+- [Outkast Lawsuit: Duo Sues Rapper Ovrkast In Trademark Case Over Name](https://www.billboard.com/pro/outkast-sues-rapper-ovrkast-trademark-lawsuit-similar-name) - Billboard
+- [Slash Ft. Myles Kennedy and The Conspirators Announce New Album and Tour, Unleash “Flying Blind”: Stream](https://consequence.net/2026/10/slash-ft-myles-kennedy-new-album-2027-tour/) - Consequence.net
+- [Slash announces 2027 world tour and album Flying Blind](https://www.facebook.com/AXSTV/posts/slash-announces-2027-world-tour-with-myles-kennedy-read-the-full-story-%EF%B8%8F/1517247440436611) - Facebook
+- [Slash featuring Myles Kennedy & The Conspirators announce new album 'Flying Blind' arriving Feb 26, 2027 - SlashOnline](https://www.home.slashonline.com/news/slash-featuring-myles-kennedy-the-conspirators-announce-new-album-flying-blind-arriving-feb-26-2027) - Slashonline
+- [Slash Announces Tour, Album With Myles Kennedy + the Conspirators](https://loudwire.com/slash-new-album-myles-kennedy-conspirators-2027-tour-dates) - Loudwire
+- [Slash Ft. Myles Kennedy and The Conspirators Announce New Album and Tour](https://consequence.net/2026/10/slash-ft-myles-kennedy-new-album-2027-tour) - Consequence
+- [Slash featuring Myles Kennedy & The Conspirators release ...](https://entertainment-focus.com/2026/10/02/slash-featuring-myles-kennedy-the-conspirators-release-new-single-flying-blind) - Entertainment-focus
+- [Slash to Kick Off 2027 Tour in Latin America, Where His History Runs Deep](https://consequence.net/2026/10/slash-latin-america-starting-point-2027-tour) - Consequence
+- [As Matchbox Twenty Mark 30 Years Together, a Look Back at Their Near-Breakup](http://www.rollingstone.com/music/music-news/matchbox-twenty-30-years-yourself-or-someone-like-you-1235635429/) - Rolling Stone
+- [Matchbox Twenty on Their Near-Breakup and 30th Anniversary](https://www.rollingstone.com/music/music-news/matchbox-twenty-30-years-yourself-or-someone-like-you-1235635429) - Rollingstone
+- [WTYE / WTAY](https://www.wtyefm.com) - Wtyefm
+- [Taylor Swift reveals why she chose a chilling $47million Beverly Hills brutalist mansion for her eerie new Patient Zero video](https://www.dailymail.com/real-estate/article-16175003/taylor-swift-beverly-hills-mansion-patient-zero.html) - Dailymail.com
+- [Taylor Swift chose an unusual home for her new video. ...](https://www.facebook.com/thestatesman1875/posts/taylor-swift-chose-an-unusual-home-for-her-new-video-she-shot-patient-zero-at-an/1551906510309436) - Facebook
+- [Taylor Swift's 'Patient Zero' Music Video Filmed at This $47 Million Home](https://www.realtor.com/news/celebrity-real-estate/taylor-swift-patient-zero-music-video-beverly-hills-mansion) - Realtor
+- [The Surprising History of the Brutalist Mansion in Taylor Swift’s 'Patient Zero' Music Video](https://www.esquire.com/uk/style/fashion/a73922272/taylor-swifts-patient-zero-music-video-house) - Esquire
+- [18,300 sq ft fortress, infinity pool, glass walls: Inside the $47 million Beverly Hills mansion where Taylor Swift shot Patient Zero - The Economic Times](https://m.economictimes.com/magazines/panache/18300-sq-ft-fortress-infinity-pool-glass-walls-inside-the-47-million-beverly-hills-mansion-where-taylor-swift-shot-patient-zero/articleshow/134591047.cms) - Economictimes
+- [With a voice as vast as the ocean, Beth Taylor has arrived](https://www.npr.org/2026/10/02/nx-s1-5936425/beth-taylor-album-review) - NPR
+- [The Deeps Have Music](https://www.nativedsd.com/product/ckd794-the-deeps-have-music) - Nativedsd
+- [Beth Taylor's 'The Deeps Have Music' trailer video](https://www.facebook.com/bethmtaylormezzo/posts/check-our-our-trailer-video-%EF%B8%8F-the-deeps-have-music-coming-soon/1689136729883221) - Facebook
+- [Mezzo-Soprano, a finalist of the 2023 BBC Cardiff Singer ...](https://www.facebook.com/linnrecordsmusic/videos/the-deeps-have-music-is-the-debut-recital-album-by-mezzo-soprano-beth-taylor-mez/2171645920450623) - Facebook
+- [Buddy Guy celebrated at Radio City Music Hall with a sold-out 'Buddy's Got the Blues' show](https://abcnews.com/Entertainment/wireStory/buddy-guy-celebrated-radio-city-music-hall-sold-136942292) - Abcnews.com
+- [Buddy Guy \| Jazz Concerts \| Radio City Music Hall](https://www.msg.com/events-tickets/buddy-guy-eric-clapton-john-mayer-susan-tedeschi-derek-trucks-jon-batiste-aloe-blacc-joe-bonamassa-gary-clark-jr-shemekia-copeland-robert-cray-samantha-fish-eric-gales-billy-f-gibbons-ivan-neville-robert-randolph-bobby-rush-isaiah-sharkey-kenny-wayne-shepherd-jimmie-vaughan-ally-venable-willie-weeks-kim-wilson-radio-city-music-hall-october-2026/3C0064D2903D1226) - Msg
+- [90-year-old Buddy Guy brings the house down at Radio City Music Hall \| AP News](https://apnews.com/article/buddy-guy-blues-tribute-concert-radio-city-c825b40b915fcfcf7c4e18a654cd6528) - Apnews
+- [Buddy Guy 90th birthday concert arrangement at Radio City](https://www.facebook.com/shemekia.copeland/posts/working-out-an-arrangement-yesterday-with-buddy-guy-and-steve-jordan-for-buddys-/1619582092903383) - Facebook
+- [Buddy Guy celebrated at Radio City Music Hall with a sold-out 'Buddy's Got the Blues' show](https://www.wsls.com/entertainment/2026/10/02/buddy-guy-celebrated-at-radio-city-music-hall-with-a-sold-out-buddys-got-the-blues-show) - Wsls
+- [17 New Rock + Metal Tours Announced This Past Week](https://loudwire.com/new-rock-metal-tours-announced-sept-25-oct-1-2026/) - Loudwire
+- [antiMusic's music news for September 2026](https://www.antimusic.com/news/26/09/index.shtml) - Antimusic
+- [A Perfect Circle Tickets \| 2026-2027 Concert Tour Dates \| SeatGeek](https://seatgeek.com/a-perfect-circle-tickets) - Seatgeek
+- [Greta Van Fleet Announce Massive 2027 North American Tour](https://consequence.net/2026/10/greta-van-fleet-2027-north-american-tour/) - Consequence.net
+- [Greta Van Fleet Announce ‘Into the Beginning’ 2027 North American and European Tour](https://newsroom.livenation.com/news/greta-van-fleet-announce-into-the-beginning-2027-north-american-and-european-tour) - Livenation
+- [Greta Van Fleet Announces 2027 International Arena Tour](https://www.jambase.com/article/greta-van-fleet-tour-dates-2027) - Jambase
+- [GRETA VAN FLEET ANNOUNCE ‘INTO THE BEGINNING’ 2027 NORTH AMERICAN AND EUROPEAN TOUR - Boise State University Athletics](https://broncosports.com/news/2026/10/2/general-greta-van-fleet-announce-into-the-beginning-2027-north-american-and-european-tour) - Broncosports
+- [Greta Van Fleet to embark on extensive North American ...](https://entertainment-focus.com/2026/10/02/greta-van-fleet-to-embark-on-extensive-north-american-and-european-into-the-beginning-tour-in-2027) - Entertainment-focus
+- [Fontaines D.C. Plot 2027 North American Tour](https://pitchfork.com/story/fontaines-dc-plot-2027-north-american-tour/) - Pitchfork
+- [Fontaines D.C. Announce 2027 North American Tour](https://consequence.net/2026/10/fontaines-dc-2027-north-american-tour/) - Consequence.net
+- [Fontaines D.C. Announce 2027 North American Tour](https://news.pollstar.com/2026/10/02/fontaines-d-c-announce-2027-north-american-tour) - Pollstar
+- [Fontaines D.C. Plot 2027 North American Tour \| Pitchfork](https://pitchfork.com/story/fontaines-dc-plot-2027-north-american-tour) - Pitchfork
+- [Fontaines D.C. Map Out 2027 North American Tour](https://consequence.net/2026/10/fontaines-dc-2027-north-american-tour) - Consequence
+- [Fontaines D.C. expand Dopamine Chamber Tour for 2027](https://karlobag.eu/en/music/fontaines-d-c-expand-dopamine-chamber-tour-with-detroit-toronto-new-york-and-los-g5vj8) - Karlobag
+- [Fontaines D.C. Announce Spring & Fall 2027 North American Tour Dates With Iceage & Westside Cowboy - mxdwn Music](https://music.mxdwn.com/2026/10/02/news/fontaines-d-c-announce-spring-fall-2027-north-american-tour-dates-with-iceage-westside-cowboy) - Mxdwn
+- [Rogers Brings Backstreet Boys to Canada](https://financialpost.com/globe-newswire/rogers-brings-backstreet-boys-to-canada) - Financial Post
+- [Backstreet Boys announce four-show Toronto residency for 2027\| NOW Toronto](https://nowtoronto.com/news/backstreet-boys-announce-rogers-centre-toronto-residency-2027) - Nowtoronto
+- [Register Now For Tickets: Backstreet Boys Announce Four-Show Toronto Residency at Rogers Centre for 2027](https://www.todocanada.ca/register-now-for-tickets-backstreet-boys-announce-four-show-toronto-residency-at-rogers-centre-for-2027) - Todocanada
+- [Rogers Brings Backstreet Boys to Canada - About Rogers](https://about.rogers.com/news/rogers-brings-backstreet-boys-to-canada) - Rogers
+- [Backstreet Boys Into the Millennium - HOMECOMING: Live in Canada - YouTube](https://www.youtube.com/watch?v=MRmWIsx8gDk) - Youtube
+- [Rogers Brings Backstreet Boys to Canada](https://www.globenewswire.com/news-release/2026/10/02/3373744/0/en/rogers-brings-backstreet-boys-to-canada.html) - Globenewswire
