@@ -1,0 +1,55 @@
+# Sources for 2026-10-04 News Episode 
+- [Freddie Mercury's handwritten lyrics sell for £277,000: The rare pages that gave fans a look at his creative process](https://economictimes.indiatimes.com/magazines/panache/freddie-mercurys-handwritten-lyrics-sell-for-277000-the-rare-pages-that-gave-fans-a-look-at-his-creative-process/articleshow/134652214.cms) - The Times of India
+- [Spitzenpreis des Tages: Freddie Mercurys Notizbuch bringt 325.000 Euro bei Auktion](https://www.focus.de/kultur/stars/spitzenpreis-des-tages-freddie-mercurys-notizbuch-bringt-325-000-euro-bei-auktion_6d65e6fc-39fb-43fe-99c7-33b13e02be05.html) - Focus
+- [Freddie Mercury’s notebook containing song lyrics sells for £277,000 at auction \| The Independent](https://www.the-independent.com/arts-entertainment/music/news/freddie-mercury-queen-propstore-auction-oasis-b3060348.html) - The-independent
+- [Freddie Mercury's handwritten lyrics sell for £277,000: The rare pages that gave fans a look at his creative process - The Economic Times](https://m.economictimes.com/magazines/panache/freddie-mercurys-handwritten-lyrics-sell-for-277000-the-rare-pages-that-gave-fans-a-look-at-his-creative-process/amp_articleshow/134652214.cms) - Economictimes
+- [NOEL GALLAGHER’S MTV UNPLUGGED ACOUSTIC GUITAR SETS WORLD RECORD WITH $300K SALE AT MUSIC AUCTION - Kitsap Sun](https://www.kitsapsun.com/press-release/story/806247/noel-gallaghers-mtv-unplugged-acoustic-guitar-sets-world-record-with-300k-sale-at-music-auction) - Kitsapsun
+- [Noel Gallagher’s MTV Unplugged guitar sells for record $300,000 \| News \| tiogapublishing.com](https://www.tiogapublishing.com/news/nation/noel-gallagher-s-mtv-unplugged-guitar-sells-for-record-300-000/article_4dd069d7-4293-51ce-b97e-7f69f9e1a386.html) - Tiogapublishing
+- ['JAŸ-Z in 8' Episodes 5 & 6: Things We Learned](http://www.billboard.com/lists/jay-z-in-8-review-episodes-five-six-rick-rubin-hbo-max/) - Billboard
+- ['JAŸ-Z in 8' Episodes 5 & 6: Things We Learned](https://www.billboard.com/lists/jay-z-in-8-review-episodes-five-six-rick-rubin-hbo-max) - Billboard
+- [Team Dresch Are Queercore Punk Legends — But They Have Just Begun to Fight](http://www.rollingstone.com/music/music-features/team-dresch-nineties-new-album-furthermore-1235635794/) - Rolling Stone
+- [Post](https://x.com/RollingStone/status/2106386286995267663) - X
+- [Team Dresch Interview: On the Nineties and New Album 'Furthermore'](https://www.rollingstone.com/music/music-features/team-dresch-nineties-new-album-furthermore-1235635794) - Rollingstone
+- [BTS fans pack Bogotá for first concerts in Colombia](https://reporterworldnews.com/culture/entertainment/2026/10/03/bts-fans-pack-bogota-first-concerts-colombia) - Reporterworldnews.com
+- [Breaking News: Bogotá ERUPTS as BTS Arrives! The City Flooded With ARMY, The Atmosphere Is INSANE!](https://www.youtube.com/watch?v=EcSyxmTbZiY) - Youtube
+- [Breaking News: BTS ARRIVES in Colombia! CHAOS ERUPTS as the Grammys Face a ‘Double-Edged Sword’!](https://www.youtube.com/watch?v=b7eoF55O0vQ) - Youtube
+- [Bts kicks off arirang tour in bogota at estadio el campin](https://www.facebook.com/korean4topik/posts/-bts-kicks-off-the-latin-america-leg-of-arirang-in-bogot%C3%A1-bts-has-officially-kic/1790065246453440) - Facebook
+- [BTS Named Bogotá's Honorary Guests](https://www.chosun.com/english/kpop-culture-en/2026/10/02/ZXHAP4ZVPNF7NFFWDXWK3QK6PE) - Chosun
+- [Now that her love story is complete, are we over Taylor Swift?](https://pagesix.com/2026/10/03/entertainment/taylor-swifts-music-fans-struggling-after-marriage/) - Page Six
+- [Taylor Swift's music, fans struggling after marriage](https://pagesix.com/2026/10/03/entertainment/taylor-swifts-music-fans-struggling-after-marriage) - Pagesix
+- [This Is A Cry For Help \| Defector](https://defector.com/taylor-swift-life-of-a-showgirl-encore-review) - Defector
+- [Olivia Dean accused of copying Bill Withers' Just The Two of Us](https://ohnotheydidnt.livejournal.com/132958473.html) - Livejournal.com
+- [Olivia Dean's 'I've Seen It' sued over alleged similarities to Bill Withers' 'Just the Two of Us'; publisher seeks damages \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/music/news/olivia-deans-ive-seen-it-sued-over-alleged-similarities-to-bill-withers-just-the-two-of-us-publisher-seeks-damages/articleshow/134652244.cms) - Indiatimes
+- [Olivia Dean accused of copying Bill Withers' Just The Two of Us - AOL](https://www.aol.com/articles/olivia-dean-accused-copying-bill-095130000.html) - Aol
+- [Phil Collins reveals he's finally mended his 24-year feud with Paul McCartney after he apologised for blasting the star for 'patronising' exchange](https://www.dailymail.com/tvshowbiz/article-16180279/Phil-Collins-finally-mended-feud-Paul-McCartney.html) - Dailymail.com
+- [Phil Collins and Paul McCartney End Decades-Long Feud, Announce Reconciliation](https://www.imdb.com/news/ni66044620?ref_=nmnw_art_perm) - Imdb
+- [Phil Collins gives update on 24-year feud with Paul McCartney](https://pagesix.com/2026/10/03/entertainment/phil-collins-gives-update-on-24-year-feud-with-paul-mccartney) - Pagesix
+- [Phil Collins shares update on his decades-long feud with Paul McCartne - Celebrity News - Entertainment - Daily Express US](https://www.the-express.com/entertainment/celebrity-news/217230/phil-collins-shares-update-his/amp) - The-express
+- [Phil Collins shares update on his decades-long feud with Paul McCartne - Celebrity News - Entertainment - Daily Express US](https://www.the-express.com/entertainment/celebrity-news/217230/phil-collins-shares-update-his) - The-express
+- [Paul McCartney shares surprising detail from Taylor Swift, Travis Kelce’s star-studded wedding](https://pagesix.com/2026/10/03/entertainment/paul-mccartney-shares-new-detail-from-taylor-swifts-wedding/) - Page Six
+- [What Song Did Paul Mccartney Sing at Taylor Swift Wedding](https://www.tiktok.com/discover/what-song-did-paul-mccartney-sing-at-taylor-swift-wedding) - Tiktok
+- [Paul McCartney reveals he joked Taylor Swift should sing 'I Want To Hold Your Hand' to Travis Kelce at their wedding \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/hollywood/news/paul-mccartney-reveals-he-joked-taylor-swift-should-sing-i-want-to-hold-your-hand-to-travis-kelce-at-their-wedding/articleshow/134653689.cms) - Indiatimes
+- [Paul McCartney shares new detail from Taylor Swift's wedding](https://pagesix.com/2026/10/03/entertainment/paul-mccartney-shares-new-detail-from-taylor-swifts-wedding) - Pagesix
+- [Paul McCartney Talks Taylor Swift's Wedding for First Time on 'Kimmel'](https://www.rollingstone.com/music/music-news/paul-mccartney-taylor-swift-wedding-larry-david-kimmel-1235636499) - Rollingstone
+- [Stream: Tom Morello’s Power To The People Festival](https://www.spinmagazine.com/2026/10/power-to-the-people-stream/) - Spinmagazine.com
+- [Springsteen, other stars share stage with hardcore leftist groups at music fest](https://www.foxnews.com/politics/springsteen-headlines-music-festival-rallying-pro-democrat-activists-election-day) - Fox News
+- [Inside the DC ‘Power to the People’ festival headlined by Bruce Springsteen \| KRQE News 13](https://www.krqe.com/entertainment-news/ap-inside-the-dc-power-to-the-people-festival-headlined-by-bruce-springsteen) - Krqe
+- [Henry Rollins to Open His Vast Punk Rock Archive to the Public](https://loudwire.com/henry-rollins-event-punk-rock-gallery-2026/) - Loudwire
+- [Henry Rollins to Open His Vast Punk Rock Archive to the Public](https://loudwire.com/henry-rollins-event-punk-rock-gallery-2026) - Loudwire
+- [Henry Rollins \| Official Website](https://www.henryrollins.com/on-the-radio-all/2026/10/2/radio-broadcast-913-10-02-26) - Henryrollins
+- [‘Behemoth!’: Why Tony Gilroy Needed Nine Composers to Score His Latest Film, and a Guide to Who Did What in the Film (EXCLUSIVE)](https://variety.com/2026/artisans/news/behemoth-who-are-nine-composers-tony-gilroy-1236893524/) - Variety
+- ['Behemoth!': A Guide to the Nine Composers and the Music They Provided](https://variety.com/2026/artisans/news/behemoth-who-are-nine-composers-tony-gilroy-1236893524) - Variety
+- [Multi-Composer Approach for Tony Gilroy’s ‘Behemoth!’ Revealed \| Film Music Reporter](https://filmmusicreporter.com/2026/10/01/multi-composer-approach-for-tony-gilroys-behemoth-revealed) - Filmmusicreporter
+- [Instagram](https://www.instagram.com/p/DeCohgZszNc) - Instagram
+- [Jethro Tull – J-Tull Dot Com: Another Cast of the Net (2026)](https://exystence.net/blog/2026/10/03/jethro-tull-j-tull-dot-com-another-cast-of-the-net-2026/) - Exystence.net
+- [More Jethro Tull. Flute 🪈 ✌️ \| Lawrence Morrin](https://www.facebook.com/lawrence.morrin/videos/more-jethro-tull-flute-%EF%B8%8F/3671321523039125) - Facebook
+- [Jethro Tull's Ian Anderson talks us through how 'Serenade ...](https://www.facebook.com/soundtechniquesmovie/videos/jethro-tulls-ian-anderson-talks-us-through-how-serenade-to-a-cuckoo-became-a-liv/1144841718199210) - Facebook
+- [Adam Baruch](https://www.facebook.com/adam.baruch/posts/jethro-tull-j-tull-dot-com-another-cast-of-the-netthis-is-a-reissue-remix-of-the/10235919356793395) - Facebook
+- [Jethro Tull J-Tull Dot Com Super Deluxe Review](https://nowspinning.co.uk/jethro-tull-j-tull-dot-com-super-deluxe-review) - Nowspinning
+- [Songhive — A fully self-hosted and federated music platform](https://blog.fabiomanganiello.com/article/Songhive) - Fabiomanganiello.com
+- [Songhive is a self-hosted music platform where tracks play from Mastodon — backBone Brief](https://backbonebrief.com/articles/songhive) - Backbonebrief
+- [The Killers frontman Brandon Flowers' new music about faith, Americana praised by conservatives, Christians](https://www.foxnews.com/media/killers-frontman-brandon-flowers-new-music-faith-americana-praised-conservatives-christians) - Fox News
+- [Brandon Flowers answers his interview questions through ...](https://www.facebook.com/JimmyFallon/videos/brandon-flowers-answers-his-interview-questions-through-song-/1413168973670400) - Facebook
+- [Brandon Flowers cuts his country teeth on 3rd album ‘THRASHER’ — THE INDIE SCENE](https://www.theindiescene.co.uk/album-reviews/brandon-flowers-thrasher) - Theindiescene
+- [Brandon Flowers on going country, playing Newport Folk ...](https://www.bostonglobe.com/2026/09/16/arts/brandon-flowers-country-newport-folk-the-killers) - Bostonglobe
+- [Brandon Flowers on Thrasher, Country Music ...](https://www.youtube.com/watch?v=yhjxJGNtIyA) - Youtube
