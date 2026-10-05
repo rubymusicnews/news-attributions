@@ -1,0 +1,48 @@
+# Sources for 2026-10-05 News Episode 
+- [BLACKPINK Sets YouTube Records As “BOOMBAYAH” MV Hits 1.9 Billion Views](http://www.soompi.com/article/1875377wpp/blackpink-sets-youtube-records-as-boombayah-mv-hits-1-9-billion-views) - soompi
+- [BLACKPINK Sets YouTube Records As "BOOMBAYAH" MV Hits 1.9 Billion Views \| Soompi](https://www.soompi.com/article/1875377wpp/blackpink-sets-youtube-records-as-boombayah-mv-hits-1-9-billion-views) - Soompi
+- [Blackpink sets triple record as ‘Boombayah’ joins billion‑view club \| Malay Mail](https://www.malaymail.com/amp/news/showbiz/2026/10/04/blackpink-sets-triple-record-as-boombayah-joins-billionview-club/237668) - Malaymail
+- [Blackpink sets triple record as ‘Boombayah’ joins billion‑view club - Yahoo News Malaysia](https://malaysia.news.yahoo.com/blackpink-sets-triple-record-boombayah-085056929.html) - Yahoo
+- [4 years ago today, BLACKPINK released 'BORN PINK' and ...](https://www.instagram.com/p/DdTKR57jp0-) - Instagram
+- [The Soup Kitchen Song: „Positive Vibration“ by Bob Marley](https://fm4.orf.at/story/marley-ssu-100/the-soup-kitchen-song-positive-vibration-by-bob-marley) - Fm4.orf.at
+- [Elvis Costello on His Early Days: The Birth of ‘My Aim Is True’](http://www.rollingstone.com/music/music-news/elvis-costello-early-days-my-aim-is-true-box-set-1235636676/) - Rolling Stone
+- [Elvis Costello Interview: Inside 'My Aim Is True' Box Set](https://www.rollingstone.com/music/music-news/elvis-costello-early-days-my-aim-is-true-box-set-1235636676) - Rollingstone
+- [Universal Music Canada](https://www.universalmusic.ca/2026/10/02/elvis-costellos-debut-my-aim-is-true-49th-anniversary-edition-box-set-out-october-2-via-ume) - Universalmusic
+- [Albums Of The Week: Elvis Costello \| My Aim Is True 49th Anniversary Edition - Tinnitist](https://tinnitist.com/2026/10/01/albums-of-the-week-elvis-costello-my-aim-is-true-49th-anniversary-edition) - Tinnitist
+- [Elvis Costello Drops 52 Unreleased Tracks with "My Aim is True" 49th Anniversary Box Set Including a Gem Called "I Hear a Melody" - Showbiz411](https://www.showbiz411.com/2026/10/02/elvis-costello-drops-52-unreleased-tracks-with-my-aim-is-true-49th-anniversary-box-set-including-a-gem-called-i-hear-a-melody) - Showbiz411
+- [Ed Sheeran's 'special guest' at Atlanta show revealed after all other opening acts dropped out amid Macklemore drama](https://www.dailymail.com/tvshowbiz/article-16181607/ed-sheeran-fray-isaac-slade-atlanta-concert-macklemore.html) - Dailymail.com
+- [Ed Sheeran enlists The Fray’s ex-frontman Isaac Slade as surprise guest act after openers ditch tour over Macklemore fiasco](https://pagesix.com/2026/10/04/entertainment/ed-sheeran-enlists-the-fray-frontman-isaac-slade-as-suprise-act-in-atlanta-after-macklemore-controversy/) - Page Six
+- [Ed Sheeran Brings Out The Fray’s Isaac Slade as Surprise Atlanta Guest After Tour Shake-Up](https://www.yahoo.com/entertainment/music/articles/ed-sheeran-brings-fray-isaac-150029097.html) - Yahoo
+- [Isaac Slade praises Macklemore amid Ed Sheeran tour drama](https://www.usatoday.com/story/entertainment/music/2026/10/04/the-fray-isaac-slade-ed-sheeran-macklemore/92092935007) - Usatoday
+- [Ed Sheeran Enlists the Fray Singer Isaac Slade to Open Atlanta Show](https://www.rollingstone.com/music/music-news/ed-sheeran-the-fray-singer-isaac-slade-open-atlanta-show-1235636635) - Rollingstone
+- [Zach Bryan Breaks Gillette Stadium's Record While in Free Palestine Shirt](http://www.hollywoodreporter.com/music/music-news/zach-bryan-breaks-gillette-stadium-record-free-palestine-shirt-1236721893/) - Hollywood Reporter
+- [Zach Bryan Breaks Gillette Attendance Record in ‘Free Palestine’ Shirt](http://www.billboard.com/music/music-news/zach-bryan-gillette-attendance-record-free-palestine-shirt-1236353916/) - Billboard
+- [Zach Bryan Breaks Gillette Attendance Record in ‘Free Palestine’ Shirt](https://www.billboard.com/music/music-news/zach-bryan-gillette-attendance-record-free-palestine-shirt-1236353916) - Billboard
+- [Zach Bryan breaks Gillette Stadium crowd record with Palestine tee](https://www.pastemagazine.com/music/zach-bryan/zach-bryan-breaks-gillette-stadiums-attendance-record-while-wearing-free-palestine-shirt) - Pastemagazine
+- [Zach Bryan Breaks Gillette Stadium Record With "Free Palestine" Shirt](https://deadline.com/2026/10/zach-bryan-gillette-stadium-attendance-record-free-palestine-1237146187) - Deadline
+- [Country singer Zach Bryan smashes record while wearing 'Free Palestine' shirt at Robert Kraft's Gillette Stadium after Ed Sheeran controversy](https://www.dailymail.com/tvshowbiz/article-16183165/zach-bryan-free-palestine-robert-kraft-gillette.html) - Dailymail
+- [Zach Bryan Breaks Gillette Stadium's Record While in Free Palestine Shirt](https://www.hollywoodreporter.com/music/music-news/zach-bryan-breaks-gillette-stadium-record-free-palestine-shirt-1236721893) - Hollywoodreporter
+- [Zach Bryan Wears Pro-Palestine Shirt at Robert Kraft's Gillette Stadium](https://variety.com/2026/music/news/zach-bryan-palestine-shirt-robert-kraft-gillette-stadium-1236898152) - Variety
+- [Canadian rock singer Sass Jordan, voice behind ‘Make You a Believer’ and ‘Tell Somebody,’ dies at 63](https://economictimes.indiatimes.com/news/international/canada/canadian-rock-singer-sass-jordan-voice-behind-make-you-a-believer-and-tell-somebody-dies-at-63/articleshow/134669035.cms) - The Times of India
+- [Sass Jordan Dead: Canadian Rock and Blues Singer Was 65](https://variety.com/2026/music/people-news/sass-jordan-dead-canadian-idol-singer-1236898644/) - Variety
+- [Iconic singer’s death at 63 rocks music world: ‘Was such a powerhouse bluesy vocalist’ - pennlive.com](https://slashdot.org/firehose.pl?op=view&amp;id=186023896) - Slashdot.org
+- [Sass Jordan cause of death: How did ‘Racine’ singer die after cancelling shows over ‘serious medical condition’?](https://economictimes.indiatimes.com/news/international/canada/sass-jordan-cause-of-death-how-did-racine-singer-die-after-cancelling-shows-over-serious-medical-condition/articleshow/134669325.cms) - The Times of India
+- [Canadian rock singer Sass Jordan, known for her hit song Make You A Believer, dead at 63](https://www.dailymail.com/tvshowbiz/article-16182193/sass-jordan-montreal-make-you-believer-death.html) - Dailymail.com
+- [Chance the Rapper Is Considering Changing His Name to Just “The Rapper”](https://consequence.net/2026/10/chance-the-rapper-name-change-the-rapper/) - Consequence.net
+- [Chance the Rapper Might Just Be ‘The Rapper’ Soon After Teasing Name Change](https://www.vice.com/en/article/chance-the-rapper-might-just-be-the-rapper-soon-after-teasing-name-change) - Vice
+- [Chance The Rapper Teases Potential Name Change: "I Just Want To Be The Rapper" - That Grape Juice](https://thatgrapejuice.net/2026/10/chance-the-rapper-teases-potential-name-change-i-just-want-to-be-the-rapper) - Thatgrapejuice
+- [Chance the Rapper Is Considering Changing His Name to Just "The Rapper"](https://consequence.net/2026/10/chance-the-rapper-name-change-the-rapper) - Consequence
+- [Please don’t send me your robot music](https://www.salon.com/2026/10/04/please-dont-send-me-your-robot-music/) - Salon
+- [Please don’t send me your robot music - Salon.com](https://www.salon.com/2026/10/04/please-dont-send-me-your-robot-music) - Salon
+- [Turnstile’s SNL Debut Ends a 45 Year Drought of Hardcore on the Show](https://consequence.net/2026/10/turnstile-snl-performance/) - Consequence.net
+- [Turnstile showed out on SNL](https://www.instagram.com/reel/DeGK4cyuG6c) - Instagram
+- [TURNSTILE's SNL debut (via: Saturday Night Live)](https://www.facebook.com/roadrunnerrecords/videos/turnstiles-snl-debutvia-saturday-night-live/1436804418398912) - Facebook
+- [Jason Moran: ‘I have a lot of gratitude for Cork Jazz Festival. And I still have that wonderful crystal vase’](https://www.irishtimes.com/culture/music/2026/10/04/jason-moran-i-have-a-lot-of-gratitude-for-cork-jazz-festival-and-i-still-have-that-wonderful-crystal-vase/) - The Irish Times
+- [Jason Moran: ‘I have a lot of gratitude for Cork Jazz Festival. And I still have that wonderful crystal vase’ – The Irish Times](https://www.irishtimes.com/culture/music/2026/10/04/jason-moran-i-have-a-lot-of-gratitude-for-cork-jazz-festival-and-i-still-have-that-wonderful-crystal-vase) - Irishtimes
+- [C&L's Late Nite Music Club: The Hives, 'Hate To Say I Told You So'](https://crooksandliars.com/2026/10/cls-late-nite-music-club-hives-hate-say-i) - Crooksandliars.com
+- [DN:s musikredaktion: Här är septembers bästa musik](https://www.dn.se/kultur/dns-musikredaktion-har-ar-septembers-basta-musik/) - Www.dn.se
+- [Taylor Swift, Tinashe, Madonna and Charli xcx, Kenny Chesney & More: New Music Friday Guide - billboard.com](https://www.billboard.com/music/music-news/taylor-swift-tinashe-madonna-new-music-friday-guide-1236346904/) - Billboard
+- [Madison Ryann Ward Is Doing Music Her Way](https://relevantmagazine.com/magazine/we-stand-a-lot-taller-when-were-standing-on-the-rock-madison-ryann-ward-is-doing-music-her-way/) - Relevantmagazine.com
+- [Madison Ryann Ward Is Doing Music Her Way - RELEVANT](https://relevantmagazine.com/magazine/we-stand-a-lot-taller-when-were-standing-on-the-rock-madison-ryann-ward-is-doing-music-her-way) - Relevantmagazine
+- [Tamara Flores war der Star des Waves Festivals](https://fm4.orf.at/story/waves-festival-2026-recap-100/tamara-flores-war-der-star-des-waves-festivals) - Fm4.orf.at
+- [Tamara Flores war der Star des Waves Festivals](https://fm4.orf.at/story/waves-festival-2026-recap-100) - Orf
