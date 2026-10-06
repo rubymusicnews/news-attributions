@@ -1,0 +1,55 @@
+# Sources for 2026-10-06 News Episode 
+- [Shakira Adds One Final Concert to Madrid Residency After Breaking Amazon Music Livestream Record](https://consequence.net/2026/10/shakira-adds-concert-madrid-residency-amazon-livestream-record/) - Consequence.net
+- [Shakira's Madrid Concert Livestream Breaks an Amazon Music Record](http://www.billboard.com/music/latin/shakira-madrid-concert-livestream-amazon-music-record-1236353979/) - Billboard
+- [Shakira Adds Final Madrid Concert After Amazon Music Livestream Record](https://consequence.net/2026/10/shakira-adds-concert-madrid-residency-amazon-livestream-record) - Consequence
+- [Shakira Makes Amazon Music Most-Watched Livestream History](https://www.digitalmusicnews.com/2026/10/04/shakira-amazon-music-livestream-stats) - Digitalmusicnews
+- [Shakira joined by Dua Lipa for record-breaking Amazon Music livestream \| Digital \| Music Week](https://www.musicweek.com/digital/read/shakira-joined-by-dua-lipa-for-record-breaking-amazon-music-livestream/095143) - Musicweek
+- [Sony Music has now filed 260k takedowns of AI-deepfake tracks](https://musically.com/2026/10/05/sony-music-has-now-filed-260k-takedowns-of-ai-deepfake-tracks/) - Music Ally
+- [Sony Music has now filed 260k takedowns of AI-deepfake tracks - Music Ally](https://musically.com/2026/10/05/sony-music-has-now-filed-260k-takedowns-of-ai-deepfake-tracks) - Musically
+- [Sony Music has now asked platforms to remove more than 260,000 AI deepfakes imitating artists like Harry Styles, Adele, and Michael Jackson - Music Business Worldwide](https://www.musicbusinessworldwide.com/sony-music-has-now-asked-platforms-to-remove-more-than-260000-ai-deepfakes-imitating-artists-like-harry-styles-adele-and-michael-jackson) - Musicbusinessworldwide
+- [Report: Sony Music doubles AI deepfake takedowns to more than 260,000 \| Labels \| Music Week](https://www.musicweek.com/labels/read/report-sony-music-doubles-ai-deepfake-takedowns-to-more-than-260-000/095142) - Musicweek
+- [Sony Music Seeks Removal of Over 260,000 AI Deepfake Tracks](https://themusicnetwork.com/news/sony-music-seeks-removal-of-over-260-000-ai-deepfake-tracks) - Themusicnetwork
+- [Taylor Swift Nabs Yet Another Number One Song With ‘Patient Zero’](http://www.rollingstone.com/music/music-news/taylor-swift-patient-zero-number-one-hot-100-1235635574/) - Rolling Stone
+- [Taylor Swift finally ends Ella Langley's 24-week chart topping streak as Patient Zero debuts at number one](https://www.dailymail.com/tvshowbiz/article-16184943/taylor-swift-ella-langley-hot-100.html) - Dailymail.com
+- [Taylor Swift scores 16th Billboard Hot 100 No. 1 — Rolling Stone \| UA.NEWS](https://ua.news/en/znamenitosti/spivachka-teilor-svift-zdobula-16-i-khit-1-u-billboard-hot-100-rolling-stone) - Ua
+- [Taylor Swift’s ‘Patient Zero’ Debuts at No. 1 on Billboard Hot 100](https://www.billboard.com/lists/taylor-swift-patient-zero-hot-100-number-one-debut) - Billboard
+- [Brian May Says Queen Won’t Tour Again: ’50 Years is Enough’](http://www.rollingstone.com/music/music-news/brian-may-queen-wont-tour-again-1235636750/) - Rolling Stone
+- [Brian May confirms Queen won't tour again: '50 years is enough'](https://www.hellorayo.co.uk/planet-rock/news/rock-news/queen-brian-may-touring) - Hellorayo
+- [“Freddie came off stage at Knebworth and said, I can’t do this any more." Queen's Brian May recalls the moment he learned that Freddie Mercury had played his final gig with the band, and says Queen won't tour again \| Louder](https://www.loudersound.com/bands-artists/brian-may-recalls-the-moment-he-learned-freddie-mercury-had-played-his-final-queen-gig) - Loudersound
+- [Brian May rules out touring with Queen again \| Contactmusic.com](https://www.contactmusic.com/story/467/3620865/brian-may-rules-out-touring-with-queen-again) - Contactmusic
+- [Brian May Says Queen Won't Tour Again: '50 Years Is Enough'](https://www.rollingstone.com/music/music-news/brian-may-queen-wont-tour-again-1235636750) - Rollingstone
+- [Brian May says Queen’s touring days are over after a friend’s death \| GuitarPlayer](https://www.guitarplayer.com/guitarists/brian-may-says-queens-touring-days-are-over-after-a-friends-death-she-looked-me-in-the-eyes-and-said-you-know-you-cant-do-that) - Guitarplayer
+- [‘Bowie80’ Will Celebrate David Bowie’s Birthday With Exhibits, Concerts, Activations, and More](http://www.rollingstone.com/music/music-news/bowie80-david-bowie-celebration-1235636709/) - Rolling Stone
+- ['Bowie80' to Feature Exhibits, Concerts For David Bowie's Birthday](https://www.rollingstone.com/music/music-news/bowie80-david-bowie-celebration-1235636709) - Rollingstone
+- [David Bowie’s legacy honoured with celebrations marking what would have been his 80th birthday \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/david-bowie-exhibition-v-and-a-death-b3061537.html) - Independent
+- [DAVID BOWIE - BOWIE80 - PRESS RELEASE — David Bowie](https://www.davidbowie.com/blog/2026/10/5/david-bowie-bowie80-press-release) - Davidbowie
+- [David Bowie at 80: A Global Celebration of the Artist Who Never Stopped Reinventing Himself — musomuso.com](https://musomuso.com/news/david-bowie-at-80-a-global-celebration-of-the-artist-who-never-stopped-reinventing-himself) - Musomuso
+- ['Bowie80' to Celebrate David Bowie's 80th Birthday With Events, More](https://variety.com/2026/music/news/bowie80-david-bowie-80th-birthday-events-1236898767) - Variety
+- [Primavera Sound Sets Eye-Popping 2027 Lineup](https://www.spinmagazine.com/2026/10/primavera-sound-lineup/) - Spinmagazine.com
+- [Primavera Sound 2027 Lineup Iincludes Doechii, Phoebe Bridgers, Massive Attack](https://consequence.net/2026/10/doechii-phoebe-bridgers-fontaines-d-c-primavera-sound-2027) - Consequence
+- [2027 Primavera Sound Barcelona Lineup Features Turnstile, Doechii & More](https://www.billboard.com/music/concerts/2027-primavera-sound-barcelona-lineup-turnstile-doechii-adela-1236354037) - Billboard
+- [Doechii, Phoebe Bridgers, Fontaines DC, and Massive Attack lead Primavera Sound 2027 lineup](https://www.catalannews.com/culture/item/doechii-phoebe-bridgers-fontaines-dc-and-massive-attack-lead-primavera-sound-2027-lineup) - Catalannews
+- [Phoebe Bridgers and more to headline Primavera Sound 2027](https://www.pastemagazine.com/music/phoebe-bridgers/phoebe-bridgers-hayley-williams-and-more-headline-primavera-sound-2027) - Pastemagazine
+- [Wisin Signs With WME in All Areas](http://www.billboard.com/pro/wisin-signs-wme-all-areas/) - Billboard
+- [Wisin Signs With WME in All Areas](https://www.billboard.com/pro/wisin-signs-wme-all-areas) - Billboard
+- [Reggaetón Star Wisin Signs With WME - Pollstar News](https://news.pollstar.com/2026/10/05/reggaeton-star-wisin-signs-with-wme) - Pollstar
+- [Yoshiki of X Japan Inks With BMG & More Artist Signings](https://www.billboard.com/lists/yoshiki-x-japan-bmg-artist-signings) - Billboard
+- [Indian singer Anuv Jain on finding success without the Bollywood boost](https://www.bbc.co.uk/news/articles/c933xnneg2zvo) - BBC News
+- [‘These songs have found a life of their own with people so far away from home’: Anuv Jain](https://timesofindia.indiatimes.com/entertainment/hindi/music/news/these-songs-have-found-a-life-of-their-own-with-people-so-far-away-from-home-anuv-jain/amp_articleshow/134672748.cms) - Indiatimes
+- [‘These songs have found a life of their own with people so far away from home’: Anuv Jain](https://timesofindia.indiatimes.com/entertainment/hindi/music/news/these-songs-have-found-a-life-of-their-own-with-people-so-far-away-from-home-anuv-jain/articleshow/134672748.cms) - Indiatimes
+- [Carly Rae Jepsen Unveils Day and Night B-Sides](https://pitchfork.com/story/carly-rae-jepsen-unveils-day-and-night-b-sides/) - Pitchfork
+- [Carly Rae Jepsen is dropping eight more songs this Friday ...](https://www.instagram.com/reel/DeH9dVrk12b) - Instagram
+- [Carly Rae Jepsen to Release Eight More 'Day and Night' Songs](https://www.rollingstone.com/music/music-news/carly-rae-jepsen-day-and-night-b-sides-1235636872) - Rollingstone
+- [Now We Know Why Axl Rose Was Recently Photographed in the Studio](https://loudwire.com/why-axl-rose-photographed-studio-2026/) - Loudwire
+- [Now We Know Why Axl Rose Was Recently Photographed in the Studio](https://loudwire.com/why-axl-rose-photographed-studio-2026) - Loudwire
+- [Dolly Parton and Billie Eilish Discuss Their Favorite Overlooked Albums in New Book](http://www.rollingstone.com/music/music-news/dolly-parton-billie-eilish-new-book-on-the-records-1235636710/) - Rolling Stone
+- [Brian Beck, Piotr Orlov Book Collects 80 Musicians’ Favorite Overlooked LPs](https://www.spinmagazine.com/2026/10/brian-beck-piotr-orlov-on-the-records/) - Spinmagazine.com
+- [Dolly Parton, Billie Eilish Contribute to New Book 'On the Records'](https://www.rollingstone.com/music/music-news/dolly-parton-billie-eilish-new-book-on-the-records-1235636710) - Rollingstone
+- [Brian Beck, Piotr Orlov Book Collects 80 Musicians’ Favorite Overlooked LPs](https://www.yahoo.com/entertainment/music/articles/brian-beck-piotr-orlov-book-140500848.html) - Yahoo
+- [Billie Eilish, Erykah Badu, and More Talk 'Overlooked Classics' in New Book](https://www.yahoo.com/entertainment/music/articles/billie-eilish-erykah-badu-more-024139439.html) - Yahoo
+- [Say It Three Times Fast: Johnny Marr’s Guitars](https://www.spinmagazine.com/2026/10/say-it-three-times-fast-johnny-marrs-guitars/) - Spinmagazine.com
+- [Johnny Marr’s Globally Anticipated Auction at Christie’s Welcomed Registrants from 34 Countries The Collection totalled over £3.6 million, more than triple the estimate](https://press.christies.com/results-marrs-guitars-the-johnny-marr-collection) - Christies
+- [Johnny Marr's guitar collection smashes estimate at auction](https://www.hellorayo.co.uk/absolute-radio/music/news/johnny-marr-guitar-collection-auction) - Hellorayo
+- [Johnny Marr guitar collection fetches almost £4 million at auction \| The Standard](https://www.standard.co.uk/culture/music/johnny-marr-noel-gallagher-smiths-london-morrissey-b1297418.html) - Standard
+- [Whittled-Waist Beyoncé Bares Her Bawwwdy In Curve-Clinging Bodysuit At ‘Jay-Z In 8’ Premiere, BeyHive Believes It’s Tour Time](https://bossip.com/4640773/beyonce-rowen-rose-bodysuit/) - Bossip
+- [Ellen Allien’s Hill of Sound](https://www.newyorker.com/magazine/2026/10/12/ellen-alliens-hill-of-sound) - The New Yorker
