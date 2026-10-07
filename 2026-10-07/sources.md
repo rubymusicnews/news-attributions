@@ -1,0 +1,69 @@
+# Sources for 2026-10-07 News Episode 
+- [Rammstein Premiere New Live Music Video For "Sonne" From 'Rammstein - Live In Mexico City' Film](http://www.metalunderground.com/news/details.cfm?newsid=162225) - Metalunderground.com
+- [Rammstein release video for "Sonne" (Live in Mexico City) - Chaoszine](https://chaoszine.net/rammstein-release-video-for-sonne-live-in-mexico-city) - Chaoszine
+- [RAMMSTEIN Sets "Sonne" Ablaze In New Video From "Live In Mexico City" Concert Film](https://www.sonicperspectives.com/news/rammstein-sets-sonne-ablaze-in-new-video-from-live-in-mexico-city-concert-film) - Sonicperspectives
+- [Rammstein Announce ‘Live in Mexico City’ Concert Film](https://www.udiscovermusic.com/news/rammstein-live-in-mexico-city) - Udiscovermusic
+- [Rammstein Share "Sonne" Live Performance From 'Rammstein - Live In Mexico City' Film - Theprp.com](https://www.theprp.com/2026/10/05/news/rammstein-share-sonne-live-performance-from-rammstein-live-in-mexico-city-film) - Theprp
+- [RAMMSTEIN Sets "Sonne" Ablaze In New Video From "Live In Mexico City" Concert Film](https://www.sonicperspectives.com/news/rammstein-sets-sonne-ablaze-in-new-video-from-live-in-mexico-city-concert-film?amp=1) - Sonicperspectives
+- [Rammstein Share “Sonne” Live Video From Mexico City Concert Film](https://themosh.net/rammstein-sonne-live-mexico-city-concert-film) - Themosh
+- [Rammstein: their colossal concert in Mexico City headed to cinemas this fall. - Sortiraparis.com](https://www.sortiraparis.com/en/what-to-do-in-paris/cinema-series/articles/352167-rammstein-s-colossal-concert-in-mexico-city-will-be-screened-in-cinemas-this-fall) - Sortiraparis
+- [Miley Cyrus hit with devastating career blow as new album Bass Persuades suffers biggest chart fall in Billboard history](https://www.dailymail.com/tvshowbiz/article-16187539/Miley-Cyrus-bass-persuades-billboard-second-week-sales.html) - Dailymail.com
+- [Miley's 'Bass Persuades' Has Biggest Chart Drop Following a No. 1 Debut](https://variety.com/2026/music/news/miley-cyrus-biggest-drop-after-number-one-album-debut-1236903472) - Variety
+- [Miley Cyrus’ new album ‘Bass Persuades’ suffers one of the biggest drops from No. 1 in Billboard chart history](https://pagesix.com/2026/10/07/entertainment/miley-cyrus-new-album-bass-persuades-suffers-one-of-the-biggest-drops-from-no-1-in-billboard-chart-history) - Pagesix
+- [Yung Sammy, Arma, Sixth Ocean join The Hello Group India’s management roster](https://musically.com/2026/10/06/yung-sammy-arma-sixth-ocean-join-the-hello-group-indias-management-roster/) - Music Ally
+- [Yung Sammy, Arma, Sixth Ocean join The Hello Group India’s management roster - Music Ally](https://musically.com/2026/10/06/yung-sammy-arma-sixth-ocean-join-the-hello-group-indias-management-roster) - Musically
+- [THG India Signs YUNG SAMMY, ARMA and Sixth Ocean for Exclusive Global Management \| EVENTFAQS India](https://in.eventfaqs.com/2026/10/06/thg-india-signs-yung-sammy-arma-and-sixth-ocean-for-exclusive-global-management) - Eventfaqs
+- [Inside Lennon Stella’s Autumnal Folk Return](http://www.rollingstone.com/music/music-features/lennon-stella-rolling-stone-studio-interview-1235633180/) - Rolling Stone
+- [Lennon Stella releases new music, announces four Up Close & Personal concerts - The Music Universe](https://themusicuniverse.com/lennon-stella-releases-new-music-announces-four-up-close-personal-concerts) - Themusicuniverse
+- [Lennon Stella on New Album, 'Nashville,' Nick Drake](https://www.rollingstone.com/music/music-features/lennon-stella-rolling-stone-studio-interview-1235633180) - Rollingstone
+- [Lennon Stella Releases New Single "COMEDY SHOW" from SLEEPING LION \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Lennon-Stella-Releases-New-Single-COMEDY-SHOW-from-SLEEPING-LION-20260924) - Broadwayworld
+- [Spotify’s New Music Quiz Will Test Your Trivia Knowledge](https://www.cnet.com/tech/services-and-software/spotify-music-quiz-trivia-knowledge/) - CNET
+- [Spotify Premium Now Offers Music Quiz for Over 2,000 Artists](https://www.thurrott.com/music-videos/342514/spotify-premium-now-offers-music-quiz-for-over-2000-artists) - Thurrott.com
+- [Spotify expands Music Quiz feature to more than 2,000 artists - RouteNote - Radar](https://routenote.com/radar/spotify-expands-music-quiz-feature-to-more-than-2000-artists) - Routenote
+- [Spotify's New Music Quiz Will Test Your Trivia Knowledge - CNET](https://www.cnet.com/tech/services-and-software/spotify-music-quiz-trivia-knowledge) - Cnet
+- [Spotify Expands Music Quiz to More Than 2,000 Artists \| Technobezz](https://www.technobezz.com/news/spotify-expands-music-quiz-more-artists) - Technobezz
+- [Spotify's Music Quiz now covers 2,000+ artists for Premium users](https://gagadget.com/en/728915-spotifys-music-quiz-now-covers-2000-artists-for-premium-users) - Gagadget
+- [Put Your Music Knowledge to the Test With Spotify’s Music Quiz — Spotify](https://newsroom.spotify.com/2026-10-06/music-quiz-expansion) - Spotify
+- [Young Thug Announces Mary J. Blige-Inspired R&B LP, Drake Collabs](https://www.xxlmag.com/young-thug-album-drake-collaborations/) - XXLMAG.COM
+- [Young Thug Announces Mary J. Blige-Inspired R&B LP, Drake Collabs](https://www.xxlmag.com/young-thug-album-drake-collaborations) - Xxlmag
+- [Young Thug Has an R&B Album Arriving This Year: 'This Mary J.'](https://www.billboard.com/music/rb-hip-hop/young-thug-drake-rb-album-mary-j-blige-1236355666) - Billboard
+- [Young Thug Says He's Working On An R&B Album & Multiple Drake Songs On Deck](https://www.iheart.com/alternate/amp/2026-10-06-young-thug-says-hes-working-on-an-rb-album-multiple-drake-songs-on-deck) - Iheart
+- [Young Thug Reveals He’s Making an R&B Album: ‘Most of the Songs Are Sexual’](https://www.complex.com/music/a/jaelaniturnerwilliams/young-thug-rnb-album-drake-songs) - Complex
+- [Young Thug Announces Mary J. Blige-Inspired R&B LP, Drake Collabs](https://wbxxfm.com/ixp/812/p/young-thug-album-drake-collaborations) - Wbxxfm
+- [Freddie Jackson Dies: R&B Hitmaker Behind “Rock Me Tonight”,”You Are My Lady” & Many More Was 69](http://deadline.com/2026/10/freddie-jackson-dead-rock-me-tonight-rb-singer-1237148209/) - Deadline
+- ['Soundtrack to our love stories': R&B singer Freddie Jackson dies at 69 - KCRA](https://www.kcra.com/article/rb-singer-freddie-jackson-dies/74052935) - Kcra
+- [Freddie Jackson death: R&B singer and Harlem native dies at 70 - ABC7 Los Angeles](https://abc7.com/story/rb-singer-harlem-native-freddie-jackson-dies-70/19913929) - Abc7
+- [R&B singer Freddie Jackson, known for '80s hits like 'You Are My Lady,' dies at 70 - ABC News](https://abcnews.com/Entertainment/wireStory/grammy-nominated-rb-singer-freddie-jackson-80s-hits-137043101) - Abcnews
+- [Freddie Jackson, known for 'You Are My Lady,' dies at 70](https://spectrumlocalnews.com/us/snplus/entertainment/2026/10/06/grammy-nominated-r-b-singer-freddie-jackson--known-for--80s-hits-like--you-are-my-lady---dies-at-70) - Spectrumlocalnews
+- [Freddie Jackson Dies at 70: ‘You Are My Lady’ Singer and R&B Star Remembered](https://finchannel.com/freddie-jackson-dies-at-70-leaving-a-catalog-that-helped-define-1980s-rb/137207/entertainment/2026/10) - Finchannel
+- [Watch One of Radiohead’s Best Live Shows: Bonnaroo 2006](https://kottke.org/26/10/watch-one-of-radioheads-best-live-shows-bonnaroo-2006) - kottke.org
+- [The Best Band I Ever Saw Live](https://liveforlivemusic.com/features/the-best-band-i-ever-saw-live-eli-winderman-radiohead-bonnaroo-2006) - Liveforlivemusic
+- [A Timeline Of Lucki & Playboi Carti’s Friendship And Beef](https://hiphopwired.com/3066989/lucki-playboi-cartis-friendship-beef-timeline/) - Hip-Hop Wired
+- [Rapper Lucki stabbed in skirmish involving Playboi Carti's crew](https://www.music-news.com/news/UK/191587/Rapper-Lucki-stabbed-in-skirmish-involving-Playboi-Carti-s-crew) - Music-news
+- [What Happened at ComplexCon?](https://www.vulture.com/article/complexcon-what-happened-playboi-carti-lucki.html) - Vulture
+- [Rapper Lucki allegedly stabbed in brawl with Playboi Carti's team at ComplexCon in LA as videos go viral - The Economic Times](https://m.economictimes.com/magazines/panache/rapper-lucki-allegedly-stabbed-in-brawl-with-playboi-cartis-team-at-complexcon-in-la-as-videos-go-viral/articleshow/134670861.cms) - Economictimes
+- [Rapper Lucki stabbed in skirmish involving Playboi Carti's crew](https://www.yahoo.com/entertainment/music/articles/rapper-lucki-stabbed-skirmish-involving-044506867.html) - Yahoo
+- [LUCKI reveals stitches, calls out LAPD after ComplexCon stabbing](https://www.revolt.tv/article/lucki-reveals-stitches-calls-out-lapd-after-complexcon-stabbing) - Revolt
+- [LAPD investigating ComplexCon fight involving Lucki](https://hip-hopvibe.com/news/lucki-complexcon-fight-lapd-investigation) - Hip-hopvibe
+- [Lucki Speaks After ComplexCon Stabbing, Demands His Car Back](https://balleralert.com/lucki-complexcon-stabbing-lapd-car-100k) - Balleralert
+- [Haywire Are Living Their Hardcore Dreams](http://www.rollingstone.com/music/music-features/haywire-hardcore-boston-new-music-interview-1235636855/) - Rolling Stone
+- [Haywire Are Living Their Hardcore Dreams](https://ca.rollingstone.com/music/haywire-hardcore-boston-new-music-interview) - Rollingstone
+- [Boston Hardcore Band Haywire Talk New Album, Touring](https://www.rollingstone.com/music/music-features/haywire-hardcore-boston-new-music-interview-1235636855) - Rollingstone
+- [Haywire Are Living Their Hardcore Dreams](https://www.yahoo.com/entertainment/music/articles/haywire-living-hardcore-dreams-140000306.html) - Yahoo
+- [Haywire: I Don’t Wanna Say Goodbye Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/haywire-i-dont-wanna-say-goodbye) - Pitchfork
+- [KIDZ BOP BRINGS THE PARTY TO BEACHES RESORTS FOR AN UNFORGETTABLE FALL FAM JAM WEEKEND](https://www.prnewswire.com/news-releases/kidz-bop-brings-the-party-to-beaches-resorts-for-an-unforgettable-fall-fam-jam-weekend-302900109.html) - PRNewswire
+- [KIDZ BOP BRINGS THE PARTY TO BEACHES RESORTS FOR AN UNFORGETTABLE FALL FAM JAM WEEKEND](https://finance.yahoo.com/media-advertising/articles/kidz-bop-brings-party-beaches-172100360.html) - Yahoo
+- [Fender revamps its website with AI tool and more artist content](https://musically.com/2026/10/06/fender-revamps-its-website-with-ai-tool-and-more-artist-content/) - Music Ally
+- [Fender revamps its website with AI tool and more artist content - Music Ally](https://musically.com/2026/10/06/fender-revamps-its-website-with-ai-tool-and-more-artist-content) - Musically
+- [Fender's new website has an AI chatbot that helps you find your perfect guitar \| Guitar.com](https://guitar.com/news/gear-news/fender-has-relaunched-its-website-with-a-new-ai-powered-chatbot) - Guitar
+- [How Fender Is Amplifying Its Digital Experience — LBB](https://lbbonline.com/news/fender-guitars-new-website) - Lbbonline
+- [The Spotlight US Poll: Singer-songwriter Todd Rundgren savaged Taylor Swift, saying that she 'ruined music.' Is he right? Have your say in our new showbiz newsletter](https://www.dailymail.com/tvshowbiz/article-16185575/The-Spotlight-US-Poll-Singer-songwriter-Todd-Rundgren-savaged-Taylor-Swift-saying-ruined-music-right-say-new-showbiz-newsletter.html) - Dailymail.com
+- [Todd Rundgren Takes Aim at Taylor Swift, Calling Her the 'Apotheosis of Mediocrity' in New Interview](https://www.musictimes.com/articles/112915/20260929/todd-rundgren-takes-aim-taylor-swift-calling-her-apotheosis-mediocrity-new-interview.htm) - Musictimes
+- [Todd Rundgren Slams Taylor Swift: She "Ruined Music"](https://consequence.net/2026/09/todd-rundgren-taylor-swift-ruined-music) - Consequence
+- [Taylor Swift 'ruined music,' says American Rock veteran Todd Rundgren, who calls her 'apotheosis of mediocrity' - The Statesman](https://www.thestatesman.com/entertainment/taylor-swift-ruined-music-says-american-rock-veteran-todd-rundgren-who-calls-her-apotheosis-of-mediocrity-1503644395.html) - Thestatesman
+- [Todd Rundgren says Taylor Swift 'ruined music'](https://www.firstpost.com/lifestyle/todd-rundgren-says-taylor-swift-ruined-music-14049070.html) - Firstpost
+- [Todd Rundgren Says Taylor Swift Ruined Music and Blames Video Games for Female Pop Stars](https://centraljersey.com/2026/09/30/todd-rundgren-says-taylor-swift-ruined-music-and-blames-video-games-for-female) - Centraljersey
+- [2026 Record Store Day Black Friday Releases for Rock + Meal Fans](https://loudwire.com/2026-record-store-day-black-friday-releases-rock-metal/) - Loudwire
+- [2026 Record Store Day Black Friday Releases for Rock + Meal Fans](https://loudwire.com/2026-record-store-day-black-friday-releases-rock-metal) - Loudwire
+- [Titles From IRON MAIDEN, KREATOR, MÖTLEY CRÜE, CARCASS, MOTÖRHEAD, RAINBOW, SKID ROW And More Available For Record Store Day's RSD Black Friday 2026](https://bravewords.com/news/titles-from-iron-maiden-kreator-motley-crue-carcass-motorhead-rainbow-skid-row-and-more-available-for-record-store-days-rsd-black-friday-2026) - Bravewords
+- [Record Store Day Black Friday 2026 releases detailed - The Music Universe](https://themusicuniverse.com/record-store-day-black-friday-2026-releases-detailed) - Themusicuniverse
