@@ -1,0 +1,55 @@
+# Sources for 2026-10-08 News Episode 
+- [The Best Moments From Karol G’s Viajando Por El Mundo Tropitour](http://www.rollingstone.com/music/music-lists/karol-g-viajando-por-el-mundo-tropitour-best-moments-1235634667/) - Rolling Stone
+- [Karol G Tour Guests: A Full List, From Bruno Mars to Drake](https://www.billboard.com/lists/karol-g-viajando-por-el-mundo-tropitour-all-guests-list) - Billboard
+- [The Best Moments from Karol G's Viajando Por El Mundo Tropitour](https://www.rollingstone.com/music/music-lists/karol-g-viajando-por-el-mundo-tropitour-best-moments-1235634667) - Rollingstone
+- [Inside Karol G's MetLife Stadium Takeover: 5 Best Moments From Her Sold-Out NYC Shows](https://www.complex.com/music/a/antonio-johri/karol-g-best-nyc-moments) - Complex
+- [Get Your Wings, Again: Aerosmith Sets Pair Of Comeback Concerts At Hollywood Bowl](http://deadline.com/2026/10/aerosmith-comeback-concerts-hollywood-bowl-1237149373/) - Deadline
+- [Aerosmith Confirm Live Return With 2 'Aerosmith + Friends' Shows](https://loudwire.com/aerosmith-friends-2026-concerts/) - Loudwire
+- [Aerosmith Sets 2 Guest-Filled Comeback Shows At Hollywood Bowl](https://www.jambase.com/article/aerosmith-hollywood-bowl-comeback-lineup-2026) - Jambase
+- [Aerosmith Confirm Comeback Concerts with The Black Crowes, Slash, Sammy Hagar, and More](https://therockrevival.com/rock-news/aerosmith-confirm-comeback-concerts-with-the-black-crowes-slash-sammy-hagar-and-more) - Therockrevival
+- [Aerosmith will play at - and host - a pair of epic concerts at The Hollywood Bowl Oct. 29 and Nov. 1, 2026.](https://lufkindailynews.com/news_reuters/national/aerosmith-will-play-at---and-host---a-pair-of-epic-concerts/image_79e48578-c5de-57ae-b238-af21015e63e7.html) - Lufkindailynews
+- [Aerosmith and Steven Tyler reuniting at star-studded Hollywood Bowl shows – Daily News](https://www.dailynews.com/2026/10/07/aerosmith-and-steven-tyler-reuniting-at-star-studded-hollywood-bowl-show) - Dailynews
+- [Aerosmith Announce Two L.A. Comeback Concerts With All-Star Artists](https://www.rollingstone.com/music/music-news/aerosmith-comeback-concerts-1235637458) - Rollingstone
+- [Aerosmith Returns With Two Concerts at the Hollywood Bowl](https://variety.com/2026/music/news/aerosmith-returns-two-shows-hollywood-bowl-retirement-1236904642) - Variety
+- [The 2027 Grammys’ Best Pop Solo Performance Nominees Should Ring in New Artists](http://www.rollingstone.com/music/music-features/grammys-2027-best-pop-solo-performance-predictions-nominees-1235634152/) - Rolling Stone
+- [Grammys 2027 Predictions: Best Pop Solo Performance Nominees](https://www.rollingstone.com/music/music-features/grammys-2027-best-pop-solo-performance-predictions-nominees-1235634152) - Rollingstone
+- [Beyond the diaspora: Indian music artists are ready for a true global crossover](https://www.livemint.com/industry/media/indian-music-artists-global-audience-diaspora-11791267316816.html) - Livemint
+- [Beyond the diaspora: Indian music artists are ready for a true global crossover \| Mint](https://www.livemint.com/industry/media/indian-music-artists-global-audience-diaspora/amp-11791267316816.html) - Livemint
+- [Review zum Konzertfilm "Queen Budapest"](https://www.visions.de/filme-und-serien/queen-budapest/) - Visions.de
+- [QUEEN Release "Crazy Little Thing Called Love" (Live In Budapest) Video](https://bravewords.com/news/queen-release-crazy-little-thing-called-love-live-in-budapest-video) - Bravewords
+- [Peter Jackson Restored Queen's Final Freddie Mercury Concert for 4K Release - AOL](https://www.aol.com/articles/peter-jackson-restored-queens-final-100401000.html) - Aol
+- [Queen Share “Tie Your Mother Down” From Restored 4K ‘Queen Budapest’ Film](https://www.thatericalper.com/2026/09/14/queen-share-tie-your-mother-down-from-restored-4k-queen-budapest-film) - Thatericalper
+- [hennemusic](https://www.hennemusic.com/2026/10/queen-stream-crazy-little-thing-called.html) - Hennemusic
+- [‘Queen Budapest’ IMAX Remaster Showcases Freddie Mercury At His Peak](https://www.forbes.com/sites/bennyhareven/2026/10/01/queen-budapest-imax-remaster-showcases-freddie-mercury-in-his-pomp) - Forbes
+- [Grimes’s new album Psyopera is AI-themed](https://www.thefader.com/2026/10/07/grimes-album-psyopera-ai-release-date-trailer) - The FADER
+- [The War on Drugs’ Robbie Bennett Sets Two New Solo Albums](https://pitchfork.com/story/the-war-on-drugs-robbie-bennett-sets-two-new-solo-albums/) - Pitchfork
+- [War On Drugs’ Robbie Bennett Readies Two Solo LPs](https://www.yahoo.com/entertainment/music/articles/war-drugs-robbie-bennett-readies-152000207.html) - Yahoo
+- [The War on Drugs’ Robbie Bennett Sets Two New Solo Albums](https://www.yahoo.com/entertainment/music/articles/war-drugs-robbie-bennett-sets-223531494.html) - Yahoo
+- [The War on Drugs’ Robbie Bennett Sets Two New Solo Albums \| Pitchfork](https://pitchfork.com/story/the-war-on-drugs-robbie-bennett-sets-two-new-solo-albums) - Pitchfork
+- [17 New Songs Out Today to Listen To: Jess Williamson, Robbie Bennett, and More - Our Culture](https://ourculturemag.com/2026/10/06/17-new-songs-out-today-to-listen-to-jess-williamson-robbie-bennett-and-more) - Ourculturemag
+- [Is having a No 1 record even relevant anymore?](https://www.dazeddigital.com/music/article/71079/1/is-having-a-no-1-record-even-relevant-anymore-ella-langley-olivia-dean?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=is-having-a-no-1-record-even-relevant-anymore) - Dazed
+- [Who even cares about the charts anymore?](https://www.dazeddigital.com/music/article/71079/1/who-even-cares-about-the-charts-anymore?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=who-even-cares-about-the-charts-anymore) - Dazed
+- [Who even cares about the charts anymore? \| Dazed](https://www.dazeddigital.com/music/article/71079/1/who-even-cares-about-the-charts-anymore) - Dazeddigital
+- [Behind The Campaign: James Johnston](https://musically.com/2026/10/07/behind-the-campaign-james-johnston/) - Music Ally
+- [Behind The Campaign: James Johnston - Music Ally](https://musically.com/2026/10/07/behind-the-campaign-james-johnston) - Musically
+- [Alabama Shakes Asks Soho Sessions to ‘Gimme All Your Love’ in Bluesy Rock Performance](http://www.rollingstone.com/music/music-news/alabama-shakes-gimme-all-your-love-soho-sessions-1235639196/) - Rolling Stone
+- [Watch Alabama Shakes Perform 'Gimme All Your Love' at Soho Sessions](https://www.rollingstone.com/music/music-news/alabama-shakes-gimme-all-your-love-soho-sessions-1235639196) - Rollingstone
+- [Alabama Shakes Asks Soho Sessions to ‘Gimme All Your Love’ in Bluesy Rock Performance](https://www.yahoo.com/entertainment/music/articles/alabama-shakes-asks-soho-sessions-205954202.html) - Yahoo
+- [Westside Cowboy Play Brooklyn: Backstage and In the Crowd](http://www.rollingstone.com/music/music-pictures/westside-cowboy-tour-star-moles-1235638677/) - Rolling Stone
+- [Westside Cowboy bring their catchy hooks to Brooklyn, NY](https://northerntransmissions.com/westside-cowboy-bring-their-catchy-hooks-to-brooklyn-ny) - Northerntransmissions
+- [Westside Cowboy and Star Moles Play Brooklyn](https://www.rollingstone.com/music/music-pictures/westside-cowboy-tour-star-moles-1235638677) - Rollingstone
+- [The Manhattan Beat: The Musicians Who Are Rocking New York City This Week – The Aquarian](https://www.theaquarian.com/2026/10/05/the-manhattan-beat-the-musicians-who-are-rocking-new-york-city-this-week) - Theaquarian
+- [Josh Homme Open to Reunions with Them Crooked Vultures and Kyuss: “I Just Don’t Want to Mess It Up”](https://consequence.net/2026/10/josh-homme-potential-reunions-them-crooked-vultures-kyuss/) - Consequence.net
+- [Josh Homme Open to Reunions with Them Crooked Vultures and Kyuss](https://consequence.net/2026/10/josh-homme-potential-reunions-them-crooked-vultures-kyuss) - Consequence
+- [Josh Homme Wants Them Crooked Vultures Back, but a Kyuss Reunion Is Far Less Simple - Blunt Magazine](https://bluntmag.com.au/news/josh-homme-kyuss-them-crooked-vultures-reunion-comments) - Bluntmag
+- [Olivia Rodrigo Almost Wore Meg White’s ‘Elephant’ Album Cover Dress to Daisy Chain Fields](http://www.rollingstone.com/music/music-news/olivia-rodrigo-bought-meg-white-dress-white-stripes-album-1235638597/) - Rolling Stone
+- [Olivia Rodrigo Bought Meg White's Dress from the 'Elephant' Album Cover](https://exclaim.ca/music/article/olivia-rodrigo-bought-meg-white-s-dress-from-the-elephant-album-cover) - Exclaim!
+- [Olivia Rodrigo’s Daisy Chain Fields Music Festival: By Women, For Women — MARIST CIRCLE](https://www.maristcircle.com/arts-entertainment/2026/9/12/olivia-rodrigos-daisy-chain-fields-music-festival-by-women-for-women) - Maristcircle
+- [‘I hope that everyone here is reminded of how capable they are’: Inagural Daisy Chain Fields Music Festival empowers girls, women, raises $20 million \| HS Insider](https://highschool.latimes.com/featured/i-hope-that-everyone-here-is-reminded-of-how-capable-they-are-inagural-daisy-chain-fields-music-festival-empowers-girls-women-raises-20-million) - Latimes
+- [Olivia Rodrigo Bought Meg White's Dress From White Stripes Album Cover](https://www.rollingstone.com/music/music-news/olivia-rodrigo-bought-meg-white-dress-white-stripes-album-1235638597) - Rollingstone
+- [Sampa The Great shares new single, "Location"](https://www.thelineofbestfit.com/news/sampa-the-great-shares-new-single-location) - Thelineofbestfit.com
+- [Sampa The Great Shares New Burner ‘Location’](https://www.clashmusic.com/news/sampa-the-great-shares-new-burner-location) - Clashmusic
+- [Sampa The Great Shares New Burner ‘Location’](https://www.clashmusic.com/features/sampa-the-great-shares-new-burner-location) - Clashmusic
+- [Sampa The Great](https://www.facebook.com/ZedscoopOfficialZambia11/posts/sampa-the-great-continues-the-rollout-to-her-highly-anticipated-album-nu-zamrock/1717317843741212) - Facebook
+- [Sampa the Great Releases New Single 'Location' From Upcoming Album NU ZAMROCK \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Sampa-the-Great-Releases-New-Single-Location-From-Upcoming-Album-NU-ZAMROCK-20261007) - Broadwayworld
+- [Sampa The Great shares new single 'Location' \| Mystic Sons](http://www.mysticsons.com/article/sampa-great-shares-new-single-location) - Mysticsons
