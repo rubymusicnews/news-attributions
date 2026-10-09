@@ -1,0 +1,70 @@
+# Sources for 2026-10-09 News Episode 
+- [Rihanna reveals staggering number of unreleased songs she’s sitting on](https://pagesix.com/2026/10/08/entertainment/rihanna-reveals-number-of-unreleased-songs-shes-sitting-on/) - Page Six
+- [Rihanna Says She Has at Least 170 Unreleased Songs](https://inmusicblog.com/news/rihanna-170-unreleased-songs-r9) - Inmusicblog
+- [Rihanna says she has “at least” 170 unreleased songs in the vault](https://www.pastemagazine.com/music/rihanna/rihanna-says-she-has-at-least-170-unreleased-songs-in-the-vault) - Pastemagazine
+- [Rihanna Says She Has at Least 170 Unreleased Songs in the Vault - DancehallMag](https://www.dancehallmag.com/2026/10/08/news/rihanna-says-she-has-at-least-170-unreleased-songs-in-the-vault.html) - Dancehallmag
+- [Rihanna Has 'At Least' 170 Unreleased Songs in the Vault](https://www.billboard.com/music/rb-hip-hop/rihanna-unreleased-songs-vault-fenty-beauty-1236356644) - Billboard
+- [Rihanna hints at 170 or more unreleased songs during Fenty Beauty livestream](https://www.yahoo.com/entertainment/music/articles/rihanna-hints-170-more-unreleased-225051024.html) - Yahoo
+- [Def Leppard announces 2027 North American tour with Goo Goo Dolls and The Struts: Check full dates and ticket details](https://economictimes.indiatimes.com/magazines/panache/def-leppard-announces-2027-north-american-tour-with-goo-goo-dolls-and-the-struts-check-full-dates-and-ticket-details/articleshow/134792703.cms) - The Times of India
+- [Def Leppard announces upcoming 2027 North American tour with the Goo Goo Dolls at Little Caesars Arena March 7 \| 313 Presents](https://www.313presents.com/news/detail/def-leppard-detroit-tour-2027) - 313presents
+- [DEF LEPPARD Announces 2027 North American Tour With GOO GOO DOLLS And Special Guests THE STRUTS](https://bravewords.com/news/def-leppard-announces-2027-north-american-tour-with-goo-goo-dolls-and-special-guests-the-struts) - Bravewords
+- [Def Leppard announce 2027 North American tour dates \| NextMosh](https://nextmosh.com/def-leppard-announce-2027-north-american-tour-with-goo-goo-dolls-and-the-struts) - Nextmosh
+- [Columbus' Schottenstein Center to host Def Leppard concert. See ticket info](https://www.dispatch.com/story/entertainment/music/2026/10/08/def-leppard-goo-goo-dolls-columbus-schottenstein-center-concert/92157966007) - Dispatch
+- [Def Leppard Announce 2027 North American Tour](https://consequence.net/2026/10/def-leppard-2027-north-american-tour) - Consequence
+- [Mexican star Christian Nodal bags second billion-view YouTube video](https://musically.com/2026/10/08/mexican-star-christian-nodal-bags-second-billion-view-youtube-video/) - Music Ally
+- [Christian Nodal’s ‘No Te Contaron Mal’ Hits 1 Billion Views on YouTube](https://www.billboard.com/music/latin/christian-nodals-no-te-contaron-mal-1-billion-views-youtube-1236356848) - Billboard
+- [YouTube Music Charts: Taylor Swift Hits #1, Christian Nodal Joins Billion Views Club \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/YouTube-Music-Charts-Taylor-Swift-Hits-1-Christian-Nodal-Joins-Billion-Views-Club-20261007) - Broadwayworld
+- [Mexican star Christian Nodal bags second billion-view YouTube video - Music Ally](https://musically.com/2026/10/08/mexican-star-christian-nodal-bags-second-billion-view-youtube-video) - Musically
+- [Sheryl Crow Gets Emotional Talking Music Legacy: ‘I Want to Be Better for the World’](http://www.rollingstone.com/music/music-country/sheryl-crow-gets-emotional-talking-music-legacy-1235639675/) - Rolling Stone
+- [Sheryl Crow to Headline ‘Live On Sunset’ On Saturday, November 14 \| News \| City of West Hollywood](https://www.weho.org/Home/Components/News/News/12328/23) - Weho
+- [Rock Cellar Magazine  - Sheryl Crow Debuts “Freight Train,” from New Album ‘Pick You Up’ Out Oct. 9](https://rockcellarmagazine.com/sheryl-crow-new-album-pick-you-up-listen-preview) - Rockcellarmagazine
+- [Sheryl Crow Interview: Singer Cries Talking Kristofferson, Bob Dylan](https://www.rollingstone.com/music/music-country/sheryl-crow-gets-emotional-talking-music-legacy-1235639675) - Rollingstone
+- [Sheryl Crow Gets Emotional Talking Music Legacy: ‘I Want to Be Better for the World’](https://www.imdb.com/news/ni66052485?ref_=nmnw_art_perm) - Imdb
+- [Look for the Legends in the Best Rock Album Race at 2027 Grammys](http://www.rollingstone.com/music/music-features/grammys-2027-best-rock-album-predictions-nominees-1235634766/) - Rolling Stone
+- [Grammys 2027 Predictions: Best Rock Album Nominees](https://www.rollingstone.com/music/music-features/grammys-2027-best-rock-album-predictions-nominees-1235634766) - Rollingstone
+- [Foo Fighters, the Rolling Stones, and the Strokes are likely ...](https://www.facebook.com/RollingStone/posts/foo-fighters-the-rolling-stones-and-the-strokes-are-likely-nominees-for-the-gram/1464129805575081) - Facebook
+- [Så blev gossopranen Troye Sivan popvärldens hetaste queerikon](https://www.dn.se/kultur/sa-blev-gossopranen-troye-sivan-popvarldens-hetaste-queerikon/) - Www.dn.se
+- [How Madonna and Gandalf ended up on Troye Sivan's new album](https://www.abc.net.au/news/2026-10-09/troye-sivan-interview-shes-the-best-with-madonna-ian-mckellen/107242332) - ABC News (AU)
+- [Troye Sivan Is Living His Fantasy—Until the Lights Come Up](https://www.vanityfair.com/story/troye-sivan-shes-the-best) - Vanityfair
+- [Troye Sivan Samples Madonna on New Single ‘Party’](https://au.rollingstone.com/music/music-news/troye-sivan-samples-madonna-on-new-single-party-enlists-ian-mckellen-for-music-video-101242) - Rollingstone
+- [On ‘She’s The Best,’ Troye Sivan takes the party to unexpected places : NPR](https://www.npr.org/2026/10/07/nx-s1-5887547/troye-sivan-shes-the-best-interview) - Npr
+- [Troye Sivan, the pop star who never softened his queerness for the charts – Martin Cid Magazine](https://www.martincid.com/people/troye-sivan) - Martincid
+- [The Young Producer Old Guys Love](http://www.vulture.com/article/andrew-watt-young-producer-classic-rock.html) - Vulture
+- [Andrew Watt: The Young Producer Old Guys Love](https://www.vulture.com/article/andrew-watt-young-producer-classic-rock.html) - Vulture
+- [Watt’s Up: Andrew Watt on Producing Legends – Part 1](https://www.mixonline.com/recording/profiles/andrew-watt-on-producing-legends) - Mixonline
+- [Andrew Watt on producing the Rolling Stones](https://www.facebook.com/MixMagazine/posts/andrew-watt-weighs-in-on-producing-the-rolling-stones-and-having-difficult-conve/1723147273144523) - Facebook
+- [Andrew Watt on how producing the Rolling Stones ...](https://www.yahoo.com/entertainment/music/articles/andrew-watt-producing-rolling-stones-000000290.html) - Yahoo
+- [How Semi-Retirement, Burnout, and Friendship Brought Dhani Harrison and Nigel Godrich Together](http://www.rollingstone.com/music/music-features/dhani-harrison-nigel-godrich-dragonflies-interview-1235637155/) - Rolling Stone
+- [How Semi-Retirement, Burnout, and Friendship Brought Dhani Harrison and Nigel Godrich Together](https://www.rollingstone.com/music/music-features/dhani-harrison-nigel-godrich-dragonflies-interview-1235637155) - Rollingstone
+- [Rock Cellar Magazine - Dhani Harrison + Nigel Godrich are Dragonflies: Debut Album Out Now (Listen/Buy)](https://rockcellarmagazine.com/dhani-harrison-nigel-godrich-dragonflies-new-album-listen) - Rockcellarmagazine
+- [Audrey Hobert Embarks on a Soul-Searching Journey in New ‘Phoebe’ Video](http://www.rollingstone.com/music/music-news/audrey-hobert-phoebe-video-1235638189/) - Rolling Stone
+- [Watch Audrey Hobert Talk to a Redwood Tree in New “Phoebe” Video](https://pitchfork.com/story/audrey-hobert-phoebe-video/) - Pitchfork
+- [Audrey Hobert Releases Whimsical 'Phoebe' Video](https://www.rollingstone.com/music/music-news/audrey-hobert-phoebe-video-1235638189) - Rollingstone
+- [Watch Audrey Hobert Talk to a Redwood Tree in New “Phoebe” Video \| Pitchfork](https://pitchfork.com/story/audrey-hobert-phoebe-video) - Pitchfork
+- [Audrey Hobert shares 'Phoebe' music video. \| Coup de Main Magazine](https://www.coupdemainmagazine.com/audrey-hobert/20420) - Coupdemainmagazine
+- [Audrey Hobert announces new music video after 'Who's the Clown?' success](https://www.geo.tv/latest/685445-audrey-hobert-announces-new-music-video-after-whos-the-clown-success) - Geo
+- [Steve Martin, Alison Brown Take ‘Old Town Road’ To Bluegrass Country](https://www.spinmagazine.com/2026/10/steve-martin-alison-brown-old-town-road/) - Spinmagazine.com
+- [Steve Martin & Alison Brown Transform Lil Nas X’s “Old Town Road” Into A Bluegrass Ride \| Shore Fire Media](https://shorefire.com/releases/entry/steve-martin-alison-brown-transform-lil-nas-xs-old-town-road-into-a-bluegrass-ride) - Shorefire
+- ["Old Town Road" Takes a Bluegrass Turn - The Bluegrass Situation](https://thebluegrasssituation.com/read/old-town-road-takes-a-bluegrass-turn) - Thebluegrasssituation
+- [Steve Martin, Alison Brown Take ‘Old Town Road’ To Bluegrass Country](https://www.yahoo.com/entertainment/music/articles/steve-martin-alison-brown-old-135200724.html) - Yahoo
+- [Steve Martin, Alison Brown, Del McCoury & Dan Tyminski Cover ‘Old Town Road’](https://www.jambase.com/article/steve-martin-alison-brown-old-town-road-del-mccoury-dan-tyminski) - Jambase
+- [Steve Martin and Alison Brown on 'Old Town Road' Bluegrass Reinvention](https://variety.com/2026/music/news/steve-martin-alison-brown-old-town-road-bluegrass-interview-1236905706) - Variety
+- [Joyce Wrice steps out on Machiko](https://www.thefader.com/2026/10/08/joyce-wrice-machiko-album-interview) - The FADER
+- [R&B Rising: Joyce Wrice Just Released ‘MACHIKO,’ Her Most Personal Album Yet - Essence](https://www.essence.com/entertainment/joyce-wrice-machiko-her-most-personal-album-yet) - Essence
+- [MACHIKO by Joyce Wrice - hitsculture.com](https://hitsculture.com/releases/joyce-wrice-machiko) - Hitsculture
+- [R&B Rising: Joyce Wrice Just Released ‘MACHIKO,’ Her Most Personal Album Yet - Essence](https://www.essence.com/entertainment/joyce-wrice-machiko) - Essence
+- [Singer Joyce Wrice is not heartbroken. Now what? - Andscape](https://andscape.com/features/joyce-wrice-machiko-new-album-interview) - Andscape
+- [Pegassi on 'Ascension,' creative instincts, and the evolution of European rave [Interview]](https://earmilk.com/2026/10/08/pegassi-ascension-interview/) - Earmilk.com
+- [Pegassi on 'Ascension,' creative instincts, and the evolution of European rave [Interview]](https://earmilk.com/2026/10/08/pegassi-ascension-interview) - Earmilk
+- [Pegassi Spent 14 Years Getting Here. Ascension Shows Where He Is Going Next - NYLON](https://nylon.com.sg/pegassi-spent-14-years-getting-here-ascension-shows-where-he-is-going-next) - Nylon
+- [You’re Going to Love Emma Ogier’s Music. Just Wait](http://www.rollingstone.com/music/music-features/emma-ogier-new-music-interview-1235638737/) - Rolling Stone
+- [Emma Ogier To Release Debut Album FLY 1111](https://www.broadwayworld.com/bwwmusic/article/Emma-Ogier-To-Release-Debut-Album-FLY-1111-20260930) - Broadwayworld
+- [Emma Ogier Announces ‘Fly 1111’](https://www.udiscovermusic.com/news/emma-orgier-fly-1111) - Udiscovermusic
+- [Emma Ogier Inks With Lost Highway Records - MusicRow.com](https://musicrow.com/2026/09/emma-ogier-inks-with-lost-highway-records) - Musicrow
+- [Emma Ogier Talks New Album After Bright Eyes, Dominic Fike Collabs](https://www.rollingstone.com/music/music-features/emma-ogier-new-music-interview-1235638737) - Rollingstone
+- [Emma Ogier Announces Debut Album 'Fly 1111': Hear "Hands Tied"](https://stereogum.com/2513094/emma-ogier-announces-debut-album-fly-1111-hear-hands-tied/music) - Stereogum
+- [Emma Ogier signs to Lost Highway Records and reveals plans for debut album, Fly 1111 \| The Line of Best Fit](https://www.thelineofbestfit.com/news/emma-ogier-signs-to-lost-highway-records-and-reveals-plans-for-debut-album-fly-1111) - Thelineofbestfit
+- [Grouper’s Liz Harris Shares 21-Minute Composition](https://pitchfork.com/story/groupers-liz-harris-shares-21-minute-composition/) - Pitchfork
+- [Grouper’s Liz Harris Shares 21-Minute Composition \| Pitchfork](https://pitchfork.com/story/groupers-liz-harris-shares-21-minute-composition) - Pitchfork
+- [Liz Harris (Grouper) announces forthcoming new album, ‘Music for Two Films About Water’](https://theneedledrop.com/news/liz-harris-announces-forthcoming-new-album-music-for-two-films-about-water) - Theneedledrop
+- [Grouper’s Liz Harris Announces 'Music For Two Films About Water'](https://stereogum.com/2513917/groupers-liz-harris-announces-music-for-two-films-about-water-shares-22-minute-track/music) - Stereogum
