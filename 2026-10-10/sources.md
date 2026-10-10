@@ -1,0 +1,75 @@
+# Sources for 2026-10-10 News Episode 
+- [Dua Lipa made £64,000 a day last year as she banks a staggering £23.4million after global Radical Optimism tour](https://www.dailymail.com/tvshowbiz/article-16197699/Dua-Lipa-64-000-day-year-banks-staggering-23-4million-global-Radical-Optimism-tour.html) - Dailymail.com
+- [Celebrity Traitors’ Sebastian Croft's secret romance with former co-star revealed - & brutal split inspired his debut EP](https://www.thesun.co.uk/tvandshowbiz/40634670/sebastian-crofts-secret-romance-brutal-split-joe-locke-ep) - Thesun
+- [Bob Mould](https://www.npr.org/2026/10/09/nx-s1-5995624/bob-mould) - NPR
+- [Reunion yields sweet results for much-loved 90s alt-rock trio - cleveland.com](https://www.cleveland.com/entertainment/2026/10/reunion-yields-sweet-results-for-much-loved-90s-alt-rock-trio.html) - Cleveland
+- [Alt-rock favorite Sugar hits the sweet spot with reunion – The Oakland Press](https://www.theoaklandpress.com/2026/10/03/alt-rock-favorite-sugar-hits-the-sweet-spot-with-reunion) - Theoaklandpress
+- [Bob Mould On Reuniting SUGAR, Working In Trios, Speaking Out In Song](https://www.forbes.com/sites/jimryan1/2026/09/14/bob-mould-on-reuniting-sugar-working-in-trios-speaking-out-in-song) - Forbes
+- [Bob Mould knew that reuniting with Sugar decades later ...](https://www.youtube.com/watch?v=6_2u6ylUMrM) - Youtube
+- [Bob Mould](https://maximumfun.org/episodes/bullseye-with-jesse-thorn/bob-mould) - Maximumfun
+- [Bob Mould](https://www.npr.org/player/embed/nx-s1-5995624/nx-s1-mx-5995624-1) - Npr
+- [Singer Lisa of BLACKPINK Gives Electrifying Performance of Thai-Inspired Single “SaWaDiKa”](https://mymodernmet.com/lisa-sawadika-vma/) - My Modern Met
+- [LISA Brings Thailand to 2026 VMAs Stage With 'Sawadika' ...](https://www.facebook.com/EntertainmentTonight/videos/lisa-brings-thailand-to-2026-vmas-with-action-packed-sawadika-performance/1650853109784625) - Facebook
+- [Lisa Performs ‘SaWaDiKa’ at the VMAs](https://www.rollingstone.com/music/music-news/lisa-sawadika-vmas-performance-1235630086) - Rollingstone
+- [LISA Brings Thailand to 2026 VMAs With Action-Packed ' ...](https://www.youtube.com/watch?v=0Ra1ybQLXRU) - Youtube
+- [LISA Performs "SaWaDiKa" \| 2026 VMAs](https://www.youtube.com/watch?v=zbE57rkkBHo) - Youtube
+- [LISA brings her homeland, Thailand, to the 2026 VMAs ...](https://www.facebook.com/EntertainmentTonight/posts/lisa-brings-her-homeland-thailand-to-the-2026-vmas-stage-the-blackpink-singer-go/1479031040750150) - Facebook
+- [Don Toliver and Malcolm Todd Talk Going Viral and Staying Sane](http://www.rollingstone.com/music/music-features/don-toliver-malcolm-todd-musicians-on-musicians-1235635941/) - Rolling Stone
+- [Don Toliver and Malcolm Todd: Rolling Stone's Musicians on Musicians](https://www.rollingstone.com/music/music-features/don-toliver-malcolm-todd-musicians-on-musicians-1235635941) - Rollingstone
+- [Don Toliver Talks How He Finds the “Craziest Music” in 'Rolling Stone'](https://www.vibe.com/music/music-news/don-toliver-finding-crazy-music-rolling-stone-cover-1235198495) - Vibe
+- [Rockers Salute Judas Priest's Ian Hill Following Retirement](https://loudwire.com/rockers-salute-judas-priest-ian-hill-retirement/) - Loudwire
+- ["I hate to say it, but that time has come." Judas Priest bassist and longest-serving member Ian Hill announces retirement, confirms replacement in band \| Louder](https://www.loudersound.com/bands-artists/i-hate-to-say-it-but-that-time-has-come-judas-priest-bassist-and-longest-serving-member-ian-hill-announces-retirement-confirms-replacement-in-band) - Loudersound
+- [Judas Priest Bassist Ian Hill Retires After 57 Years, Davey Rimmer Takes Over \| MNPR Magazine](https://www.mnprmagazine.com/music-news/judas-priest-ian-hill-retires) - Mnprmagazine
+- [Judas Priest Bassist Ian Hill Announces His Retirement](https://ultimateclassicrock.com/judas-priest-ian-hill-retires) - Ultimateclassicrock
+- [JUDAS PRIEST's IAN HILL Announces His Retirement; URIAH HEEP's DAVE RIMMER To Step In - BLABBERMOUTH.NET](https://blabbermouth.net/news/judas-priests-ian-hill-announces-his-retirement-uriah-heeps-dave-rimmer-to-step-in) - Blabbermouth
+- [Samsung teases collab with BTS’ J-Hope for the Galaxy Z Fold 8](https://www.sammobile.com/news/galaxy-z-fold-8-bts-j-hope-collaboration-teaser/) - SamMobile
+- [Samsung teases collab with BTS’ J-Hope for the Galaxy Z Fold 8](https://www.sammobile.com/news/galaxy-z-fold-8-bts-j-hope-collaboration-teaser) - Sammobile
+- [$10million thriller! Michael Jackson's jacket goes up for sale](https://www.dailymail.com/tvshowbiz/article-16194923/10million-thriller-Michael-Jackson-jacket-sale.html) - Dailymail.com
+- [‘Thriller’ Jacket And Motown 25 Glove On Auction – Michael Jackson World Network](https://www.mjworld.net/news/2026/10/07/thriller-jacket-and-motown-25-glove-on-auction) - Mjworld
+- [Michael Jackson's 'Thriller' Jacket and First Moonwalk Shoes Head to Auction](https://www.complex.com/pop-culture/a/bernadette-giacomazzo/michael-jackson-thriller-items-auction) - Complex
+- [Michael Jackson’s ‘Thriller’ jacket to go under the hammer again](https://kz.kursiv.media/en/2026-10-09/engk-nknk-michael-jacksons-thriller-jacket-to-go-under-the-hammer-again) - Kursiv
+- [Michael Jackson's jacket is going to be auctioned](https://english.gossiplankanews.com/2026/10/michael-jacksons-jacket-is-going-to-be.html) - Gossiplankanews
+- [Michael Jackson’s Iconic Thriller Jacket and Motown 25 Glove Headed to Auction With Multi-Million Dollar Estimates \| Zoom TV](https://www.zoomtventertainment.com/bollywood/michael-jackson-thriller-jacket-motown-glove-auction-value-article-156298446) - Zoomtventertainment
+- [Michael Jackson’s historic items up for auction \| KTLA](https://ktla.com/entertainment/michael-jacksons-historic-items-up-for-auction) - Ktla
+- [Bill Pohlad’s Next Film ‘Miles & Juliette’ Starring Damson Idris And Anamaria Vartolomei Rounds Out Cast As Production Begins; First Image Unveiled](http://deadline.com/2026/10/bill-pohlad-miles-juliette-damson-idris-anamaria-vartolomei-1237151099/) - Deadline
+- [First Photo From Miles Davis Pic 'Miles & Juliette' Unveiled](https://deadline.com/2026/10/bill-pohlad-miles-juliette-damson-idris-anamaria-vartolomei-1237151099) - Deadline
+- [Bill Pohlad’s Next Film ‘Miles & Juliette’ Starring Damson Idris And Anamaria Vartolomei Rounds Out Cast As Production Begins; First Image Unveiled](https://www.imdb.com/news/ni66054772?ref_=nmnw_art_perm) - Imdb
+- [‘Miles & Juliette’ Starring Damson Idris Adds J. Alphonse Nicholson, Jay Reeves And More](https://www.imdb.com/news/ni66055196?ref_=nmnw_art_perm) - Imdb
+- [Bill Pohlad’s Next Film ‘Miles & Juliette’ Starring Damson Idris And Anamaria Vartolomei Rounds Out Cast As Production Begins; First Image Unveiled](https://www.yahoo.com/entertainment/movies/articles/bill-pohlad-next-film-miles-173000617.html) - Yahoo
+- [Bill Pohlad’s Next Film ‘Miles & Juliette’ Starring Damson Idris And Anamaria Vartolomei Rounds Out Cast As Production Begins; First Image Unveiled - Yahoo News UK](https://uk.news.yahoo.com/bill-pohlad-next-film-miles-173000617.html) - Yahoo
+- [You’re Not Crazy: Instagram Was Indeed Persuading You to Listen to Creed](http://www.rollingstone.com/music/music-news/creed-higher-instagram-recommendation-1235640225/) - Rolling Stone
+- [Instagram Apologizes For Glitch That Made Its Algorithm Shove A Creed Song Down Everyone’s Throats](https://brobible.com/culture/article/instagram-apologizes-creed-higher-recommendation-glitch/) - BroBible
+- [Instagram Investigating Why Creed Song Keeps Getting Recommended](https://loudwire.com/instagram-too-many-creed-recommendations) - Loudwire
+- [Instagram Was Indeed Recommending You Listen to Creed](https://www.rollingstone.com/music/music-news/creed-higher-instagram-recommendation-1235640225) - Rollingstone
+- [Instagram investigates after users say Creed’s Higher keeps appearing as a suggested Stories song \| Contactmusic.com](https://www.contactmusic.com/story/467/3623852/instagram-investigates-after-users-say-creed-s-higher-keeps-appearing-as-a-suggested-stories-song) - Contactmusic
+- [Instagram Apologizes for Creed Recommendation Glitch](https://consequence.net/2026/10/instagram-creed-recommendation-glitch) - Consequence
+- [Instagram is sorry it gave users too much Creed \| CNN](https://www.cnn.com/2026/10/08/entertainment/creed-instagram-suggested-music-cec) - Cnn
+- [Trivium Premiere New Single & Music Video "Crown In The Grave" - New Album Due In November](http://www.metalunderground.com/news/details.cfm?newsid=162251) - Metalunderground.com
+- [Celestial Sanctuary Premiere New Single & Music Video "Lashed By Chain" From Upcoming New Album "Cradle Of The Rotten, Shrine To Those Most Foul"](http://www.metalunderground.com/news/details.cfm?newsid=162254) - Metalunderground.com
+- [Trivium detail long-awaited new album Crown In The Grave, release anthemic title track: “we wanted to take everything that makes Trivium what it is, but present it in ways we hadn’t before” \| Louder](https://www.loudersound.com/news/trivium-announce-crown-in-the-grave-album-release-title-track-2026) - Loudersound
+- [Trivium detail new album Crown In The Grave, release anthemic title track](https://www.yahoo.com/entertainment/music/articles/trivium-detail-album-crown-grave-140737396.html) - Yahoo
+- [Trivium Announce New Album Crown in the Grave, Share Video for the Title Track - Premier Guitar](https://www.premierguitar.com/news/trivium-announce-new-album-crown-in-the-grave-share-video-for-the-title-track) - Premierguitar
+- [TRIVIUM announce new album 'Crown in the Grave,' share title track and music video](https://lambgoat.com/news/55251/trivium-announce-new-album-crown-in-the-grave-share-title-track-and-music-video) - Lambgoat
+- [TRIVIUM announce new album 'Crown in the Grave,' share title track and music video](https://www.lambgoat.com/news/55251/trivium-announce-new-album-crown-in-the-grave-share-title-track-and-music-video) - Lambgoat
+- [TRIVIUM Set November Release Date For New Album Crown In The Grave; Title Track Music Video Streaming](https://bravewords.com/news/trivium-set-november-release-date-for-new-album-crown-in-the-grave-title-track-music-video-streaming) - Bravewords
+- [Bad Bunny, Trick Daddy, Trina & More Will Host ‘GTA 6’ Radio Stations](https://hiphopwired.com/3067326/grand-theft-auto-6-radio-stations-bad-bunny-trick-daddy-trina-new-cardi-b-song/) - Hip-Hop Wired
+- [GTA 6 Radio Stations Revealed: 6 Named, Flash FM Back](https://tech-insider.org/gta-6-radio-stations-revealed-flash-fm-2026) - Tech-insider
+- ['Grand Theft Auto 6' in-game radio stations and podcasts detailed by Rockstar](https://sea.mashable.com/games/55668/grand-theft-auto-6-in-game-radio-stations-and-podcasts-detailed-by-rockstar) - Mashable
+- [Grand Theft Auto VI’s radio station hosts include Bad Bunny, Lana Del Rey, and more \| The FADER](https://www.thefader.com/2026/10/08/grand-theft-auto-iv-radio-station-hosts) - Thefader
+- [GTA 6 Radio Stations to Be Hosted by Bad Bunny, Lana Del Rey, Robyn](https://consequence.net/2026/10/gta-6-radio-stations-hosts-details) - Consequence
+- [GRAND THEFT AUTO VI Stations Revealed: Bad Bunny, Lana Del Rey, Slayer and More Join Rockstar’s Soundtrack! - Icon Vs. Icon](https://www.iconvsicon.com/2026/10/08/gta-vi-radio-stations-celebrity-djs-soundtrack/amp) - Iconvsicon
+- [SLAYER’s KERRY KING And TOM ARAYA To Host New Grand Theft Auto VI In-Game Radio Station; Preview](https://bravewords.com/news/slayers-kerry-king-and-tom-araya-to-host-new-grand-theft-auto-vi-in-game-radio-station-preview) - Bravewords
+- [Yung Miami launches debut album campaign with double single](https://musically.com/2026/10/09/yung-miami-launches-debut-album-campaign-with-double-single/) - Music Ally
+- [Yung Miami Pairs “2008” and “F You” as the Watch Dis Countdown Begins - 24Hip-Hop](https://24hip-hop.com/yung-miami-2008-f-you-watch-dis) - 24hip-hop
+- [New Music Mondays: Victoria Monét, Drake, Yung Miami & More](https://blackamericaweb.com/2026/10/05/new-music-mondays-victoria-monet-drake-yung-miami-more) - Blackamericaweb
+- [Yung Miami launches debut album campaign with double single - Music Ally](https://musically.com/2026/10/09/yung-miami-launches-debut-album-campaign-with-double-single) - Musically
+- [Yung Miami Wants to 'Prove Everybody Wrong' as She Announces Debut Solo Album](https://www.complex.com/music/a/markelibert/yung-miami-watch-dis-debut-solo-album-announcement) - Complex
+- [The Hype Magazine - News From Hip Hop To Hollywood!](https://www.thehypemagazine.com/2026/10/09/yung-miami-f-you-video-watch-dis) - Thehypemagazine
+- [CAN :: Karussell der Jugend, Soest 1970](https://aquariumdrunkard.com/2026/10/09/can-karussell-der-jugend-soest-1970/) - Aquariumdrunkard.com
+- [CAN :: Karussell der Jugend, Soest 1970 - Aquarium Drunkard](https://aquariumdrunkard.com/2026/10/09/can-karussell-der-jugend-soest-1970) - Aquariumdrunkard
+- [Instagram](https://www.instagram.com/p/DeR6QstOm6J) - Instagram
+- [CAN :: Karussell der Jugend, Soest 1970 https://aquariumdrunkard.com/2026/10/09/can-karussell-der-jugend-soest-1970/ No blueprint. Filmed by West German television in November 1970 in Soest, this 84-minute document captures CAN still exploring the possibilities of a sound that didn’t quite resemble anything else.](https://www.threads.com/@aquariumdrunkard/post/DeR7EVfG-5r/can-karussell-der-jugend-soest-no-blueprint-filmed-by-west-german-television-in) - Threads
+- [Geddy Lee Dedicates Song to His Holocaust Survivor Mother at October 7th RUSH Show: Watch](https://consequence.net/2026/10/geddy-lee-dedicates-song-to-mother-october-7th-rush-show/) - Consequence.net
+- [Rush is a Band](https://www.facebook.com/rushisaband2112/posts/1954664792513046) - Facebook
+- [Geddy Lee Dedicates Song to His Holocaust Survivor Mom ...](https://www.reddit.com/r/Music/comments/1x1pytb/geddy_lee_dedicates_song_to_his_holocaust) - Reddit
+- [Geddy Lee Dedicates “Red Sector A” to His Mother ...](https://www.youtube.com/shorts/SJZXj0xl-c0) - Youtube
