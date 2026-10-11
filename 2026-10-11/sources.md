@@ -1,0 +1,61 @@
+# Sources for 2026-10-11 News Episode 
+- [Paul McCartney – The Boys of Dungeon Lane (Special Edition) (2026)](https://exystence.net/blog/2026/10/11/paul-mccartney-the-boys-of-dungeon-lane-special-edition-2026/) - Exystence.net
+- [Paul McCartney Announces ‘The Boys of Dungeon Lane’ Special Edition](https://www.udiscovermusic.com/news/paul-mccartney-the-boys-of-dungeon-lane-special-edition) - Udiscovermusic
+- [Paul McCartney \| News \| Paul announces 'The Boys of Dungeon Lane' (Special Edition) - Coming this October](https://www.paulmccartney.com/news/paul-announces-the-boys-of-dungeon-lane-special-edition) - Paulmccartney
+- [Paul McCartney releases The Boys Of Dungeon Lane special edition \| Live4ever Media](https://www.live4ever.uk.com/paul-mccartney-boys-dungeon-lane-special) - Uk
+- [Paul McCartney to release unheard songs on special edition of recent album - Gold Radio](https://www.goldradio.com/artists/paul-mccartney/boys-dungeon-lane-special-unreleased) - Goldradio
+- [Paul McCartney 'The Boys of Dungeon Lane (Special Edition)' available digitally now](http://www.wnypapers.com/news/article/current/2026/10/10/167246/paul-mccartney-the-boys-of-dungeon-lane-special-edition-available-digitally-now) - Wnypapers
+- [Why Is This Surprising Taylor Swift Deep Cut Trending?](http://www.rollingstone.com/music/music-features/taylor-swift-deep-cut-chloe-sam-sophia-marcus-song-1235640023/) - Rolling Stone
+- [Taylor Swift's 'Chloe or Sam or Sophia or Marcus' Popularity Explained](https://www.rollingstone.com/music/music-features/taylor-swift-deep-cut-chloe-sam-sophia-marcus-song-1235640023) - Rollingstone
+- [Inside the room: What it was like to be with Blackpink's Lisa as race scandal erupted](https://www.bbc.co.uk/news/articles/cjzxl56q30k7o) - BBC News
+- [Lisa’s apology over racial slur reignites debate - The Korea Herald](https://www.koreaherald.com/article/10874195) - Koreaherald
+- [The Strokes’ Nick Valensi, Aziya, and Mr Hudson Unleash New Song ‘Scream Your Name’](http://www.rollingstone.com/music/music-news/the-strokes-nick-valensi-aziya-mr-hudson-scream-your-name-1235640707/) - Rolling Stone
+- [The Strokes’ Nick Valensi, Aziya, and Mr Hudson Unleash New Song ‘Scream Your Name’](https://www.yahoo.com/entertainment/music/articles/strokes-nick-valensi-aziya-mr-015936976.html) - Yahoo
+- [Britney Spears releases co-written Justin Timberlake song](https://www.rte.ie/entertainment/2026/1010/1594836-britney-spears/) - RTE
+- [BRITNEY SPEARS KICKS OFF ‘BRITNEY’ 25TH ANNIVERSARY CELEBRATION WITH OFFICIAL RELEASE OF ‘SHE’LL NEVER BE ME’ – XO Diva D](https://xodivad.com/2026/10/09/britney-spears-kicks-off-britney-25th-anniversary-celebration-with-official-release-of-shell-never-be-me) - Xodivad
+- [Britney Spears shares unreleased 'Britney' song 'She'll Never Be Me' - Yahoo News Canada](https://ca.news.yahoo.com/britney-spears-shares-unreleased-britney-132115707.html) - Yahoo
+- [Britney Spears shares previously unreleased song written with Justin Timberlake – The Irish News](https://www.irishnews.com/entertainment/britney-spears-shares-previously-unreleased-song-written-with-justin-timberlake-KT3YU3AXJ5PBPMN755WUKW3WOY) - Irishnews
+- [Britney Spears releases 'She’ll Never Be Me', an unreleased song she co-wrote with Justin Timberlake before their 2002 breakup ahead of 'Britney' anniversary \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/music/news/britney-spears-releases-shell-never-be-me-an-unreleased-song-she-co-wrote-with-justin-timberlake-before-their-2002-breakup-ahead-of-britney-anniversary/articleshow/134847996.cms) - Indiatimes
+- [Britney Spears unveils unreleased track co-written with ex Justin Timberlake](https://www.wionews.com/entertainment/hollywood/britney-spears-unveils-unreleased-track-co-written-with-ex-justin-timberlake-1791626311912/amp) - Wionews
+- [Britney Spears Drops Unreleased Song With Justin Timberlake \| Pop Music Update \| t2ONLINE](https://t2online.in/music/western/britney-spears-has-dropped-a-vault-track-co-written-with-former-boyfriend-justin-timberlake/2008566) - T2online
+- [Interscope Claims Summer Walker Will Owe $50 Million if She Walks Away From Record Deal](http://www.rollingstone.com/music/music-news/summer-walker-record-deal-interscope-lawsuit-1235640766/) - Rolling Stone
+- [Summer Walker Faces $50 Million Lawsuit From Interscope](https://inmusicblog.com/news/summer-walker-interscope-50-million-lawsuit) - Inmusicblog
+- [Summer Walker Faces $50 Million Interscope Lawsuit Over Contractual Dispute](https://www.complex.com/music/a/jaelaniturnerwilliams/summer-walker-interscope-lawsuit-record-deal) - Complex
+- [Summer Walker in Legal Dispute With Interscope Over Record Deal](https://www.billboard.com/pro/summer-walker-legal-dispute-interscope-record-deal) - Billboard
+- [Summer Walker Hit With $50 Million Lawsuit From Interscope & UMG](https://www.hotnewhiphop.com/1012678-summer-walker-interscope-umg-lawsuit) - Hotnewhiphop
+- [Alice Cooper Is Finally Ready to Tell the Truth](http://www.rollingstone.com/music/music-features/alice-cooper-devil-on-my-shoulder-book-interview-1235640323/) - Rolling Stone
+- [Alice Cooper estimates he spent $1 million on drugs before getting sober in 1983](https://www.usatoday.com/story/entertainment/music/2026/10/06/alice-cooper-memoir-interview/92113695007) - Usatoday
+- [Alice Cooper on 'Devil On My Shoulder' Book: 'I Want People to See'](https://www.billboard.com/music/rock/alice-cooper-devil-on-my-shoulder-book-1236354581) - Billboard
+- [Alice Cooper comes clean about alcohol, crack and sobriety \| Louder](https://www.loudersound.com/bands-artists/alice-cooper-comes-clean-about-drink-drugs-and-the-bad-old-days) - Loudersound
+- [Revealed: Sam Fender is set to headline Glastonbury Festival next year](https://www.dailymail.com/news/article-16199427/Sam-Fender-set-headline-Glastonbury-Festival-year.html) - Dailymail.com
+- [Glastonbury 2027's rumoured headliners after huge band gives disappointing update \| Metro News](https://metro.co.uk/2026/10/04/glastonbury-2027s-rumoured-headliners-huge-band-gives-disappointing-update-29677486) - Metro
+- [Queen guitarist Brian May pours cold water on prospect of band doing Abba Voyage-style virtual show because it would require AI driven by the 'massive evil' of data centres](https://www.dailymail.com/news/article-16197917/Queen-guitarist-band-Abba-Voyage-virtual-AI.html) - Dailymail.com
+- [Brian May Says Queen Will Not Tour Again as He’s Done ‘Sacrificing Freedom’: ‘Maybe 50 Years Is Enough’](https://www.aol.ca/articles/brian-may-says-queen-not-011000000.html) - Aol
+- [Brian May’s AI fears throw virtual Queen show into doubt](https://www.aol.ca/articles/brian-may-ai-fears-throw-190257000.html) - Aol
+- [Brian May’s AI fears throw virtual Queen show into doubt](https://www.yahoo.com/entertainment/music/articles/brian-may-ai-fears-throw-190257496.html) - Yahoo
+- [Queen guitarist Brian May pours cold water on prospect of band doing Abba Voyage-style virtual show because it would require AI driven by the 'massive evil' of data centres \| Daily Mail Online](https://www.dailymail.com/news/article-16197917/Queen-guitarist-band-Abba-Voyage-virtual-AI.html?ico=authors_pagination_desktop) - Dailymail
+- [Brian May announces 'decision' on future of Queen after heartbreaking personal news - AOL](https://www.aol.co.uk/articles/brian-may-announces-decision-future-084800000.html) - Aol
+- [Billboard - October 3, 2026](https://post.rlsbb.cc/billboard-october-3-2026/) - Rlsbb.cc
+- [Why Multilingual Music Is More Present Than Ever at the Grammys](https://www.billboard.com/music/awards/grammys-multilingual-music-success-rosalia-bad-bunny-1236351930) - Billboard
+- [Could This Rap Remix Trend Bring the Genre Back To the Charts? \| K-Jewel 99.3 FM](https://www.kjwl.com/2026/10/05/could-this-rap-remix-trend-bring-the-genre-back-to-the-charts) - Kjwl
+- [Fontaines DC on their new album: ‘There’s a lot of anxiety. Everyone is looking for something to escape into’](https://www.irishtimes.com/culture/music/2026/10/10/fontaines-dc-on-their-new-album-theres-a-lot-of-anxiety-everyone-is-looking-for-something-to-escape-into/) - The Irish Times
+- [Fontaines D.C. share new single "Tongue"](https://www.pastemagazine.com/music/fontaines-d-c/fontaines-dc-share-new-single-tongue) - Pastemagazine
+- [Rock Cellar Magazine  - Fontaines D.C.: New Album ‘Dopamine Chamber’ Coming Oct. 16; Preview/Pre-Order](https://rockcellarmagazine.com/fontaines-dc-dopamine-chamber-new-album-preview-listen-2026) - Rockcellarmagazine
+- [Fontaines DC: ‘We just hang out with ourselves and don’t really interact as much with other people’](https://www.irishtimes.com/culture/music/2026/10/10/fontaines-dc-on-their-new-album-theres-a-lot-of-anxiety-everyone-is-looking-for-something-to-escape-into) - Irishtimes
+- [Fontaines D.C. Release New Single "Tongue"](https://consequence.net/2026/09/fontaines-dc-tongue-dopamine-chamber) - Consequence
+- [Carter Faith Wants to Make You a Little Uncomfortable](http://www.rollingstone.com/music/music-features/carter-faith-interview-cherry-valley-nashville-rules-1235639912/) - Rolling Stone
+- [Carter Faith Interview: 'Cherry Valley,' Breaking Nashville Rules](https://www.rollingstone.com/music/music-features/carter-faith-interview-cherry-valley-nashville-rules-1235639912) - Rollingstone
+- [Carter Faith Unveils 'Cherry Valley Forever' Deluxe Edition Of ...](https://rocknloadmag.com/carter-faith-unveils-cherry-valley-forever-deluxe-edition-of-her-breakthrough-debut-album) - Rocknloadmag
+- [Sharing my conversations with your favorite country artists. ...](https://www.instagram.com/reel/DdZOYB4RoaH?hl=en) - Instagram
+- [‘Heartland’ Teases Nashville’s Dark Side With Jessica Chastain](https://backstagecountry.com/2026/10/07/heartland-trailer-teases-nashvilles-dark-side-with-jessica-chastain-carter-faith-jennifer-nettles) - Backstagecountry
+- [Ella Langley spent a record 24 weeks at No. 1. Most U.S. music fans didn’t know her name—signaling a major cultural shift](https://fortune.com/2026/10/10/ella-langley-choosin-texas-billboard-record-algorithms-monoculture/) - Fortune
+- [Ella Langley's 'Choosin' Texas' Sets the Hot 100 Record: Our Thoughts](https://www.billboard.com/music/chart-beat/ella-langley-choosin-texas-hot-100-record-analysis-1236345734) - Billboard
+- [Ella Langley spent a record 24 weeks at No. 1. Most U.S. music fans didn’t know her name—signaling a major cultural shift](https://www.yahoo.com/entertainment/music/articles/ella-langley-spent-record-24-095300088.html) - Yahoo
+- [Ella Langley spent a record 24 weeks at No. 1. Most didn’t know her name—signaling a cultural shift \| Fortune](https://fortune.com/2026/10/10/ella-langley-choosin-texas-billboard-record-algorithms-monoculture) - Fortune
+- [Journey drummer rushed to hospital after medical emergency interrupts concert](https://www.foxnews.com/entertainment/journey-drummer-rushed-hospital-medical-emergency-interrupts-concert) - Fox News
+- [Journey drummer Deen Castronovo suffers medical emergency and is taken to hospital during Oklahoma concert \| Daily Mail Online](https://www.dailymail.com/tvshowbiz/article-16195269/Journey-drummer-Deen-Castronovo-medical-emergency-hospital-Oklahoma.html) - Dailymail
+- [Journey drummer Deen Castronovo suffers medical emergency during Oklahoma concert](https://pagesix.com/2026/10/09/entertainment/journey-drummer-deen-castronovo-suffers-medical-emergency-during-oklahoma-concert) - Pagesix
+- [Journey drummer hospitalized after onstage medical emergency](https://www.sfchronicle.com/entertainment/music/article/journey-drummer-deen-castronovo-hospitalized-22470322.php) - Sfchronicle
+- [Journey STOPS Concert For A Medical Emergency](https://www.youtube.com/watch?v=V3uw_CfNKpc&vl=en) - Youtube
+- [Member of Legendary Band Suffers Medical Emergency on Stage](https://www.thedailybeast.com/member-of-legendary-band-suffers-medical-emergency-on-stage) - Thedailybeast
+- [Journey drummer Deen Castronovo hospitalized during concert - masslive.com](https://www.masslive.com/entertainment/2026/10/journey-drummer-hospitalized-after-medical-emergency-during-concert.html) - Masslive
