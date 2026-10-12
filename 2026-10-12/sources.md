@@ -1,0 +1,68 @@
+# Sources for 2026-10-12 News Episode 
+- [‘SNL’: Watch Rosalía Perform ‘Reliquia,’ ‘Magnolias’](http://www.rollingstone.com/music/music-news/snl-watch-rosalia-performs-reliquia-magnolias-1235640806/) - Rolling Stone
+- [Watch Rosalía perform ‘Reliquia’ en pointe and ‘Magnolias’ in the rain on ‘SNL’](https://www.nme.com/news/music/watch-rosalia-reliquia-en-pointe-magnolias-rain-snl-3972886) - Nme
+- [Watch Rosalía Perform “Reliquia” En Pointe on SNL \| Pitchfork](https://pitchfork.com/story/watch-rosalia-perform-reliquias-en-pointe-on-snl) - Pitchfork
+- ['SNL': Watch Rosalía Perform 'Reliquia,' 'Magnolias'](https://www.rollingstone.com/music/music-news/snl-watch-rosalia-performs-reliquia-magnolias-1235640806) - Rollingstone
+- [Rosalía Brings Lux To SNL, Appears In Sketch About Jelly Roll Playing Sphere](https://stereogum.com/2514249/rosalia-brings-lux-to-snl-appears-in-sketch-about-jelly-roll-playing-sphere/news) - Stereogum
+- [Ten hit lat 70. zna każdy. Za spokojną melodią kryło się mocne przesłanie](https://muzyka.interia.pl/pop/news-55-lat-imagine-johna-lennona-polityczne-przeslanie-z-odrobin,nId,23556565) - Interia.pl
+- [1971 John Lennon Classic, Named Among Greatest Songs Ever, Had a Surprising Omission](https://www.yahoo.com/entertainment/music/articles/1971-john-lennon-classic-named-025112411.html) - Yahoo
+- [John Lennon's 'Imagine' Named Greatest Song Ever, Celebrating 55 Years Since Release](https://www.yahoo.com/entertainment/music/articles/john-lennons-imagine-named-greatest-142533639.html) - Yahoo
+- [Remi Wolf Burned Out on Touring. She Prioritizes Healing on New Album ‘Mud’](http://www.rollingstone.com/music/music-features/remi-wolf-interview-touring-album-mud-1235639076/) - Rolling Stone
+- [Universal Music Canada](https://www.universalmusic.ca/2026/10/09/remi-wolf-releases-new-album-mud-out-now) - Universalmusic
+- [Remi Wolf Interview: Writing New Album 'Mud,' Touring, Health](https://www.rollingstone.com/music/music-features/remi-wolf-interview-touring-album-mud-1235639076) - Rollingstone
+- [On Her Triumphant New Album, Remi Wolf Gets Down in the Mud \| Vogue](https://www.vogue.com/article/remi-wolf-mud-interview) - Vogue
+- [Remi Wolf Maps Out 2027 Tour, Releases New Album Mud: Stream](https://consequence.net/2026/10/remi-wolf-2027-tour-mud-new-album-stream) - Consequence
+- [Remi Wolf on "gritty, emotional" 'Mud': "This album is a sonic sidestep – there’s always fear in trying something new"](https://www.nme.com/news/music/remi-wolf-talks-gritty-emotonal-new-album-mud-sonic-sidestep-3972427-3972427) - Nme
+- [The Beach Boys Played Their First Public Concert in Three Months With an Alarmingly Frail Mike Love](http://www.rollingstone.com/music/music-news/the-beach-boys-cincinnati-concert-frail-mike-love-1235640961/) - Rolling Stone
+- [Mike Love Rejoins The Beach Boys on Stage Amid Health Issues](https://consequence.net/2026/10/mike-love-beach-boys-live-comeback-health-issues/) - Consequence.net
+- [Mike Love Rejoins The Beach Boys on Stage Amid Health Issues](https://consequence.net/2026/10/mike-love-beach-boys-live-comeback-health-issues) - Consequence
+- [The Beach Boys' Mike Love on Stage: No Longer 'Fun, Fun, Fun' - Best Classic Bands](https://bestclassicbands.com/beach-boys-mike-love-health-2026-10-11-26) - Bestclassicbands
+- [The Beach Boys’ Mike Love returns to the stage despite ‘facing serious health challenges’](https://www.theguardian.com/music/2026/oct/12/beach-boys-live-cincinnati-mike-love-helped-john-stamos-health-issues) - Theguardian
+- [John Stamos shares health update on Beach Boys singer Mike Love: ‘He insists on being on stage’ \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/mike-love-beach-boys-john-stamos-concert-health-b3064971.html) - Independent
+- [John Stamos defends Mike Love amid 'serious' health issues](https://www.usatoday.com/story/entertainment/music/2026/10/11/mike-love-health-update-beach-boys-john-stamos/92206550007) - Usatoday
+- [John Stamos says Beach Boys founder faces ‘serious health challenges’](https://www.sfchronicle.com/entertainment/article/john-stamos-mike-love-beach-boys-22472789.php) - Sfchronicle
+- [Noah Kahan: Songs of sorrow and joy](https://www.cbsnews.com/news/noah-kahan-the-great-divide-songs-of-sorrow-and-joy/) - CBS News
+- [Noah Kahan: Songs of sorrow and joy - CBS News](https://www.cbsnews.com/news/noah-kahan-the-great-divide-songs-of-sorrow-and-joy) - Cbsnews
+- [Review & setlist: Noah Kahan returns home to Vermont for a moving charity show](https://www.boston.com/culture/concert-reviews/2026/09/16/review-setlist-noah-kahan-returns-home-to-vermont-for-a-moving-charity-show) - Boston
+- [Noah Kahan Talks Touring, Playing Stadiums, Grammys & Transparency](https://www.billboard.com/p/noah-kahan-billboard-cover-story-interview) - Billboard
+- [Kid Rock details unlikely Eminem collaboration on new Christian album](https://www.foxnews.com/media/kid-rock-details-unlikely-eminem-collaboration-new-christian-album) - Fox News
+- [Kid Rock Announces New Christian Music Album with Eminem](https://consequence.net/2026/10/kid-rock-christian-music-album-halfway-to-jesus) - Consequence
+- [Eminem and Kid Rock Prioritize Friendship Over Politics on New Track: 'We Hope That Sets an Example'](https://www.complex.com/music/a/will-lavin/eminem-kid-rock-friendship-politics-7-sins-new-track) - Complex
+- [Kid Rock Announces 'Halfway to Jesus' Christian Album With Eminem Collab](https://www.billboard.com/music/rock/kid-rock-halfway-to-jesus-christian-album-eminem-collab-1236352874) - Billboard
+- [Kid Rock details unlikely Eminem collaboration on new Christian album](https://www.yahoo.com/entertainment/music/articles/kid-rock-details-unlikely-eminem-163620024.html) - Yahoo
+- [Kid Rock Wants Friendship to Triumphs Politics With New Eminem Collaboration](https://consequence.net/2026/10/kid-rock-on-eminem-collaboration) - Consequence
+- [Lance Bass shocks fans by claiming he was basically 'working for free' during NSYNC heyday](https://www.dailymail.com/tvshowbiz/article-16199787/lance-bass-shocks-claims-working-free-nsync-heyday.html) - Dailymail.com
+- [Lance Bass reveals *NSYNC earned little during their peak fame: $35 a day and $10K checks](https://www.aol.com/articles/lance-bass-reveals-nsync-earned-122219000.html) - Aol
+- [Lance Bass Revisits *NSYNC’s Pay Disputes at Peak of Group’s Fame](https://musicindustryweekly.com/lance-bass-revisits-nsync-s-pay-disputes-at-peak-of-group-s-fame) - Musicindustryweekly
+- [Lance Bass claims NSYNC earned $35 a day and got its first $10K paycheck after years of success](https://news.meaww.com/lance-bass-claims-nsync-earned-35-a-day-and-got-its-first-10-k-paycheck-after-years-of-success) - Meaww
+- [Lance Bass reveals shockingly low amount he claims he earned while in *NSYNC](https://pagesix.com/2026/10/09/celebrity-news/lance-bass-reveals-shockingly-low-amount-he-claims-he-earned-while-in-nsync) - Pagesix
+- [Young Deloitte worker wins multimillion-dollar inheritance ...](https://www.dailymail.com/news/article-16185769/gordon-dang-deloitte-consultant-inheritance-diary-entry-grandfather-daughter.html) - Dailymail
+- [See Sombr Bring Out Lindsey Buckingham for ‘Go Your Own Way’ at Los Angeles Show](http://www.rollingstone.com/music/music-news/sombr-lindsey-buckingham-go-your-own-way-los-angeles-show-1235641067/) - Rolling Stone
+- [Tom Hardy, Helen Mirren, and Pierce Brosnan](https://www.yahoo.com/entertainment/celebrity/articles/tom-hardy-isnt-feuding-helen-190130586.html) - Yahoo
+- [Avengers: Doomsday Rumor Further Hints at Major Love ...](https://www.yahoo.com/entertainment/movies/articles/avengers-doomsday-rumor-further-hints-172538314.html) - Yahoo
+- [Sombrs Bring Out Lindsey Buckingham for 'Go Your Own Way' at LA Show](https://www.rollingstone.com/music/music-news/sombr-lindsey-buckingham-go-your-own-way-los-angeles-show-1235641067) - Rollingstone
+- [Iconic Australian band Powderfinger announce first tour in 17 years](https://www.bbc.co.uk/news/articles/c680zyx8gkkjo) - BBC News
+- [Powderfinger reveals massive 18-date Australian tour](https://www.abc.net.au/news/2026-10-12/powderfinger-australian-tour-2027-tickets-dates/107253646) - ABC News (AU)
+- [Powderfinger: Iconic Australian band announce first tour in 17 years](https://www.bbc.com/news/articles/c680zyx8gkkjo) - Bbc
+- [News: Powderfinger confirm Australian comeback with six-city big top tour - Backseat Mafia](https://www.backseatmafia.com/news-powderfinger-announce-australian-comeback-with-six-city-big-top-tour) - Backseatmafia
+- [Powderfinger Announce 2027 Reunion Tour: Full Dates and Venues](https://au.rollingstone.com/music/music-news/powderfinger-reunion-tour-2027-dates-venues-102051) - Rollingstone
+- [Australian band Powderfinger announce first tour since their 2010 farewell](https://www.firstpost.com/lifestyle/australian-band-powderfinger-announce-first-tour-since-their-2010-farewell-14052128.html/amp) - Firstpost
+- [Powderfinger Announce 18-Date Australian Reunion Tour In Travelling Big Top](https://www.yahoo.com/entertainment/music/articles/powderfinger-announce-18-date-australian-232730777.html) - Yahoo
+- ['How?!' - Patrick Stump Reflects on 25 Years of Fall Out Boy](https://loudwire.com/patrick-stump-25th-anniversary-fall-out-boy/) - Loudwire
+- ['How?!' - Patrick Stump Reflects on 25 Years of Fall Out Boy](https://loudwire.com/patrick-stump-25th-anniversary-fall-out-boy) - Loudwire
+- [Patrick Stump Issues Message to Fans About Fall Out Boy’s 25th Anniversary](https://rockcelebrities.net/patrick-stump-issues-message-to-fans-about-fall-out-boys-25th-anniversary) - Rockcelebrities
+- [Patrick Stump Celebrates 25 Years Of Fall Out Boy: "Shocked We Still Love Working Together"](https://metalheadzone.com/patrick-stump-celebrates-25-years-of-fall-out-boy) - Metalheadzone
+- [Labi Siffre – 1972-1973 (2026)](https://exystence.net/blog/2026/10/12/labi-siffre-1972-1973-2026/) - Exystence.net
+- [Ledisi – For Dinah (Deluxe Edition) (2026)](https://exystence.net/blog/2026/10/11/ledisi-for-dinah-2025/) - Exystence.net
+- [Ledisi issues expanded "For Dinah" collection - SoulTracks](https://soultracks.com/ledisi-issues-expande-for-dinah-collection) - Soultracks
+- [For Dinah - Wikipedia](https://en.wikipedia.org/wiki/For_Dinah) - Wikipedia
+- [ledisi expands tribute to dinah washington with deluxe edition](https://www.midnight-melodies.nl/en/ledisi-expands-tribute-to-dinah-washington-with-deluxe-edition) - Midnight-melodies
+- [Soulja Boy Teases 2028 Presidential Run: ‘A Bigger Vision’](http://www.billboard.com/music/rb-hip-hop/soulja-boy-teases-2028-presidential-run-1236358638/) - Billboard
+- [Soulja Boy teases 2028 presidential run on Instagram](https://www.washingtonexaminer.com/news/white-house/4762610/soulja-boy-teases-2028-presidential-run-on-instagram) - Washingtonexaminer
+- [Soulja Boy Teases Running for President in 2028](https://www.complex.com/pop-culture/a/treyalston/soulja-boy-2028-presidential-run) - Complex
+- [Soulja Boy teases plans to take part in US presidential run in 2028 on Instagram](https://tribune.com.pk/story/2634225/soulja-boy-teases-plans-to-take-part-in-us-presidential-run-in-2028-on-instagram) - Tribune
+- [Soulja Boy Hints at 2028 Presidential Run, Sparking Mixed Reactions Online](https://www.yahoo.com/entertainment/celebrity/articles/soulja-boy-hints-2028-presidential-000551789.html) - Yahoo
+- [Soulja Boy Hints at 2028 Presidential Run, Outlines Key Political Priorities \| Vermilion County First](https://vermilioncountyfirst.com/2026/10/12/soulja-boy-hints-at-2028-presidential-run-outlines-key-political-priorities) - Vermilioncountyfirst
+- [Greysight Premiere New Single & Music Video "VIOLENCE IN BLOOM"](http://www.metalunderground.com/news/details.cfm?newsid=162268) - Metalunderground.com
+- [Greysight Sign With Seek & Strike](https://www.metalunderground.com/news/details.cfm?newsid=162268) - Metalunderground
+- [Greysight Sign With Seek & Strike, Debut "VIOLENCE IN BLOOM" Music Video From Their New EP - Theprp.com](https://www.theprp.com/2026/10/10/news/greysight-sign-with-seek-strike-debut-violence-in-bloom-music-video-from-their-new-ep) - Theprp
