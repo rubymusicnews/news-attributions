@@ -1,0 +1,68 @@
+# Sources for 2026-10-13 News Episode 
+- [Robyn and Zara Larsson Sound Off in Stockholm](http://www.rollingstone.com/music/music-features/robyn-zara-larsson-musicians-on-musicians-1235636035/) - Rolling Stone
+- [Robyn & Zara Larsson for Rolling Stone's Musicians on Musicians Issue](https://www.rollingstone.com/music/music-features/robyn-zara-larsson-musicians-on-musicians-1235636035) - Rollingstone
+- [Dove Cameron and Måneskin Frontman Damiano David ...](https://www.yahoo.com/entertainment/celebrity/articles/dove-cameron-m-neskin-frontman-203537435.html) - Yahoo
+- [Robyn and Zara Larsson Sound Off in Stockholm](https://www.rollingstone.co.uk/music/features/robyn-and-zara-larsson-sound-off-in-stockholm-interview-65061) - Rollingstone
+- [DistroKid Removed Songs From Streaming Platforms in Response to UMG Copyright Suit](http://www.rollingstone.com/music/music-news/distrokid-removed-music-response-umg-lawsuit-1235641464/) - Rolling Stone
+- [DistroKid is removing songs in response to UMG lawsuit – and some artists aren’t happy](https://musically.com/2026/10/12/distrokid-is-removing-songs-in-response-to-umg-lawsuit-and-some-artists-arent-happy/) - Music Ally
+- [DistroKid Takedown Wave Hits Indie Artists After UMG Lawsuit](https://www.hypebot.com/distrokid-takedown-wave-hits-indie-artists-after-umg-lawsuit) - Hypebot
+- [DistroKid Says It Removed Music In Response to UMG Lawsuit](https://www.rollingstone.com/music/music-news/distrokid-removed-music-response-umg-lawsuit-1235641464) - Rollingstone
+- [DistroKid is removing songs in response to UMG lawsuit – and some artists aren’t happy - Music Ally](https://musically.com/2026/10/12/distrokid-is-removing-songs-in-response-to-umg-lawsuit-and-some-artists-arent-happy) - Musically
+- [DistroKid Extends Reply Deadline, Pulls Tracks Amid UMG Suit](https://www.digitalmusicnews.com/2026/10/12/distrokid-v-umg-removals) - Digitalmusicnews
+- [2026 MAMA AWARDS Announces Nominees + Fans’ Choice Voting Begins](http://www.soompi.com/article/1877350wpp/2026-mama-awards-announces-nominees-fans-choice-voting-begins) - soompi
+- [2026 MAMA Awards Nominations List: BTS & BIGBANG Lead](https://www.billboard.com/music/awards/2026-mama-awards-nominations-full-list-bts-bigbang-1236359513) - Billboard
+- [2026 MAMA AWARDS Announces Nominees + Fans' Choice Voting Begins \| Soompi](https://www.soompi.com/article/1877350wpp/2026-mama-awards-announces-nominees-fans-choice-voting-begins) - Soompi
+- [MAMA Awards 2026 Nominations: Full List](https://inmusicblog.com/k-pop/mama-awards-2026-nominations) - Inmusicblog
+- [Eminem Joins EZ Mil on Anime-Inspired Single 'MADARA,' With the English Voice of the Naruto Villain](https://www.ibtimes.com.au/eminem-ez-mil-naruto-madara-single-1876568) - Ibtimes.com.au
+- [Eminem Reunites With EZ Mil for Naruto Inspired MADARA](https://suaragarut.id/en/eminem-ez-mil-madara-collaboration) - Suaragarut
+- [EZ MIL Releases ‘MADARA’ With Eminem And Hideyoshi](https://www.udiscovermusic.com/news/ez-mil-madara-eminem) - Udiscovermusic
+- [Eminem appears on new track 'Madara' with rappers Ez Mil, Hideyoshi](https://www.yahoo.com/entertainment/music/articles/eminem-appears-track-madara-rappers-132225261.html) - Yahoo
+- [James Hetfield at Sphere: “Metallica Is Not Here, Like Some Other Entertainers, To Influence You with Their Bullshit”](https://consequence.net/2026/10/james-hetfield-sphere-metallica-no-bullshit/) - Consequence.net
+- [NO MORE POLITICAL B.S.: Watch major rock star blast entertainers who push their agendas at concerts](https://www.wnd.com/2026/10/no-more-political-b-s-watch-major-rock/) - Wnd.com
+- [Metallica's James Hetfield Calls Out Entertainers With an Agenda](https://www.billboard.com/music/rock/metallica-james-hetfield-las-vegas-sphere-politics-music-1236359568) - Billboard
+- [Metallica's Singer Allegedly SIndir Macklemore, Music Stage is Not a Place to Express Political Opinions](https://voi.id/en/musik/598183) - Voi
+- [James Hetfield of Metallica rejects influencer culture and politics at Sphere show - Chaoszine](https://chaoszine.net/james-hetfield-of-metallica-rejects-influencer-culture-and-politics-at-sphere-show) - Chaoszine
+- [James Hetfield Rejects Political Agendas at Metallica Sphere Show - AXS TV](https://axs.tv/news-story/james-hetfield-tells-sphere-crowd-metallica-wont-push-a-political-agenda) - Axs
+- [Where to Find Tickets to Fontaines D.C.’s 2027 North American Tour](http://www.rollingstone.com/product-recommendations/tickets/where-to-buy-fontaines-dc-tour-tickets-1235640709/) - Rolling Stone
+- [Fontaines D.C. Are Touring North America in 2027: Where to Buy Tickets](https://www.rollingstone.com/product-recommendations/tickets/where-to-buy-fontaines-dc-tour-tickets-1235640709) - Rollingstone
+- [@fontainesband is going on tour with special guests ...](https://www.instagram.com/p/DeKLxtlDL4a) - Instagram
+- [Fontaines D.C. Map Out 2027 North American Tour](https://consequence.net/2026/10/fontaines-dc-2027-north-american-tour) - Consequence
+- [Fontaines D.C. announce North American tour and supporting acts](https://www.pastemagazine.com/music/fontaines-d-c/fontaines-d-c-announce-north-american-tour-with-support-from-westside-cowboy-and-iceage) - Pastemagazine
+- [Fontaines D.C. Set Spring and Fall North American Tour Dates \| TicketNews](https://www.ticketnews.com/2026/10/fontaines-d-c-set-spring-and-fall-north-american-tour-dates) - Ticketnews
+- [Fontaines D.C. Announce 2027 North American Tour; Here's How to Buy Tickets \| Beyond The Stage Magazine](https://www.beyondthestagemagazine.com/fontaines-d-c-2027-tour) - Beyondthestagemagazine
+- [Ihre Hüften lügen nun mal nicht: Shakira macht Madrid ganz waka waka](https://www.n-tv.de/leute/musik/Shakira-macht-Madrid-ganz-waka-waka-id31406453.html) - N-tv.de
+- [Shakira Adds Final Madrid Concert After Amazon Music Livestream Record](https://consequence.net/2026/10/shakira-adds-concert-madrid-residency-amazon-livestream-record) - Consequence
+- [Tickets for Shakira — Shakira Stadium, Madrid](https://karlobag.eu/en/music/news/shakira-in-madrid-estadio-shakira-concert-tickets-yj20w) - Karlobag
+- [Shakira Adds 13th Madrid Show After Amazon Music Livestream Record](https://www.ticketnews.com/2026/10/shakira-13th-madrid-show-amazon-music-livestream-record) - Ticketnews
+- [Shakira returns to Spain in fire, tears and 'Waka Waka' \| Euronews](https://www.euronews.com/2026/09/19/shakira-returns-to-spain-in-fire-tears-and-waka-waka) - Euronews
+- [‘The Last Dance’: Shakira Announces Maluma Among Guests for the Finale of Her Madrid Residency](https://www.yahoo.com/entertainment/music/articles/one-more-last-dance-shakira-171428660.html) - Yahoo
+- [Shakira's Madrid Residency Adds Another Show: Here's the Date](https://www.billboard.com/music/latin/shakira-madrid-residency-adds-show-date-1236354168) - Billboard
+- [Drake’s ‘HABIBTI (FOMO)’ Makes Its Way Onto The Billboard 200](https://hiphopwired.com/3067516/drakes-habibti-fomo-makes-its-way-onto-the-billboard-200/) - Hip-Hop Wired
+- [Drake’s ‘HABIBTI (FOMO)’ Makes Its Way Onto The Billboard 200 - Hot 100.9](https://hot1009.com/4490412/drakes-habibti-fomo-makes-its-way-onto-the-billboard-200) - Hot1009
+- [Drake’s “FOMO” Songs Set For Impressive Debut On The Billboard Hot 100](https://www.hotnewhiphop.com/1012532-drake-fomo-billboard-hot-100) - Hotnewhiphop
+- [Drake Helps Don Toliver Score His Highest-Charting Song On Billboard Hot 100](https://www.hotnewhiphop.com/1012820-drake-don-toliver-solar-eclipse-billboard-hot-100) - Hotnewhiphop
+- [Meet the Club Queens of the Future](http://www.rollingstone.com/music/music-latin/akriila-six-sex-new-music-latin-club-1235622904/) - Rolling Stone
+- [Akriila, Six Sex, Vita, and aLex vs aLex: Latin Club Queens](https://www.rollingstone.com/music/music-latin/akriila-six-sex-new-music-latin-club-1235622904) - Rollingstone
+- [Ayra Starr announces 2027 Starrgirl World Tour](https://www.thefader.com/2026/10/12/ayra-starr-2027-starrgirl-world-tour) - The FADER
+- [Ayra Starr Announces Starrgirl World Tour for 2027](https://inmusicblog.com/news/ayra-starr-starrgirl-world-tour-2027) - Inmusicblog
+- [Ayra Starr announces the Starrgirl World Tour 2027 across the UK, EU and North America \| Official Charts](https://www.officialcharts.com/chart-news/ayra-starr-starrgirl-tour-2027-uk-eu-north-america-dates-tickets-dates-venue-presale) - Officialcharts
+- [Ayra Starr Announces Starrgirl World Tour](https://newsroom.livenation.com/news/ayra-starr-announces-starrgirl-world-tour) - Livenation
+- [Ayra Starr Announce Starrgirl World Tour \| Live \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/live/ayra-starr-announce-starrgirl-world-tour) - Clashmusic
+- [Ayra Starr Announces 2027 ‘Starrgirl World Tour’ Across Europe and North America \| TicketNews](https://www.ticketnews.com/2026/10/ayra-starr-announces-2027-starrgirl-world-tour-across-europe-and-north-america) - Ticketnews
+- [Drummer Dave Lombardo Reflects on Reign in Blood: “It Still Gives Me Chills”](https://consequence.net/2026/10/dave-lombardo-reflects-reign-in-blood/) - Consequence.net
+- [Ex-SLAYER Drummer DAVE LOMBARDO Looks Back On 'Reign In Blood': 'It Still Gives Me The Chills When I Listen To That Album' - BLABBERMOUTH.NET](https://blabbermouth.net/news/ex-slayer-drummer-dave-lombardo-looks-back-on-reign-in-blood-it-still-gives-me-the-chills-when-i-listen-to-that-album) - Blabbermouth
+- [Dave Lombardo Reflects on Slayer's Reign in Blood: "It Still Gives Me Chills"](https://consequence.net/2026/10/dave-lombardo-reflects-reign-in-blood) - Consequence
+- [Dave Lombardo - 'Reign in Blood' Still 'Gives Me the Chills'](https://loudwire.com/dave-lombardo-slayer-reign-in-blood-gives-me-chills) - Loudwire
+- [“It Still Gives Me the Chills” — Dave Lombardo Reflects on 40 Years of Slayer’s ‘Reign In Blood’ and Jeff Hanneman’s Legacy](https://loadedradio.com/dave-lombardo-reign-in-blood-40-years-jeff-hanneman) - Loadedradio
+- [Usher and Chris Brown cancel four R&B tour concerts; is it connected to a UK court date? What fans need to know](https://economictimes.indiatimes.com/magazines/panache/usher-and-chris-brown-cancel-four-rb-tour-concerts-is-it-connected-to-a-uk-court-date-what-fans-need-to-know/articleshow/134898465.cms) - The Times of India
+- [Chris Brown and Usher Cut Four R&B Tour Stops Ahead of London Sentencing - 24Hip-Hop](https://24hip-hop.com/chris-brown-usher-tour-cancellations) - 24hip-hop
+- [Usher and Chris Brown Cancel Tour Dates Ahead of Brown's London Sentencing](https://www.complex.com/music/a/jaelaniturnerwilliams/usher-chris-brown-r-and-b-tour-canceled-dates) - Complex
+- [Usher, Chris Brown Cancel Four Stadium Concerts, Citing Crew Health](https://www.ticketnews.com/2026/10/usher-chris-brown-four-stadium-shows-canceled) - Ticketnews
+- [Chris Brown, Usher Cancel R&B Tour Shows Ahead of Brown's Court Date](https://www.billboard.com/music/rb-hip-hop/chris-brown-usher-cancel-rb-tour-shows-court-date-1236358933) - Billboard
+- [How Jon Batiste makes music out of thin air](https://www.cbsnews.com/news/jon-batiste-music-improvisation/) - CBS News
+- [Jon Batiste on the key to improvising music - CBS News](https://www.cbsnews.com/news/jon-batiste-music-improvisation) - Cbsnews
+- [Jon Batiste on the key to improvising music - CBS News](https://www.cbsnews.com/video/jon-batiste-on-the-key-to-improvising-music) - Cbsnews
+- [Jon Batiste seems to draw music from thin air \| 60 Minutes](https://www.facebook.com/60minutes/videos/jon-batiste-seems-to-draw-music-from-thin-air/28634199256221464) - Facebook
+- [Jon Batiste on the key to improvising music](https://www.youtube.com/watch?v=8Gt-xayPxSo) - Youtube
+- [Soompi’s K-Pop Music Chart 2026, October Week 2](http://www.soompi.com/article/1877265wpp/soompis-k-pop-music-chart-2026-october-week-2) - soompi
+- [مخطط سومبي للموسيقى الكورية لعام 2026، أكتوبر الأسبوع الثاني - عالم كوريا](https://koreaworld.net/soompis-k-pop-music-chart-2026-october-week-2) - Koreaworld
