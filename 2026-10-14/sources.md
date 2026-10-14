@@ -1,0 +1,64 @@
+# Sources for 2026-10-14 News Episode 
+- [How Jennie and Kevin Parker’s Chance Encounter Led to One of the Year’s Biggest Hits](http://www.rollingstone.com/music/music-features/jennie-kevin-parker-musicians-on-musicians-interview-1235635921/) - Rolling Stone
+- [Jennie of Blackpink and Kevin Parker of Tame Impala Interview](https://www.rollingstone.com/music/music-features/jennie-kevin-parker-musicians-on-musicians-interview-1235635921) - Rollingstone
+- [Tame Impala & JENNIE's 'Dracula' on No. 1 on Radio Songs Chart](https://www.billboard.com/music/chart-beat/tame-impala-jennie-dracula-number-1-radio-songs-chart-1236344364) - Billboard
+- [BLACKPINK’s Lisa Unveils Track List For Solo EP “PRESS PLAY”](http://www.soompi.com/article/1877860wpp/blackpinks-lisa-unveils-track-list-for-solo-ep-press-play) - soompi
+- [IVE, ILLIT, RIIZE collide as October K-pop comeback race heats up - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261006/ive-illit-riize-collide-as-october-k-pop-comeback-race-heats-up) - Koreatimes
+- [LISA Reveals Full Tracklist for ‘PRESS PLAY’ EP](https://inmusicblog.com/news/lisa-press-play-ep-tracklist) - Inmusicblog
+- [BLACKPINK's Lisa Unveils Track List For Solo EP "PRESS PLAY" \| Soompi](https://www.soompi.com/article/1877860wpp/blackpinks-lisa-unveils-track-list-for-solo-ep-press-play) - Soompi
+- [Olivia Rodrigo’s “The Unraveled Tour” Is a Pretty Flawless Arena Experience](https://consequence.net/2026/10/olivia-rodrigo-unraveled-tour-in-chicago-recap-videos/) - Consequence.net
+- [Olivia Rodrigo's Chicago opener blossoms into an unforgettable night](https://onmilwaukee.com/articles/olivia-rodrigo-united-center-2026-review) - Onmilwaukee
+- [Olivia Rodrigo's "The Unraveled Tour" Is a Flawless Arena Experience](https://consequence.net/2026/10/olivia-rodrigo-unraveled-tour-in-chicago-recap-videos) - Consequence
+- [Review: Olivia Rodrigo blooms into best version of herself in Chicago performance - Chicago Sun-Times](https://chicago.suntimes.com/music/2026/10/13/review-olivia-rodrigo-unraveled-tour-united-center-chicago) - Suntimes
+- [Bad Bunny’s huge world tour show runs off one small rack of servers](https://www.techradar.com/pro/bad-bunnys-huge-world-tour-show-runs-off-one-small-rack-of-servers) - TechRadar
+- [Bad Bunny’s huge world tour show runs off one small rack of servers](https://tech.yahoo.com/general/articles/bad-bunny-huge-world-tour-135555620.html) - Yahoo
+- [Sharon Osbourne Talks Ozzy’s ‘Back to the Beginning’ Film: ‘He Went Out Like a Viking’](http://www.rollingstone.com/music/music-features/sharon-osbourne-ozzy-back-to-the-beginning-concert-film-1235640059/) - Rolling Stone
+- [Osbourne Family To Host Premiere of Back to the Beginning Film in LA](https://consequence.net/2026/10/osbourne-family-premiere-ozzy-black-sabbath-back-to-the-beginning-film-la) - Consequence
+- [Black Sabbath's Final Show, Captured in New Film Trailer](https://ultimateclassicrock.com/black-sabbath-final-concert-film) - Ultimateclassicrock
+- [Trailer and Setlist Unveiled for Concert Film Ozzy & Black Sabbath: Back to the Beginning](https://consequence.net/2026/09/trailer-setlist-concert-film-ozzy-black-sabbath-back-to-the-beginning) - Consequence
+- ["We had six different doctors and they advised us not to do the show. They said it would kill him. Ozzy said, I know I’m dying. If I miss a few months of my life, I want to go this way." Sharon Osbourne on Ozzy's farewell live performance \| Louder](https://www.loudersound.com/bands-artists/sharon-osbourne-says-doctors-warned-ozzy-that-his-final-show-would-kill-him) - Loudersound
+- [Sharon Osbourne Talks Ozzy & Black Sabbath: Back to the Beginning Film](https://www.rollingstone.com/music/music-features/sharon-osbourne-ozzy-back-to-the-beginning-concert-film-1235640059) - Rollingstone
+- [Sharon Osbourne reveals grim advice Ozzy's doctors gave ...](https://www.the-independent.com/arts-entertainment/music/news/ozzy-osbourne-sharon-doctor-advice-b3066150.html) - The-independent
+- [Dionne Warwick, 85, cancels Carnegie Hall performance due to 'severe pain' and mobility issues](https://www.dailymail.com/tvshowbiz/article-16204399/dionne-warwick-cancels-concert-health-mobility-issues-pain.html) - Dailymail.com
+- [Dionne Warwick, 85, Cancels Performance After Health Scare](https://www.thedailybeast.com/dionne-warwick-85-cancels-performance-after-health-scare) - Thedailybeast
+- [Fans Flood Dionne Warwick with Prayers After the 85-Year-Old Legend Reveals the Painful Reason She Can’t Walk Onto the Carnegie Hall Stage](https://atlantablackstar.com/2026/10/13/dionne-warwick-reveals-the-painful-reason-she-cant-walk) - Atlantablackstar
+- [Joni Mitchell Reaches Finish of “Journey That Began 62 Years Ago” By Becoming US Citizen](https://consequence.net/2026/10/joni-mitchell-becomes-us-citizen/) - Consequence.net
+- [Legendary singer-songwriter Joni Mitchell becomes US citizen - ABC News](https://abcnews.com/GMA/Culture/legendary-singer-songwriter-joni-mitchell-us-citizen/story?id=137241722) - Abcnews
+- [Joni Mitchell becomes US citizen: ‘A journey that began 62 years ago’](https://www.theguardian.com/music/2026/oct/14/joni-mitchell-becomes-us-citizen-a-journey-that-began-62-years-ago) - Theguardian
+- [Joni Mitchell Becomes US Citizen After 62 Years](https://consequence.net/2026/10/joni-mitchell-becomes-us-citizen) - Consequence
+- [Legendary singer-songwriter Joni Mitchell becomes US citizen - Good Morning America](https://www.goodmorningamerica.com/culture/story/legendary-singer-songwriter-joni-mitchell-us-citizen-137241722) - Goodmorningamerica
+- [Duane 'Keffe D' Davis gets 40 years to life for orchestrating Tupac Shakur’s killing](https://www.yahoo.com/news/articles/ex-gang-leader-faces-maximum-090311630.html) - Yahoo Entertainment
+- [Duane "Keffe D" Davis sentenced to 40 years for rapper Tupac Shakur's murder](https://www.bbc.com/news/articles/c60rln2jvv2zo) - Bbc
+- [Duane ‘Keffe D’ Davis Gets 40 Years to Life for Murder of Tupac Shakur](https://www.rollingstone.com/music/music-news/duane-keffe-d-davis-sentenced-for-murder-of-tupac-shakur-1235641951) - Rollingstone
+- [Duane 'Keffe D' Davis gets 40 years to life for Tupac Shakur murder](https://www.upi.com/Top_News/US/2026/10/13/duane-davis-sentence-tupac-shakur/3191791923775) - Upi
+- [Ex-gang leader sentenced to 40 years to life in prison for Tupac Shakur murder \| Reuters](https://www.reuters.com/legal/litigation/ex-gang-leader-faces-maximum-penalty-life-prison-tupac-shakur-murder-2026-10-13) - Reuters
+- [A judge in Las Vegas on Tuesday sentenced Duane Keith ...](https://www.facebook.com/nytimes/posts/a-judge-in-las-vegas-on-tuesday-sentenced-duane-keith-davis-to-40-years-to-life-/1514771333838658) - Facebook
+- [Gang leader sentenced to 40 years to life in Tupac Shakur's murder - Los Angeles Times](https://www.latimes.com/california/story/2026-10-13/tupac-murder-trial-sentencing) - Latimes
+- [Draco Rosa: Tiny Desk Concert](https://www.npr.org/2026/10/13/g-s1-141845/draco-rosa-tiny-desk-concert) - NPR
+- [Puerto Rican Icon Draco Rosa Brings Jazz and Psychedelia to Career-Spanning Tiny Desk: Watch](https://consequence.net/2026/10/draco-rosa-jazz-pshychedelia-tiny-desk/) - Consequence.net
+- [Draco Rosa Brings Jazz and Psychedelia to Career-Spanning Tiny Desk](https://consequence.net/2026/10/draco-rosa-jazz-pshychedelia-tiny-desk) - Consequence
+- [Red Hot Chili Peppers to Return to Argentina for Music Gol Festival 2027 Alongside The Human League, Happy Mondays](https://consequence.net/2026/10/red-hot-chili-peppers-return-argentina-the-human-league-happy-mondays/) - Consequence.net
+- [Red Hot Chili Peppers vuelve a Argentina: llega al Gigante de Arroyito de Rosario en 2027](https://infocronos.com.ar/nota/58311/red-hot-chili-peppers-vuelve-a-argentina-llega-al-gigante-de-arroyito-de-rosario-en-2027) - Infocronos
+- [Anuncian a Red Hot Chili Peppers en un festival en Argentina, pero la banda lo desmiente](https://indiehoy.com/noticias/red-hot-chili-peppers-en-argentina-fecha-lugar-y-entradas) - Indiehoy
+- [Music Gol Festival 2027: así será la primera edición del evento musical de Rosario con los Red Hot Chili Peppers a la cabeza](https://www.ambito.com/espectaculos/music-gol-festival-2027-asi-sera-la-primera-edicion-del-evento-musical-rosario-los-red-hot-chili-peppers-la-cabeza-n6333212) - Ambito
+- [Red Hot Chili Peppers to Headline 2027 Festival in Rosario, Argentina](https://consequence.net/2026/10/red-hot-chili-peppers-return-argentina-the-human-league-happy-mondays) - Consequence
+- [Quavo Confirms More Solo Music, a Migos Album and Takeoff Project](https://www.xxlmag.com/quavo-new-music-migos-album-takeoff-project/) - XXLMAG.COM
+- [Quavo Confirms New Solo Music, a Migos Album and Takeoff Project Are in the Works](https://107jamz.com/ixp/812/p/quavo-new-music-migos-album-takeoff-project) - 107jamz
+- [Quavo Confirms New Solo Music, a Migos Album and Takeoff Project Are in the Works](https://www.xxlmag.com/quavo-new-music-migos-album-takeoff-project) - Xxlmag
+- [Quavo talks new album, viral 'Hotel Lobby' and new Migos music \| AP News](https://apnews.com/article/quavo-hotel-lobby-qromelife-92c67c663ef789c7df8310ff09b3406b) - Apnews
+- [Takeoff Solo Album Confirmed By Quavo Amid Migos Reunion Plans](https://balleralert.com/quavo-confirms-takeoff-album-migos-solo-projects) - Balleralert
+- [Quavo Teases Another Album After “QRÖMELIFE” As Migos Work Continues](https://allhiphop.com/news/quavo-teases-another-album-after-qromelife-as-migos-work-continues) - Allhiphop
+- [Raye hits back at ticket touts who 'overwhelmed' sign-up for Royal Albert show](https://www.bbc.co.uk/news/articles/c8vgxpwlx9wko) - BBC News
+- [Raye reveals the sign-up list for her upcoming show will be manually reviewed so 'fans can buy tickets at face value' after 1.8 million applied for just 5,000 seats](https://www.dailymail.com/tvshowbiz/article-16204479/Raye-reveals-sign-list-upcoming-manually-reviewed.html) - Dailymail.com
+- [Raye says ticket sign-up process 'overwhelmed' by bots](https://www.rte.ie/entertainment/2026/1013/1595277-raye-says-ticket-sign-up-process-overwhelmed-by-bots/) - RTE
+- [Raye says ticket scalpers used AI bots to create ‘hundreds of thousands of fake registrations’ as 1.8M sign up for 5,000 Royal Albert Hall seats - Music Business Worldwide](https://www.musicbusinessworldwide.com/raye-says-scalpers-used-ai-bots-to-create-hundreds-of-thousands-of-fake-registrations-as-1-8m-sign-up-for-5000-royal-albert-hall-seats) - Musicbusinessworldwide
+- [Raye hits back at ticket touts who 'overwhelmed' sign-up for Albert Hall show](https://www.yahoo.com/entertainment/music/articles/raye-hits-back-ticket-touts-091954195.html) - Yahoo
+- [Raye Royal Albert Hall show "overwhelmed by scalpers using AI bots" after receiving nearly 2million sign-ups](https://www.nme.com/news/music/raye-royal-albert-hall-show-overwhelmed-by-scalpers-using-ai-bots-after-receiving-nearly-2million-sign-ups-3973034) - Nme
+- [RAYE Decries Ticket Touts Who “Overwhelmed” Royal Albert Hall Sale](https://www.clashmusic.com/news/raye-decries-ticket-touts-who-overwhelmed-royal-albert-hall-sale) - Clashmusic
+- [Michael Stipe’s Debut Solo Album Almost Has a Release Date](https://pitchfork.com/story/michael-stipe-reveals-debut-solo-album-release-date/) - Pitchfork
+- [Michael Stipe’s Debut Solo Album Almost Has a Release Date](https://www.yahoo.com/entertainment/music/articles/michael-stipe-debut-solo-album-164226070.html) - Yahoo
+- [Michael Stipe’s Debut Solo Album Almost Has a Release Date \| Pitchfork](https://pitchfork.com/story/michael-stipe-reveals-debut-solo-album-release-date) - Pitchfork
+- [Michael Stipe Shares Debut Solo Album Release Plan, Talks New Music With Monica Lewinsky](https://stereogum.com/2514468/michael-stipe-shares-debut-solo-album-release-plan-talks-new-music-with-monica-lewinsky/news) - Stereogum
+- [Taylor Swift: Autumn Girl in Autumn Colours](https://www.laineygossip.com/where-will-taylor-swifts-the-life-of-a-showgirl-land-with-the-grammys-once-nominations-are-announced/) - LaineyGossip
+- [Taylor Swift's new releases aren't Grammy-eligible, but may boost odds](https://www.goldderby.com/music/2026/taylor-swift-patient-zero-life-of-a-showgirl-encore-grammys-explainer) - Goldderby
+- [Reply To: 2027 Grammy Submissions](https://www.goldderby.com/reply/1206568618) - Goldderby
