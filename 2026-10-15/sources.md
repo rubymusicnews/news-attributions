@@ -1,0 +1,59 @@
+# Sources for 2026-10-15 News Episode 
+- [The Rolling Stones Announce Deluxe Album Foreign Tongues, Loose Lips Featuring Five New Songs](https://consequence.net/2026/10/the-rolling-stones-foreign-tongues-loose-lips-deluxe-album/) - Consequence.net
+- [Rolling Stones annunciano la deluxe edition Foreign Tongues, Loose Lips](https://www.ansa.it/sito/notizie/topnews/2026/10/14/rolling-stones-annunciano-la-deluxe-edition-foreign-tongues-loose-lips_ba81b56d-2254-469e-9571-e58e94985a4c.html) - ANSA.it
+- [Rolling Stones annunciano la deluxe edition Foreign Tongues, Loose Lips](https://www.ansa.it/sito/notizie/cultura/musica/2026/10/14/rolling-stones-annunciano-la-deluxe-edition-foreign-tongues-loose-lips_39d2e545-3923-4461-b7b4-effb6b3e0061.html) - ANSA.it
+- [The Rolling Stones announce Foreign Tongues, Loose Lips, a deluxe edition of this year's Foreign Tongues album featuring five additional songs \| Louder](https://www.loudersound.com/bands-artists/the-rolling-stones-announce-foreign-tongues-loose-lips) - Loudersound
+- [THE ROLLING STONES Announce 'Foreign Tongues, Loose Lips', Deluxe Edition Of 'Foreign Tongues'](https://blabbermouth.net/news/the-rolling-stones-announce-foreign-tongues-loose-lips-deluxe-edition-of-foreign-tongues) - Blabbermouth
+- [The Rolling Stones Announce New Deluxe Edition Foreign Tongues, Loose Lips For November 2026 Release Featur...](https://music.mxdwn.com/2026/10/15/news/the-rolling-stones-announce-new-deluxe-edition-foreign-tongues-loose-lips-for-november-2026-release-featuring-previously-unreleased-tracks) - Mxdwn
+- [The Rolling Stones have five new songs coming out as Foreign Tongues gets expanded](https://www.music-news.com/news/UK/191748/The-Rolling-Stones-have-five-new-songs-coming-out-as-Foreign-Tongues-gets-expanded) - Music-news
+- [The Rolling Stones Announce Deluxe Album Foreign Tongues, Loose Lips Featuring Five New Songs](https://consequence.net/2026/10/the-rolling-stones-foreign-tongues-loose-lips-deluxe-album) - Consequence
+- [YouTube Puts AI Labels On Songs That Use The Tech For Vocals Or Composition](http://deadline.com/2026/10/youtube-music-ai-labels-1237157619/) - Deadline
+- [YouTube Adds 'Made with AI' Labels to Music Tracks \| The Tech Buzz](https://www.techbuzz.ai/articles/youtube-adds-made-with-ai-labels-to-music-tracks) - Techbuzz
+- [YouTube Music Adds New Labels For AI-Generated Content](https://www.engadget.com/2286764/youtube-music-adds-new-labels-for-ai-generated-content) - Engadget
+- [YouTube Music starts labeling AI-generated songs, using partner disclosures and its own detection tools - Music Business Worldwide](https://www.musicbusinessworldwide.com/youtube-music-starts-labeling-ai-generated-songs-using-partner-disclosures-and-its-own-detection-tools) - Musicbusinessworldwide
+- [YouTube Music launches new labels as AI-generated music floods streaming platforms](https://techcrunch.com/2026/10/14/youtube-music-launches-new-labels-as-ai-generated-music-floods-streaming-platforms) - Techcrunch
+- [YouTube Music will start labeling music 'primarily' created by AI - Android Authority](https://www.androidauthority.com/youtube-music-ai-labels-3723434) - Androidauthority
+- [YouTube Music adds new labels for AI music](https://blog.youtube/news-and-events/youtube-music-ai-labels) - Blog
+- [How one of the world’s biggest music stars is transforming the Spanish language](https://theconversation.com/how-one-of-the-worlds-biggest-music-stars-is-transforming-the-spanish-language-293164) - The Conversation Africa
+- [Calvin Harris announces 2027 North American tour; check full list of dates, cities and ticket sale details](https://economictimes.indiatimes.com/magazines/panache/calvin-harris-announces-2027-north-american-tour-check-full-list-of-dates-cities-and-ticket-sale-details/articleshow/134937939.cms) - The Times of India
+- [Calvin Harris announces 2027 North American tour; check full list of dates, cities and ticket sale details - The Economic Times](https://m.economictimes.com/magazines/panache/calvin-harris-announces-2027-north-american-tour-check-full-list-of-dates-cities-and-ticket-sale-details/articleshow/134937939.cms) - Economictimes
+- [Calvin Harris Announces 2027 North American Tour](https://consequence.net/2026/10/calvin-harris-2027-north-american-tour) - Consequence
+- [Calvin Harris Philadelphia concert 2027 at Xfinity Mobile Arena \| PhillyVoice](https://www.phillyvoice.com/calvin-harris-philadelphia-concert-2027-xfinity-mobile-arena) - Phillyvoice
+- [Calvin Harris Announces 2027 North American Tour - Full Dates and Ticket Sale Details](https://www.rustourismnews.com/2026/10/14/calvin-harris-announces-2027-north-american-tour-full-dates-and-ticket-sale-details) - Rustourismnews
+- [Calvin Harris announces 2027 North American tour: Full list of dates, cities and ticket details \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/music/news/calvin-harris-announces-2027-north-american-tour-full-list-of-dates-cities-and-ticket-details/articleshow/134945654.cms) - Indiatimes
+- [Slash: Guns N’ Roses Taking 2027 Off from Touring with Hopes of Working on New Music](https://consequence.net/2026/10/slash-guns-n-roses-2027-no-tour-new-music/) - Consequence.net
+- [Slash: Guns N' Roses Taking 2027 Off from Touring with Hopes of Working on New Music](https://consequence.net/2026/10/slash-guns-n-roses-2027-no-tour-new-music) - Consequence
+- [SLASH Says GUNS N’ ROSES Will Take a Touring Break In 2027 To Work On New Music](https://metaladdicts.com/slash-says-guns-n-roses-will-take-a-touring-break-in-2027-to-work-on-new-music) - Metaladdicts
+- [Slash Reveals Guns N’ Roses’ Big Plan for 2027: New Music Over More Touring - 102.9 WMGK](https://wmgk.com/2026/10/14/slash-reveals-guns-n-roses-big-plan-for-2027-new-music-over-more-touring) - Wmgk
+- [SLASH Says GUNS N' ROSES Will Take 2027 Off From Touring To Work On New Music: 'We Have So Much Material'](https://blabbermouth.net/news/slash-says-guns-n-roses-will-take-2027-off-from-touring-to-work-on-new-music-we-have-so-much-material) - Blabbermouth
+- [Nicole Scherzinger bounces back from suffering horrific burns as she leaps around the stage in a sparkly bikini as The Pussycat Dolls' problem-ridden reunion tour hits London](https://www.dailymail.com/tvshowbiz/article-16207647/Nicole-Scherzinger-Pussycat-Dolls-tour-London.html) - Dailymail.com
+- [Nicole Scherzinger performs after suffering leg burn](https://www.rte.ie/entertainment/2026/0928/1593165-nicole-scherzinger-performs-after-suffering-leg-burn) - Rte
+- [Bitwig & AlphaTheta announce collaboration](https://www.soundonsound.com/news/bitwig-alphatheta-announce-collaboration) - Soundonsound.com
+- [Bitwig now lets you import tracks directly from rekordbox – here's what you need to know \| MusicTech](https://musictech.com/news/industry/bitwig-rekordbox-alphatheta-partnership) - Musictech
+- [AlphaTheta & Bitwig Team Up: Your Rekordbox Library In A DAW](https://youtu.be/EAyVOz6VwNE?si=x5ussB-zVibvlMX9) - Youtu
+- [rekordbox Integration in Bitwig Studio: How It Works](https://youtu.be/sXbLompgkks?si=heRQBz6G88EmK52G) - Youtu
+- [Nuevo plan Studio de Rekordbox](https://www.tecnologiadj.com/nuevo-plan-studio-de-rekordbox) - Tecnologiadj
+- [Guns N’ Roses Members Posing With Arnold Schwarzenegger ‘Terminator’ in 1991](https://www.vintag.es/2026/10/guns-n-roses-arnold-schwarzenegger.html) - Vintag.es
+- [“I asked Arnold Schwarzenegger if he would do it, and he said ‘Only if you get the best band in the world’”: How Guns N’ Roses teamed up with a Hollywood megastar to make one of the most iconic videos of the 1990s](https://www.loudersound.com/music/tracks-singles/guns-n-roses-you-could-be-mine-story-behind-the-song) - Loudersound
+- [A Perfect Circle Premiere New Single & Music Video "Starless"](http://www.metalunderground.com/news/details.cfm?newsid=162277) - Metalunderground.com
+- [A Perfect Circle Premiere New Single & Music Video "Starless"](https://www.metalunderground.com/news/details.cfm?newsid=162277) - Metalunderground
+- [Staind Unleash “Ghosts,” First New Song in Three Years: Stream](https://consequence.net/2026/10/staind-ghosts-new-song/) - Consequence.net
+- [Staind Unleash “Ghosts,” First New Song in Three Years: Stream](https://www.imdb.com/news/ni66062376?ref_=ttnw_art_perm) - Imdb
+- [Staind Share “Ghosts” Music Video](https://v13.net/2026/10/staind-share-ghosts-music-video) - V13
+- [Staind Release New Single and Video 'Ghosts'](https://www.antimusic.com/p/26/r1014staind_release_new_single_and_video_ghosts.shtml) - Antimusic
+- [Staind Unleash "Ghosts," First New Song in Three Years](https://consequence.net/2026/10/staind-ghosts-new-song) - Consequence
+- [Hear STAIND's remorseful new song "Ghosts"](https://www.revolvermag.com/news/hear-stainds-remorseful-new-song-ghosts) - Revolvermag
+- [Staind Share “Ghosts” Video And Extend Break The Cycle Anniversary Tour](https://themosh.net/staind-ghosts-music-video-break-the-cycle-tour) - Themosh
+- [LiSAが憧れの街ロンドンで長年の夢を叶え、全17曲を絶唱した夜](https://news.livedoor.com/article/detail/32562016/) - Livedoor.com
+- [Punk Poetics: LiSA Interviewed \| Features \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/features/punk-poetics-lisa-interviewed) - Clashmusic
+- [LiSA [FULL CONCERT] - London LiVE is Smile Always Troxy, UK 22/09/26 4K 60FPS](https://www.youtube.com/watch?v=MjzB4l5SJMc) - Youtube
+- [Rapper Macklemore who was axed from Ed Sheeran tour announces new Wembley Arena gig that will benefit 'extremist' group that said Hamas' hostage-taking was 'legitimate'](https://www.dailymail.com/news/article-16204933/Macklemore-Free-Palestine-gig-Wembley-Arena-extremist-group.html) - Dailymail.com
+- [Macklemore Announces Free Palestine Tour \| Pitchfork](https://pitchfork.com/story/macklemore-announces-free-palestine-tour) - Pitchfork
+- [Exclusive: Xdinary Heroes Dishes On “IMPULSE” Comeback, What The Group Means To Them, And More](http://www.soompi.com/article/1877599wpp/exclusive-xdinary-heroes-dishes-on-impulse-comeback-what-the-group-means-to-them-and-more) - soompi
+- [Xdinary Heroes preview youth anthem with 'Obsessed with Youth' MV teaser - CHOSUNBIZ](https://biz.chosun.com/en/en-entertainment/2026/10/11/HOUKQPONGRA7XBBNWY4VNC6DQY) - Chosun
+- [Xdinary Heroes explores desire, youth in 9th mini album 'IMPULSE' - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261012/xdinary-heroes-explore-desire-youth-in-9th-mini-album-impulse) - Koreatimes
+- [Big Thief Launch Grateful Dead-Inspired Live Archive](https://consequence.net/2026/10/big-thief-live-archive-incomprehensible/) - Consequence.net
+- [Big Thief Launch Free Concert Archive](https://pitchfork.com/story/big-thief-launch-free-concert-archive/) - Pitchfork
+- [Big Thief Reveals Its Concert Archive](https://www.spinmagazine.com/2026/10/big-thief-reveals-its-concert-archive/) - Spinmagazine.com
+- [Big Thief launch live recordings archive](https://www.thelineofbestfit.com/news/big-thief-launch-live-recordings-archive) - Thelineofbestfit.com
+- [Big Thief Share Newly Launched Live Archive](https://exclaim.ca/music/article/big-thief-share-newly-launched-live-archive) - Exclaim!
