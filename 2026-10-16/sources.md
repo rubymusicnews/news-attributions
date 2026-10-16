@@ -1,0 +1,58 @@
+# Sources for 2026-10-16 News Episode 
+- [Blondie Announce New Album ‘High Noon,’ Clem Burke’s Final Recording](http://www.rollingstone.com/music/music-news/blonde-new-album-high-noon-clem-burke-final-recording-1235642952/) - Rolling Stone
+- [Blondie Rises ‘High’ On First LP In Nine Years](https://www.spinmagazine.com/2026/10/blondie-new-album/) - Spinmagazine.com
+- [Johnny Marr, Glen Matlock and more feature on new Blondie album, High Noon](https://www.thelineofbestfit.com/news/johnny-marr-glen-matlock-and-more-feature-on-new-blondie-album-high-noon) - Thelineofbestfit.com
+- [Blondie Announce High Noon, First New Album in Nine Years](https://consequence.net/2026/10/blondie-announce-high-noon-first-new-album-in-nine-years/) - Consequence.net
+- [Blondie to release first album in nine years](https://www.rte.ie/entertainment/2026/1015/1595448-blondie-to-release-first-album-in-nine-years/) - RTE
+- [Grammy Family Feuds: Six Times Relatives Competed for the Same Award](http://www.rollingstone.com/music/music-features/grammys-family-members-compete-1235639846/) - Rolling Stone
+- [Grammys 2027: Best New Artist Predictions](https://www.hollywoodreporter.com/music/music-features/grammys-2027-best-new-artist-predictions-1236723319) - Hollywoodreporter
+- [Grammy Family Feud: Julio Iglesias, Willie Nelson, Lukas Nelson](https://www.rollingstone.com/music/music-features/grammys-family-members-compete-1235639846) - Rollingstone
+- [Look for Rock, Country, and Indie-Pop in the 2027 Grammys Best New Artist Race](http://www.rollingstone.com/music/music-features/2027-grammys-nominees-best-new-artist-predictions-1235631616/) - Rolling Stone
+- [THE BEATLES Producer Explains Why Releasing All Four Biopics Together Will Make the Experience More Powerful](https://geektyrant.com/news/the-beatles-producer-explains-why-releasing-all-four-biopics-together-will-make-the-experience-more-powerful) - GeekTyrant
+- [Sam Mendes’ 'The Beatles – A Four Film Cinematic Event' will be released in April 2028. Read more below.](https://www.facebook.com/deadline/posts/sam-mendes-the-beatles-a-four-film-cinematic-event-will-be-released-in-april-202/1460376229296046) - Facebook
+- ['The Beatles' Biopics Producer On Releasing All Four Movies at Once](https://variety.com/2026/film/global/the-beatles-films-producer-on-releasing-four-movies-at-once-1236909058) - Variety
+- [‘Beatles’ Producer Pippa Harris Shares Update On Sam Mendes Film Series & Explains Staggered Release Strategy — LFF - Yahoo News Malaysia](https://malaysia.news.yahoo.com/beatles-producer-pippa-harris-shares-153935447.html) - Yahoo
+- [Sam Mendes’ Four-Film Beatles Event Set for Staggered Release in 2028](https://www.joblo.com/sam-mendes-beatles-movies-release-details) - Joblo
+- [Beatles Movie Update Offers New Details About Release Date Plan](https://www.yahoo.com/entertainment/movies/articles/beatles-movie-offers-details-release-173457975.html) - Yahoo
+- [Suno-made track ‘The Adult I Dreamed Of’ is a hit in South Korea](https://musically.com/2026/10/15/suno-made-track-the-adult-i-dreamed-of-is-a-hit-in-south-korea/) - Music Ally
+- [AI-assisted song climbs South Korean charts as copyright rules struggle to keep pace \| The Straits Times](https://www.straitstimes.com/life/ai-assisted-song-climbs-south-korean-charts-as-copyright-rules-struggle-to-keep-pace) - Straitstimes
+- [AI song The Adult I Dreamed Of by Meomuru rises on Korean charts, raises copyright questions](https://www.wionews.com/entertainment/ai-song-the-adult-i-dreamed-of-by-meomuru-rises-on-korean-charts-raises-copyright-questions-1792054061975) - Wionews
+- [Billy Joel says he can't drive, unsure about touring future after brain disorder diagnosis](https://www.foxnews.com/entertainment/billy-joel-says-he-cant-drive-unsure-about-touring-future-after-brain-disorder-diagnosis) - Fox News
+- [Billy Joel reveals he can’t drive or perform anymore in heartbreaking health update](https://pagesix.com/2026/10/15/entertainment/billy-joel-reveals-he-cant-drive-perform-anymore-in-health-update/) - Page Six
+- [Billy Joel says he can't drive, unsure about touring future after brain disorder diagnosis](https://www.aol.com/articles/billy-joel-says-cant-drive-222700000.html) - Aol
+- [Billy Joel says he can't drive, perform in new health update - ABC News](https://abcnews.com/GMA/Culture/billy-joel-drive-perform-new-health-update/story?id=137295722) - Abcnews
+- [Billy Joel addresses potential return to touring after health diagnosis \| The Independent](https://www.independent.co.uk/life-style/billy-joel-health-update-brain-drive-perform-b3067675.html) - Independent
+- [Billy Joel Shares Update Amid Brain Disorder Diagnosis](https://www.usmagazine.com/celebrity-news/news/billy-joel-shares-update-amid-brain-disorder-diagnosis) - Usmagazine
+- [Snoh Aalegra returns with first new music in three years, "Karma"](https://www.thelineofbestfit.com/news/snoh-aalegra-returns-with-first-new-music-in-three-years-karma) - Thelineofbestfit.com
+- [noh Aalegra address an intimate past-life muse on new track "Karma"](https://hit-channel.com/snoh-aalegra-confronts-past-life-heartbreak-on-new-single-karma) - Hit-channel
+- [Snoh Aalegra returns with new single "Karma"](https://theneedledrop.com/news/snoh-aalegra-returns-with-new-single-karma) - Theneedledrop
+- [Snoh Aalegra Returns With New Neo-Soul Single "Karma" \| Hypebeast](https://hypebeast.com/2026/10/snoh-aalegra-returns-with-new-neo-soul-single-karma) - Hypebeast
+- [Listen to HAAi’s FADER Mix, recorded live at Maiden Voyage](https://www.thefader.com/2026/10/15/fader-mix-haai-maiden-voyage) - The FADER
+- [Audrey Hobert Reflects on Her Wild Year (And Loving Nathan Fielder)](http://www.rollingstone.com/music/music-features/audrey-hobert-rolling-stone-studio-interview-1235633177/) - Rolling Stone
+- [Audrey Hobert Reflects on 'Who's the Clown,' Opening for Charli XCX](https://www.rollingstone.com/music/music-features/audrey-hobert-rolling-stone-studio-interview-1235633177) - Rollingstone
+- [Audrey Hobert’s ‘The Staircase to Stardom Tour’: First 2026 hometown show in Brooklyn - The Signal](https://www.tcnjsignalnews.com/article/2026/10/audrey-hoberts-the-staircase-to-stardom-tour-first-2026-hometown-show-in-brooklyn) - Tcnjsignalnews
+- [Audrey Hobert on Ignoring Social Media, Gracie Abrams and Grammys](https://variety.com/2026/music/news/audrey-hobert-social-media-gracie-abrams-grammys-1236903543) - Variety
+- [Danny Elfman Says Tool Album Helped Him Endure the Pain of His Multiple Tattoos](https://consequence.net/2026/10/danny-elfman-tool-album-helped-pain-tattoos/) - Consequence.net
+- [Danny Elfman Credits Tool for Inspiring His Tattoo Collection ...](https://app.wttsfm.com/news/2026/10/15/all/danny-elfman-credits-tool-for-inspiring-his-tattoo-collectio/3750152) - Wttsfm
+- [Danny Elfman Says Tool Album Helped Him Endure the Pain of His Multiple Tattoos - IMDb](https://www.imdb.com/news/ni66064853?ref_=nmnw_art_perm) - Imdb
+- [Consequence - Danny Elfman credits Tool's Fear Inoculum ...](https://www.facebook.com/consequence/posts/danny-elfman-credits-tools-fear-inoculum-with-helping-him-endure-the-pain-of-get/1588151356685963) - Facebook
+- [Danny Elfman Says Tool Album Helped Him Through His Multiple Tattoos](https://consequence.net/2026/10/danny-elfman-tool-album-helped-pain-tattoos) - Consequence
+- [Iron Maiden, Tool, Danny Elfman, Limp Bizkit, Danzig Rock Louder Than Life 2026 Fest](https://consequence.net/2026/09/louder-than-life-2026-fest-photos) - Consequence
+- [FORM Arcosanti is a music heaven in the desert](https://www.thefader.com/2026/10/15/form-arcosanti-festival-2026-review) - The FADER
+- [Why the Form Arcosanti Festival Is Facing a Make-or-Break 2026](https://www.billboard.com/music/features/form-arcosanti-2026-festival-arizona-interview-lorde-1236356518) - Billboard
+- [Lorde, Turnstile and a $1,000 Ticket: Inside FORM Arcosanti’s High-Stakes 2026 Return](https://www.yahoo.com/entertainment/music/articles/lorde-turnstile-1-000-ticket-172916364.html) - Yahoo
+- [Ben Gibbard Says The O.C. Was Death Cab for Cutie’s Ticket from Bleach to Nevermind Status](https://consequence.net/2026/10/ben-gibbard-death-cab-for-cutie-the-oc-nevermind/) - Consequence.net
+- [Ben Gibbard: The O.C. Elevated Death Cab for Cutie to Nevermind Status](https://consequence.net/2026/10/ben-gibbard-death-cab-for-cutie-the-oc-nevermind) - Consequence
+- [Drakeo the Ruler’s Mom Settles With Live Nation Over Rapper’s Killing at Music Festival](http://www.rollingstone.com/music/music-news/drakeo-the-ruler-mom-settles-live-nation-wrongful-death-1235642809/) - Rolling Stone
+- [Drakeo the Ruler’s Mom Settles Lawsuit Over Rapper’s M*rder](https://mediatakeout.com/drakeo-the-rulers-mom-settles-lawsuit-over-rappers-mrder/) - Mediatakeout.com
+- [Drakeo the Ruler’s Estate Reaches Settlement With Live Nation in Wrongful Death Lawsuit](https://www.complex.com/music/a/jose-martinez/drakeo-ruler-estate-live-nation-settlement) - Complex
+- [Drakeo the Ruler's Mom Settles With Live Nation Over Festival Death](https://www.rollingstone.com/music/music-news/drakeo-the-ruler-mom-settles-live-nation-wrongful-death-1235642809) - Rollingstone
+- [Drakeo the Ruler’s mother reaches settlement over his killing](https://www.pastemagazine.com/music/drakeo-the-ruler/drakeo-the-rulers-mother-reaches-settlement-with-live-nation-over-his-killing-at-california-music-festival) - Pastemagazine
+- [Drakeo the Ruler Estate Settles Live Nation Lawsuit Over Stabbing](https://www.billboard.com/pro/drakeo-the-ruler-settles-live-nation-lawsuit-stabbing) - Billboard
+- [Drakeo The Ruler's Family Reaches Settlement With Live Nation In Wrongful Death Lawsuit](https://www.hotnewhiphop.com/1013054-drakeo-the-ruler-live-nation-settlement) - Hotnewhiphop
+- [Tortured Demon Premiere New Single & Music Video "Apocalypse" - Sign With BLKIIBLK](http://www.metalunderground.com/news/details.cfm?newsid=162293) - Metalunderground.com
+- [TORTURED DEMON Unleashes New Single "Apocalypse"; Official Music Video](https://bravewords.com/news/tortured-demon-unleashes-new-single-apocalypse-official-music-video) - Bravewords
+- [Tortured Demon Sign With BLKIIBLK And Release “Apocalypse” Video](https://themosh.net/tortured-demon-apocalypse-video-blkiiblk-signing) - Themosh
+- [Tortured Demon release new music video for ‘Apocalypse’](https://distortedsoundmag.com/tortured-demon-release-new-music-video-for-apocalypse) - Distortedsoundmag
+- [Rising metal force Tortured Demon unleash new single "Apocalypse" - Chaoszine](https://chaoszine.net/rising-metal-force-tortured-demon-unleash-new-single-apocalypse) - Chaoszine
+- [Tortured Demon debut new single "Apocalypse"; announce signing with BLKIIBLK Records - Lambgoat](https://lambgoat.com/news/55352/tortured-demon-debut-new-single-apocalypse-announce-signing-with-blkiiblk-records) - Lambgoat
