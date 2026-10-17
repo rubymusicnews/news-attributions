@@ -1,0 +1,73 @@
+# Sources for 2026-10-17 News Episode 
+- [Karol G Celebrates Latest Tour Leg With ‘Bby Wow’ Music Video](http://www.rollingstone.com/music/music-latin/karol-g-bby-wow-music-video-1235643905/) - Rolling Stone
+- [Karol G Shares 'Bby Wow' Music Video to Celebrate Tour Leg Conclusion](https://www.rollingstone.com/music/music-latin/karol-g-bby-wow-music-video-1235643905) - Rollingstone
+- ['Bella From Barneys' Series Lands at Amazon From Josh ...](https://www.yahoo.com/entertainment/tv/articles/bella-barneys-series-lands-amazon-162606452.html) - Yahoo
+- [Karol G Shares ‘Bby Wow’ Music Video to Celebrate Tour Leg ...](https://musicianvoice.com/index.php/2026/10/16/karol-g-shares-bby-wow-music-video-to-celebrate-tour-leg-conclusion) - Musicianvoice
+- [Karol G’s “BbY WOW” Reclaims No. 1 on Global Charts for Fifth Week \| Vermilion County First](https://vermilioncountyfirst.com/2026/10/14/karol-gs-bby-wow-reclaims-no-1-on-global-charts-for-fifth-week) - Vermilioncountyfirst
+- [INTERVIEW: LOS MENOR3S on 'BbY WOW' Dance & Karol G](https://remezcla.com/music/interview-los-menor3s-on-their-viral-bby-wow-dance-meeting-karol-g) - Remezcla
+- [Iron Maiden Extend Run for Your Lives Tour into 2027](https://exclaim.ca/music/article/iron-maiden-extend-run-for-your-lives-tour-into-2027) - Exclaim!
+- [Iron Maiden Announce 2027 North American Tour](https://consequence.net/2026/10/iron-maiden-2027-north-american-tour/) - Consequence.net
+- [Iron Maiden Announces 2027 Spring North American Tour - Glide Magazine](https://glidemagazine.com/331732/iron-maiden-announces-2027-spring-north-american-tour) - Glidemagazine
+- [Iron Maiden confirm final North American ‘Run For Your Lives’ tour dates for 2027](https://nextmosh.com/iron-maiden-confirm-final-north-american-run-for-your-lives-tour-dates-for-2027) - Nextmosh
+- [Iron Maiden Announce 2027 North American Run For Your Lives Tour](https://www.thisdayinmetal.com/iron-maiden-announce-surprise-third-and-final-leg-of-the-run-for-your-lives-tour-for-north-america-in-2027) - Thisdayinmetal
+- [Iron Maiden Announces 2027 North American Tour Dates](https://ultimateclassicrock.com/iron-maiden-2027-north-american-tour) - Ultimateclassicrock
+- [Iron Maiden Announce 2027 North American Tour](https://consequence.net/2026/10/iron-maiden-2027-north-american-tour) - Consequence
+- [Iron Maiden Run For Your Lives Tour 2027: Dates and Tickets \| SeatGeek](https://seatgeek.com/blog/iron-maidens-final-run-for-your-lives-north-american-tour-dates-for-2027-schedule-presales-tickets-and-openers) - Seatgeek
+- [CHARLOTTE DE WITTE. A NEW BEAT FOR TUDOR](https://www.prnewswire.com/news-releases/charlotte-de-witte-a-new-beat-for-tudor-302911223.html) - PRNewswire
+- [Watch News: Tudor signs techno icon Charlotte de Witte - Something About Rocks](https://somethingaboutrocks.com/watch-news-tudor-signs-techno-icon-charlotte-de-witte) - Somethingaboutrocks
+- [Charlotte de Witte Joins TUDOR: Techno Pioneer Named ...](https://medianewsjournal.com/2026/10/charlotte-de-witte-joins-tudor-techno-pioneer-named-brand-ambassador) - Medianewsjournal
+- [Charlotte de Witte (@charlottedewittemusic)](https://www.threads.com/@charlottedewittemusic) - Threads
+- [The biggest name in techno joins the TUDOR family as a ...](https://www.instagram.com/p/DejuzqgDrQr) - Instagram
+- [Olivia Rodrigo Releases New “expectations” Remix with Chappell Roan: Stream](https://consequence.net/2026/10/olivia-rodrigo-chappell-roan-expectations-remix/) - Consequence.net
+- [Olivia Rodrigo and Chappell Roan Play David Byrne’s Gameshow in “Expectations” Video](https://pitchfork.com/story/olivia-rodrigo-and-chappell-roan-play-david-byrnes-gameshow-in-expectations-video/) - Pitchfork
+- [Brooklyn Punk Duo Venus Twins Tell Us How They Ended Up in Olivia Rodrigo’s New Music Video](http://www.rollingstone.com/music/music-features/venus-twins-olivia-rodrigo-chappell-roan-expectations-video-1235643173/) - Rolling Stone
+- [Universal Music Canada](https://www.universalmusic.ca/2026/10/13/olivia-rodrigo-announces-expectations-remix-feat-chappell-roan) - Universalmusic
+- [Olivia Rodrigo Drops "expectations" Remix with Chappell Roan](https://consequence.net/2026/10/olivia-rodrigo-chappell-roan-expectations-remix) - Consequence
+- [Olivia Rodrigo teams up with Chappell Roan for 'Expectations Remix' – and David Byrne and Dan Nigro for video](https://www.nme.com/news/music/olivia-rodrigo-teams-up-with-chappell-roan-for-expectations-remix-and-david-byrne-and-dan-nigro-for-video-3973347) - Nme
+- [Olivia Rodrigo Taps Chappell Roan for “expectations” Remix](https://billboardphilippines.com/music/news/olivia-rodrigo-chappell-roan-expectations-remix) - Billboardphilippines
+- [Olivia Rodrigo & Chappell Roan Announce 'Expectations' Remix: Release Date & Time](https://www.justjared.com/2026/10/13/olivia-rodrigo-chappell-roan-expectations-remix-release-date) - Justjared
+- [Chappell Roan’s first feature rewrites Olivia Rodrigo’s ‘expectations’ – Martin Cid Magazine](https://www.martincid.com/music-en/olivia-rodrigo-chappell-roan-expectations) - Martincid
+- [Wyclef Jean and Carlos Santana Team Up for “Freedom” Remix, 27 Years After “Maria Maria” Collab: Watch](https://consequence.net/2026/10/wyclef-jean-carlos-santana-collab-freedom-maria-maria/) - Consequence.net
+- [Global Music Icons Wyclef Jean And Carlos Santana ...](https://shorefire.com/releases/entry/global-music-icons-wyclef-jean-and-carlos-santana-reunite-for-timely-anthem-freedom-carlos-santana-remix) - Shorefire
+- [Wyclef Jean and Carlos Santana Release New Collab 27 Years After “Maria Maria”](https://consequence.net/2026/10/wyclef-jean-carlos-santana-collab-freedom-maria-maria) - Consequence
+- [Wyclef Jean and Carlos Santana Reunite on Addictive new Anthem "Freedom"](https://www.complex.com/music/a/will-lavin/wyclef-jean-carlos-santana-reunite-freedom-listen) - Complex
+- [Carlos Santana, Wyclef Jean reunite for ‘Freedom’](https://themusicuniverse.com/carlos-santana-wyclef-jean-reunite-for-freedom) - Themusicuniverse
+- [Singer Kenshi Yonezu Goes on World Tour in Early 2027](https://www.animenewsnetwork.com/news/2026-10-15/singer-kenshi-yonezu-goes-on-world-tour-in-early-2027/.242870) - Anime News Network
+- [Kenshi Yonezu Announces Dates in North America, Asia, Europe and the UK on Ghost World Tour](https://newsroom.livenation.com/news/kenshi-yonezu-announces-dates-in-north-america-asia-europe-and-the-uk-on-ghost-world-tour) - Livenation
+- [Kenshi Yonezu Announces 12 Date Expansion To GHOST World Tour](https://nysmusic.com/2026/10/15/kenshi-yonezu-announces-12-date-expansion-to-ghost-world-tour) - Nysmusic
+- [Singer Kenshi Yonezu to Hold Singapore Concert as Part of World Tour - News - Anime News Network](https://www.animenewsnetwork.com/news/2026-10-16/singer-kenshi-yonezu-to-hold-singapore-concert-as-part-of-world-tour/.242882) - Animenewsnetwork
+- [Kenshi Yonezu World Tour Comes To Singapore This January 2027 - THE MAGIC RAIN](https://themagicrain.com/2026/10/kenshi-yonezu-world-tour-comes-to-singapore-this-january-2027) - Themagicrain
+- [Kenshi Yonezu Expands 'GHOST' World Tour With 12 Arena Dates Across Asia, North America and Europe](https://www.rockumweb.com/reportes/2591/kenshi-yonezu-expands-ghost-world-tour-with-12-arena-dates-across-asia-north-america-and-europe) - Rockumweb
+- [KENSHI YONEZU Announces GHOST WORLD TOUR Dates \| The Outerhaven](https://www.theouterhaven.net/kenshi-yonezu-announces-ghost-world-tour-dates) - Theouterhaven
+- [The Pretty Reckless Unveil New Version of “About You” Featuring Dave Grohl and Pat Smear: Stream](https://consequence.net/2026/10/the-pretty-reckless-about-you-dave-grohl-pat-smear-stream/) - Consequence.net
+- [The Pretty Reckless Unveil New Version of “About You” Featuring Dave Grohl and Pat Smear: Stream](https://consequence.net/2026/10/the-pretty-reckless-about-you-dave-grohl-pat-smear-stream) - Consequence
+- [The Pretty Reckless Join Forces With Dave Grohl & Pat Smear For New Rendition Of “About You” - mxdwn Music](https://music.mxdwn.com/2026/10/16/news/the-pretty-reckless-join-forces-with-dave-grohl-pat-smear-for-new-rendition-of-about-you) - Mxdwn
+- [THE PRETTY RECKLESS Teams Up With DAVE GROHL For 'About You' (Bonus Version) - BLABBERMOUTH.NET](https://blabbermouth.net/news/the-pretty-reckless-teams-up-with-dave-grohl-for-about-you-bonus-version) - Blabbermouth
+- [The Pretty Reckless estrena 'About You' con Dave Grohl y Pat Smear](https://summainferno.com/en/the-pretty-reckless-about-you-dave-grohl-pat-smear) - Summainferno
+- [Ando San releases the drumline-induced sound of “March For Me” - Chaoszine](https://chaoszine.net/ando-san-releases-the-drumline-induced-sound-of-march-for-me) - Chaoszine
+- [Neil Young’s Right-hand Man Has Stories to Tell](http://www.vulture.com/article/spooner-oldham-interview-neil-young.html) - Vulture
+- [Neil Young’s Right-hand Man Has Stories to Tell](https://www.vulture.com/article/spooner-oldham-interview-neil-young.html) - Vulture
+- [Megan Thee Stallion Revives Tina Snow Ahead Of New Album And Victoria’s Secret Show](https://hiphopwired.com/3068022/megan-thee-stallion-revives-tina-snow/) - Hip-Hop Wired
+- [Snoh Aalegra Teases New Music With "Run Free" Visual](https://miixtapechiick.com/snoh-aalegra-run-free-album-teaser) - Miixtapechiick
+- [Megan Thee Stallion Revives Tina Snow Ahead Of New Album](https://hiphopwired.com/3068022/megan-thee-stallion-revives-tina-snow) - Hiphopwired
+- [Megan Thee Stallion Revives Tina Snow on New Freestyle](https://miixtapechiick.com/megan-thee-stallion-tina-tuesday-freestyle) - Miixtapechiick
+- [Megan Thee Stallion Says Victoria’s Secret Fashion Show Fulfills Her Dream](https://allhiphop.com/news/megan-thee-stallion-says-victorias-secret-fashion-show-fulfills-her-dream) - Allhiphop
+- [Megan Thee Stallion Keeps Tina Tuesday Hot With New Freestyle](https://wild941.com/2026/10/07/megan-thee-stallion-keeps-tina-tuesday-hot-with-new-freestyle) - Wild941
+- [“Licensing uncertainties” lead DGTL India to move its Mumbai leg to Goa](https://musically.com/2026/10/16/licensing-uncertainties-lead-dgtl-india-to-move-its-mumbai-leg-to-goa/) - Music Ally
+- [“Licensing uncertainties” lead DGTL India to move its Mumbai leg to Goa](https://musically.com/2026/10/16/licensing-uncertainties-lead-dgtl-india-to-move-its-mumbai-leg-to-goa) - Musically
+- [DGTL India 2026 moves its Mumbai festival venue to Goa on November 2026](https://www.timeout.com/india/news/dgtl-india-2026-moves-its-mumbai-festival-venue-to-goa-101526) - Timeout
+- [Os 25 melhores álbuns de todos os tempos, segundo David Bowie](https://rollingstone.com.br/musica/os-25-melhores-albuns-de-todos-os-tempos-segundo-david-bowie/) - Rollingstone.com.br
+- [HYBE and BookMyShow to bring Weverse Con Festival to India in March 2027](https://www.thehindubusinessline.com/news/variety/hybe-and-bookmyshow-to-bring-weverse-con-festival-to-india-in-march-2027/article71593344.ece) - BusinessLine
+- [Weverse Con Festival India Debuts for the First Time \| Outlook Respawn](https://respawn.outlookindia.com/pop-culture/pop-culture-news/hybes-weverse-con-festival-is-coming-to-india-in-2027) - Outlookindia
+- [HYBE brings Weverse Con to India for first time, Delhi to host K-pop festival in March 2027](https://www.indiatodayne.in/entertainment/story/hybe-brings-weverse-con-to-india-for-first-time-delhi-to-host-k-pop-festival-in-march-2027-1460692-2026-10-09) - Indiatodayne
+- [Weverse Con Festival India 2027: Tickets, Presale Dates, General Sale, Venue, Lineup And Everything You Need To Know](https://sundayguardianlive.com/entertainment-news/weverse-con-festival-india-2027-tickets-presale-dates-general-sale-venue-lineup-and-everything-you-need-to-know-301525) - Sundayguardianlive
+- [ENHYPEN, TXT, LE SSERAFIM and Hwasa lead the star-studded K-pop lineup as India gets its first Weverse Con Festival in 2027 in New Delhi \| Hindustan Times](https://www.hindustantimes.com/entertainment/music/enhypen-txt-le-sserafim-hwasa-lara-raj-katseye-lead-the-star-studded-kpop-lineup-as-india-gets-its-first-weverse-con-festival-in-2027-in-new-delhi-101792142688665.html) - Hindustantimes
+- [Watch Method Man’s Face as He Finally Hears $2M Wu-Tang Clan Album For First Time](https://www.theroot.com/watch-method-man-s-face-as-he-finally-hears-2m-wu-tang-2000131048) - The Root
+- [Stream It Or Skip It: ‘The Disciple: A Wu-Tang Fable’ on Netflix, the Story of a Superfan Who Helped Immortalize (and Nearly Destroy) His Favorite Hip-Hop Group](https://decider.com/2026/10/16/the-disciple-a-wu-tang-fable-netflix-review-stream-it-or-skip-it/) - Decider
+- [We can finally hear some of Wu-Tang Clan’s Once Upon A Time in Shaolin album \| The Verge](https://www.theverge.com/entertainment/1013277/wu-tang-once-upon-a-time-in-shaolin-pablo-torre-martin-shkreli) - Theverge
+- [Method Man reacts to hearing Wu-Tang Clan's 'Once Upon ...](https://www.facebook.com/Billboard/posts/method-man-reacts-to-hearing-wu-tang-clans-once-upon-a-time-in-shaolin-album-for/1477383230928917) - Facebook
+- [Method Man Gives First Reaction to Wu-Tang's Once Upon a Time in Shaolin](https://consequence.net/2026/10/method-man-once-upon-a-time-in-shaolin-first-listen-reaction) - Consequence
+- [Method Man on Wu-Tang Clan's One-Copy-Only Album: 'I Don't Hate It'](https://www.rollingstone.com/music/music-news/method-man-wu-tang-clan-hears-shaolin-album-first-time-1235643904) - Rollingstone
+- [Method Man Hears Wu-Tang's 'Once Upon a Time in Shaolin' for 1st Time](https://www.billboard.com/music/rb-hip-hop/method-man-wu-tang-clan-once-upon-a-time-in-shaolin-reaction-1236361871) - Billboard
+- [16 New Rock + Metal Tours Announced This Past Week](https://loudwire.com/new-rock-metal-tours-announced-oct-9-15-2026/) - Loudwire
+- [16 New Rock + Metal Tours Announced This Past Week](https://loudwire.com/new-rock-metal-tours-announced-oct-9-15-2026) - Loudwire
