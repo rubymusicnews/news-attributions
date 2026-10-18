@@ -1,0 +1,62 @@
+# Sources for 2026-10-18 News Episode 
+- [Οι BTS έγραψαν ξανά ιστορία: Το «Arirang» ξεπέρασε τα 5 δισ. streams στο Spotify και έγινε το δημοφιλέστερο άλμπουμ του 2026](https://www.newsit.gr/lifestyle/oi-bts-egrapsan-ksana-istoria-to-arirang-kseperase-ta-5-dis-streams-sto-spotify-kai-egine-to-dimofilestero-almpoum-tou-2026/4800827/) - Newsit.gr
+- [BTS' 'Arirang' hits 5 bln Spotify streams, topping 2026 releases \| Yonhap News Agency](https://en.yna.co.kr/view/AEN20261014002400315) - Yna
+- [The album "Arirang" by the South Korean band BTS has surpassed 5 billion streams.](https://www.vietnam.vn/en/album-arirang-cua-ban-nhac-han-quoc-bts-vuot-moc-5-ty-luot-nghe) - Vietnam
+- [BTS’s ARIRANG passes 5 billion Spotify streams – around 2 billion more than any other album released in 2026, says BigHit Music - Music Business Worldwide](https://www.musicbusinessworldwide.com/btss-arirang-passes-5-billion-spotify-streams-around-2-billion-more-than-any-other-album-released-in-2026-says-bighit-music) - Musicbusinessworldwide
+- [BTS’ ARIRANG smashes past 5 billion Spotify streams, making it the biggest album of 2026 so far - Yahoo News UK](https://uk.movies.yahoo.com/news/bts-arirang-smashes-past-5-110000677.html) - Yahoo
+- [BTS’ ARIRANG becomes the fifth-fastest album in history to surpass 5 billion spotify streams · Business Upturn](https://businessupturn.com/entertainment/music/bts-arirang-becomes-the-fifth-fastest-album-in-history-to-surpass-5-billion-spotify-streams) - Businessupturn
+- [BTS becomes 1st group to top 10 bln Spotify streams in single year \| Yonhap News Agency](https://en.yna.co.kr/view/AEN20261016004500315) - Yna
+- [Miley Cyrus Embraces Being the Anti-Pop Pop Star With Her First ‘Bass Persuades’ Concert at Hollywood Bowl: Concert Review](https://variety.com/2026/music/news/miley-cyrus-bass-persuades-hollywood-bowl-concert-review-1236914661/) - Variety
+- [Miley Cyrus Tears Up While Honoring Dolly Parton During Hollywood Bowl Show: ‘Nothing In This Life Could Ever Tear Us Apart’](https://variety.com/2026/music/news/miley-cyrus-tears-up-honoring-dolly-parton-hollywood-bowl-1236914884/) - Variety
+- [Miley Cyrus Tearfully Honors Dolly Parton at LA Concert: ‘I Feel Her More Than Ever’](https://www.thewrap.com/creative-content/music/miley-cyrus-honors-dolly-parton-at-la-concert/) - TheWrap
+- [Miley Cyrus Breaks Down During Tribute to Dolly Parton: ‘Me and Dolly, We Are Eternal’](https://www.today.com/popculture/news/miley-cyrus-tearful-tribute-dolly-parton-hollywood-bowl-rcna604020) - TODAY
+- [I’m Emotional Over Miley Cyrus’ Personal Reason For Paying Tribute To Dolly Parton At Her First Big Concert In Years](https://www.cinemablend.com/television/emotional-miley-cyrus-personal-reason-paying-tribute-dolly-parton-jolene-hollywood-bowl) - CinemaBlend
+- [Miley Cyrus cries while honoring late godmother Dolly Parton at LA concert: ‘I miss her’](https://pagesix.com/2026/10/17/entertainment/miley-cyrus-cries-while-honoring-dolly-parton-at-la-concert/) - Page Six
+- [Harry Styles Performs New Song Written for Liam Payne at MSG](http://www.rollingstone.com/music/music-news/harry-styles-liam-payne-new-song-msg-1235644335/) - Rolling Stone
+- [Harry Styles pays heartbreaking tribute to Liam Payne with never-before-heard song 2 years after his death](https://pagesix.com/2026/10/17/entertainment/harry-styles-honors-liam-payne-with-new-song-on-death-anniversary/) - Page Six
+- [Harry Styles Performs Unreleased Song Dedicated to Liam Payne at Madison Square Garden](https://www.complex.com/music/a/jadegomez510/harry-styles-what-enough-liam-payne-msg) - Complex
+- [Harry Styles Performs New Song, Tribute to Liam Payne on Anniversary of His Death](https://www.tmz.com/2026/10/17/harry-styles-concert-honors-liam-payne-with-unreleased-song) - Tmz
+- [Harry Styles Dedicates New Song to Liam Payne 2 Years After His Death](https://www.eonline.com/news/1437192/harry-styles-dedicates-new-song-to-liam-payne-2-years-after-his-death) - Eonline
+- [Harry Styles Debuts Song Written for Liam Payne at MSG](https://www.billboard.com/music/music-news/harry-styles-dedicates-song-to-liam-payne-1236362307) - Billboard
+- [Harry Styles Honors Liam Payne With New Ballad Dedication](https://www.tvinsider.com/1297864/harry-styles-what-is-enough-liam-payne-dedication-death-anniversary) - Tvinsider
+- [Harry Styles ‘Together, Together’ Tour Doc Coming From John Wilson, Universal Pictures Content Group (EXCLUSIVE)](https://variety.com/2026/film/news/harry-styles-john-wilson-tour-documentary-universal-1236914875/) - Variety
+- [John Wilson’s Next Documentary Will Reportedly Show Audiences ‘How to’ Tour Like Harry Styles](https://www.indiewire.com/news/breaking-news/john-wilson-documentary-harry-styles-tour-1235222552/) - IndieWire
+- [Harry Styles’ ‘Together, Together’ tour doc set with John Wilson](https://www.hungamaexpress.com/news/54646-harry-styles-together-together-tour-doc-set-with-john-wilson) - Hungamaexpress
+- [Harry Styles Tour Doc by John Wilson From Universal](https://thechenabtimes.com/2026/10/18/harry-styles-madison-square-garden-residency-captured-in-new-documentary-by-john-wilson?amp=1) - Thechenabtimes
+- [Harry Styles ‘Together, Together’ Tour Doc Coming From John Wilson, Universal Pictures Content Group (Exclusive)](https://www.imdb.com/de/news/ni66067750?ref_=nwc_art_perm) - Imdb
+- [Harry Styles ‘Together, Together’ Tour Doc Coming From John Wilson, Universal Pictures Content Group (Exclusive)](https://www.imdb.com/news/ni66067750?ref_=nwc_art_perm) - Imdb
+- [Harry Styles ‘Together, Together’ Tour Doc Coming From John Wilson, Universal Pictures Content Group (Exclusive)](https://www.imdb.com/news/ni66067765?ref_=nmnw_art_perm) - Imdb
+- [Harry Styles Concert Doc Coming From John Wilson](https://variety.com/2026/film/news/harry-styles-john-wilson-tour-documentary-universal-1236914875) - Variety
+- [Insomnium Premiere New Music Video "The Hour Grows Late" - Amorphis Members Guest](http://www.metalunderground.com/news/details.cfm?newsid=162311) - Metalunderground.com
+- [Insomnium Mourn the Dead in “The Hour Grows Late” (Feat. Tomi Joutsen, Tomi Koivusaari & Santeri Kallio) – R   o   c   k    'N'    L   o   a  d](https://rocknloadmag.com/insomnium-mourn-the-dead-in-the-hour-grows-late-feat-tomi-joutsen-tomi-koivusaari-santeri-kallio) - Rocknloadmag
+- [Insomnium Shares The Hour Grows Late With Amorphis MembersGhost Cult Magazine](https://ghostcultmag.com/insomnium-the-hour-grows-late-amorphis-netherworlds-out-now) - Ghostcultmag
+- [INSOMNIUM Release 'The Hour Grows Late' video ::antiMusic.com](https://www.antimusic.com/p/26/r1017insomnium_release_the_hour_grows_late_video.shtml) - Antimusic
+- [Insomnium share music video for "The Hour Grows Late" as new album sees release - Lambgoat](https://lambgoat.com/news/55391/insomnium-share-music-video-for-the-hour-grows-late-as-new-album-sees-release) - Lambgoat
+- [Insomnium release tenth studio album “Netherworlds” – new track features members of Amorphis - Chaoszine](https://chaoszine.net/insomnium-release-tenth-studio-album-netherworlds-new-track-features-members-of) - Chaoszine
+- [Gorillaz lead an electric Fort Worth pilgrimage up ‘The Mountain’](http://www.dallasobserver.com/music/gorillaz-lead-an-electric-fort-worth-pilgrimage-up-the-mountain-40724368/) - Dallas Observer
+- [Gorillaz bring their own revolution to Fort Worth](https://www.dallasobserver.com/music/gorillaz-lead-an-electric-fort-worth-pilgrimage-up-the-mountain-40724368) - Dallasobserver
+- [Kuljit Bhamra – DESI: The Soul of Punjab (2026)](https://exystence.net/blog/2026/10/17/kuljit-bhamra-desi-the-soul-of-punjab-2026/) - Exystence.net
+- ["Kully Bath lança primeiro single com língua nativa e inglês ...](https://www.instagram.com/p/DdpWtY1FNrX) - Instagram
+- [Viral stars Angine de Poitrine at Vicar Street review: Silly, sublime, scintillating](https://www.irishtimes.com/culture/music/review/2026/10/17/viral-stars-angine-de-poitrine-at-vicar-street-review-silly-sublime-scintillating/) - The Irish Times
+- [Viral stars Angine de Poitrine at Vicar Street review: Silly, sublime, scintillating](https://www.irishtimes.com/culture/music/review/2026/10/17/viral-stars-angine-de-poitrine-at-vicar-street-review-silly-sublime-scintillating) - Irishtimes
+- [Its Swing Time - The Album (2CD) (2003) FLAC](https://post.rlsbb.cc/its-swing-time-the-album-2cd-2003-flac/) - Rlsbb.cc
+- [Loa Loa Premiere New Single & Music Video "Bloom''](http://www.metalunderground.com/news/details.cfm?newsid=162316) - Metalunderground.com
+- [LOA LOA - BLOOM [OFFICIAL MUSIC VIDEO] (2026) SW EXCLUSIVE](https://www.youtube.com/watch?v=5nSJt-Vaadk) - Youtube
+- [Loa Loa needs to be on your playlist!!!!!](https://www.facebook.com/TotalDeathcore/posts/loa-loa-needs-to-be-on-your-playlist/1574439294711185) - Facebook
+- [Happy 6 years to our very first album, “BLOOM”! It honestly ...](https://www.instagram.com/p/DeNejYCPPRE) - Instagram
+- [Loa Loa Premiere New Single & Music Video "Bloom"](https://www.metalunderground.com/news/details.cfm?newsid=162316) - Metalunderground
+- [Rachel Chinouriri aus London auf dem Weg zum Star](https://fm4.orf.at/story/rachel-chinouriri-106/rachel-chinouriri-aus-london-auf-dem-weg-zum-star) - Fm4.orf.at
+- [Rachel Chinouriri – I think I spoke too soon](https://www.clashmusic.com/reviews/rachel-chinouriri-i-think-i-spoke-too-soon) - Clashmusic
+- [Rachel Chinouriri - I think I spoke too soon - EUPHORIA.](https://www.euphoriazine.com/blog/2026/10/music/albums-rachel-chinouriri-i-think-i-spoke-too-soon) - Euphoriazine
+- [Rachel Chinouriri - I think I spoke too soon Review — Still Listening](https://www.stilllisteningmagazine.com/reviews/rachel-chinouriri-i-think-i-spoke-too-soon-review) - Stilllisteningmagazine
+- [Album Review: Rachel Chinouriri - 'I Think I Spoke Too Soon' — When The Horn Blows](https://whenthehornblows.com/content/2026/10/14/album-review-rachel-chinouriri-i-think-i-spoke-too-soon) - Whenthehornblows
+- [Rachel Chinouriri - The Music Week Interview \| Interviews \| Music Week](https://www.musicweek.com/interviews/read/rachel-chinouriri-the-music-week-interview/094727) - Musicweek
+- [Survivalist Premiere New Single & Music Video "Infinity" From Upcoming New EP “Four Nails”](http://www.metalunderground.com/news/details.cfm?newsid=162312) - Metalunderground.com
+- [Survivalist Premiere New Single & Music Video "Infinity" From Upcoming New EP “Four Nails”](https://www.metalunderground.com/news/details.cfm?newsid=162312) - Metalunderground
+- [Survivalist announce new EP 'Four Nails' - Distorted Sound Magazine](https://distortedsoundmag.com/survivalist-announce-new-ep-four-nails) - Distortedsoundmag
+- [Survivalist's "Four Nails" EP Due In November, "Infinity" Video Debuts - Theprp.com](https://www.theprp.com/2026/10/16/news/survivalists-four-nails-ep-due-in-november-infinity-video-debuts) - Theprp
+- [Jason Kelce Asked If Taylor Swift Has Halloween Songs, And 3 Tracks Came To My Mind](https://www.cinemablend.com/streaming-news/jason-kelce-asked-taylor-swift-halloween-songs-3-tracks-came-mind) - CinemaBlend
+- [Jason Kelce wants Taylor Swift Halloween songs](https://www.yahoo.com/entertainment/music/articles/jason-kelce-wants-taylor-swift-120528431.html) - Yahoo
+- [Jason Kelce Has A Spooky Request For Taylor Swift As Kelce Brothers Discuss Halloween Classics \| NFL \| NDTV US Sports](https://sports.ndtv.com/us/nfl/jason-kelce-has-a-spooky-request-for-taylor-swift-as-kelce-brothers-discuss-halloween-classics-12197472) - Ndtv
+- [Jason Kelce Asked If Taylor Swift Has Halloween Songs, And 3 Tracks Came To My Mind](https://www.yahoo.com/entertainment/music/articles/jason-kelce-asked-taylor-swift-134028224.html) - Yahoo
+- [Simo Laiho – Uusimmat Hammond Hitit album art](https://fontsinuse.com/uses/80763/simo-laiho-uusimmat-hammond-hitit-album-art) - Fontsinuse.com
