@@ -1,0 +1,58 @@
+# Sources for 2026-10-19 News Episode 
+- [Inside Madonna’s ‘Confessions II’: Producer Stuart Price Goes Deep on One of the Year’s Best Albums](http://www.rollingstone.com/music/music-features/madonna-confessions-ii-making-interview-stuart-price-1235644422/) - Rolling Stone
+- [Making Madonna's 'Confessions II' -- Producer Stuart Price Interview](https://www.rollingstone.com/music/music-features/madonna-confessions-ii-making-interview-stuart-price-1235644422) - Rollingstone
+- [Madonna’s ‘Confessions II': Behind the Scenes With Stuart Price, Watt](https://www.billboard.com/music/pop/madonna-confessions-ii-stuart-price-andrew-watt-1236358981) - Billboard
+- [The Making of Madonna's 'Confessions II'](https://open.spotify.com/episode/7MSbqESBbNpDy3Kve4hZsx) - Spotify
+- [Roundtable: A Review of Madonna’s ‘CONFESSIONS II’ - Atwood Magazine](https://atwoodmagazine.com/mdcf-madonna-confessions-ii-album-review-roundtable) - Atwoodmagazine
+- [Watch Taylor Swift Debut “The Fate of Ophelia” Live at the Academy Museum Gala](https://pitchfork.com/story/watch-taylor-swift-debut-the-fate-of-ophelia-live-at-the-academy-museum-gala/) - Pitchfork
+- [Watch Taylor Swift Debut “The Fate of Ophelia” Live at the Academy Museum Gala \| Pitchfork](https://pitchfork.com/story/watch-taylor-swift-debut-the-fate-of-ophelia-live-at-the-academy-museum-gala) - Pitchfork
+- [Taylor Swift performs her biggest hits for star-studded crowd at Academy Museum Gala](https://pagesix.com/2026/10/18/entertainment/taylor-swift-performs-her-biggest-hits-for-star-studded-crowd-at-academy-museum-gala) - Pagesix
+- [Taylor Swift Stuns on Red Carpet at 2026 Academy Museum Gala](https://www.billboard.com/music/music-news/taylor-swift-red-carpet-2026-academy-museum-gala-1236362432) - Billboard
+- [Taylor Swift Debuts 'The Fate of Ophelia' Live at Academy Museum Gala](https://www.billboard.com/music/music-news/taylor-swift-fate-of-ophelia-live-debut-academy-museum-gala-1236362416) - Billboard
+- [Taylor Swift lights up Academy Museum Gala in silver Dior gown](https://www.usatoday.com/story/entertainment/music/2026/10/18/taylor-swift-performs-academy-museum-gala/92308097007) - Usatoday
+- [Rosalía on "Lux" and her devotion to music](https://www.cbsnews.com/news/rosalia-on-lux-and-her-devotion-to-music/) - CBS News
+- [Rosalía on "Lux" and her devotion to music - CBS News](https://www.cbsnews.com/news/rosalia-on-lux-and-her-devotion-to-music) - Cbsnews
+- [Rosalía to Receive Billboard Hall of Fame Award at 2026 Latin Music Awards](https://www.latintimes.com/rosali-receive-billboard-hall-fame-award-2026-latin-music-awards-599745) - Latintimes
+- [Seventeen's hot new JxJ unit are showing off their chemistry — with a little help from Pinterest](https://www.businessinsider.com/seventeen-jxj-jeonghan-joshua-debut-pinterest-chemistry-inspiration-2026-10#article) - Business Insider
+- [Seventeen's JxJ on Music, Chemistry and Their Joint Pinterest Account - Business Insider](https://www.businessinsider.com/seventeen-jxj-jeonghan-joshua-debut-pinterest-chemistry-inspiration-2026-10) - Businessinsider
+- [Seventeen's new unit Jeonghan X Joshua to drop debut EP \| Yonhap News Agency](https://en.yna.co.kr/view/AEN20261019003100315) - Yna
+- [Pin on SEVENTEEN](https://www.pinterest.com/pin/1031535489678140331) - Pinterest
+- [Seventeen's hot new JxJ unit are showing off their chemistry — with a little help from Pinterest](https://africa.businessinsider.com/entertainment/seventeens-hot-new-jxj-unit-are-showing-off-their-chemistry-with-a-little-help-from/cbyycf5) - Businessinsider
+- [Eloy Casagrande Promises 'Real Music' on New Slipknot Album](https://loudwire.com/eloy-casagrande-promises-real-music-new-slipknot-album/) - Loudwire
+- [Eloy Casagrande Promises 'Real Music' on New Slipknot Album](https://loudwire.com/eloy-casagrande-promises-real-music-new-slipknot-album) - Loudwire
+- [ELOY CASAGRANDE Says SLIPKNOT Is Recording 'A Lot Of Songs' For Upcoming Album: 'We Are Making Real Music' - BLABBERMOUTH.NET](https://blabbermouth.net/news/eloy-casagrande-says-slipknot-is-recording-a-lot-of-songs-for-upcoming-album-we-are-making-real-music) - Blabbermouth
+- [Eloy Casagrande: Slipknot graba "muchísimas canciones" para su nuevo disco](https://summainferno.com/en/eloy-casagrande-slipknot-grabando-nuevo-album) - Summainferno
+- [Slipknot recording many songs for new album - Chaoszine](https://chaoszine.net/slipknots-eloy-casagrande-confirms-band-is-recording-many-many-songs-for-new) - Chaoszine
+- [See Charli XCX and Chappell Roan Perform ‘Boom Clap’ in Los Angeles](http://www.rollingstone.com/music/music-news/charli-xcx-chappell-roan-boom-clap-los-angeles-1235644412/) - Rolling Stone
+- [Music Features](https://www.rollingstone.com/music/music-features/page/869) - Rollingstone
+- [Taylor Swift arrives at the 2026 #VMAs #taylorswift ...](https://www.tiktok.com/@billboard/video/7690360466534681886) - Tiktok
+- [Instagram](https://www.instagram.com/reel/DepW6vThRg1) - Instagram
+- [Charli xcx Taps Chappell Roan & PinkPantheress at Sold Out Kia Forum in LA](https://www.wewriteaboutmusic.com/concerts/charli-xcx-kia-forum-los-angeles) - Wewriteaboutmusic
+- [Charli xcx Brings Chappell Roan and PinkPantheress to LA](https://inmusicblog.com/news/charli-xcx-chappell-roan-pinkpantheress-la-show) - Inmusicblog
+- [Red Hot Chili Peppers and Foo Fighters Dust Off Rarities at Silverlake Benefit Gig](https://consequence.net/2026/10/red-hot-chili-peppers-foo-fighters-rarities-silverlake-benefit/) - Consequence.net
+- [See Red Hot Chili Peppers, Dave Grohl Perform at Silverlake Conservatory’s 25th Anniversary Show](http://www.rollingstone.com/music/music-live-reviews/rhcp-dave-grohl-vince-staples-silverlake-conservatory-25-1235644482/) - Rolling Stone
+- [Red Hot Chili Peppers, Foo Fighters Play Rarities at Benefit Gig](https://consequence.net/2026/10/red-hot-chili-peppers-foo-fighters-rarities-silverlake-benefit) - Consequence
+- [Red Hot Chili Peppers perform rare 1980s tracks at Los Angeles benefit concert - Chaoszine](https://chaoszine.net/red-hot-chili-peppers-perform-rare-1980s-tracks-at-los-angeles-benefit-concert) - Chaoszine
+- [Silverlake Conservatory benefit Brings Rare RHCP and Foo Fighters Moments](https://spectrumfm.net/silverlake-conservatory-benefit) - Spectrumfm
+- [Red Hot Chili Peppers, Dave Grohl, Vince Staples Set for Silverlake Conservatory 25th Anniversary Benefit](https://consequence.net/2026/09/silverlake-conservatory-25th-anniversary-benefit) - Consequence
+- [Perez Hilton reunites with children for 'short, supervised ...](https://www.yahoo.com/entertainment/celebrity/articles/perez-hilton-reunites-children-short-005250902.html) - Yahoo
+- [Michael Jackson had a secret crush on this famous singer!](https://timesofindia.indiatimes.com/relationships/michael-jackson-had-a-secret-crush-on-this-famous-singer/photostory/135027132.cms) - The Times of India
+- [Michael Jackson reportedly had a crush on Alicia Keys, Swizz Beatz reveals · Business Upturn](https://businessupturn.com/entertainment/hollywood/hollywood-celebrity/michael-jackson-reportedly-had-a-crush-on-alicia-keys-swizz-beatz-reveals) - Businessupturn
+- [Swizz Beatz Recalls Michael Jackson’s Crush on Alicia Keys and Their Memorable Meeting \| X-Rock 103.9](https://www.xrock1039.com/2026/10/18/swizz-beatz-recalls-michael-jacksons-crush-on-alicia-keys-and-their-memorable-meeting) - Xrock1039
+- [Michael Jackson Had A Crush On Alicia Keys, Her Husband Swizz Beatz Reveals How He Set Them Up](https://www.bollywoodshaadis.com/articles/michael-jackson-alicia-keys-crush-85750) - Bollywoodshaadis
+- [Swizz Beatz says he arranged for Alicia Keys to meet ...](https://www.facebook.com/thoughtcatalog/posts/swizz-beatz-says-he-arranged-for-alicia-keys-to-meet-michael-jackson-after-heari/1565978785571587) - Facebook
+- [Swizz Beatz Reveals Michael Jackson Had Crush on Alicia Keys](https://www.billboard.com/music/rb-hip-hop/swizz-beatz-michael-jackson-crush-alicia-keys-1236362241) - Billboard
+- [Matt Willis says he feels 'a lot of guilt' about 'removing himself' from late pal Amy Winehouse's life to get sober before her death from alcohol poisoning](https://www.dailymail.com/tvshowbiz/article-16218517/Matt-Willis-says-feels-lot-guilt-removing-late-pal-Amy-Winehouses-life-sober-death-alcohol-poisoning.html) - Dailymail.com
+- [Matt Willis felt 'guilty' for distancing himself from Amy Winehouse before she died \| Metro News](https://metro.co.uk/2026/10/18/matt-willis-felt-guilty-distancing-amy-winehouse-died-29719356) - Metro
+- [William Shatner finds answer to 'What the f--- is heavy metal?' after forming new band at 95](https://www.foxnews.com/entertainment/william-shatner-finds-answer-what-f-heavy-metal-after-forming-new-band-95) - Fox News
+- [William Shatner finds answer to 'What the f--- is heavy metal?' after forming new band at 95](https://www.aol.com/articles/william-shatner-finds-answer-f-130011000.html) - Aol
+- [Watch William Shatner cover Metallica, Ozzy, Motörhead and more \| Louder](https://www.loudersound.com/bands-artists/william-shatner-covers-metallica-ozzy-motorhead) - Loudersound
+- [William Shatner covers Metallica with his new heavy metal band](https://www.sfchronicle.com/entertainment/article/william-shatner-metallica-riot-fest-22444536.php) - Sfchronicle
+- [VA – Jamz Supernova presents: Dance Around the World (2026)](https://exystence.net/blog/2026/10/19/va-jamz-supernova-presents-dance-around-the-world-2026/) - Exystence.net
+- [Jamz Supernova Shares New Compilation 'Dance Around The World' \| News \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/news/jamz-supernova-shares-new-compilation-dance-around-the-world) - Clashmusic
+- [Jamz Supernova 🎧 Thursday night at Rhythm Corner came ...](https://www.instagram.com/p/DeRW6MhDvdO) - Instagram
+- [Jamz Supernova Releases Debut Mr Bongo Compilation ...](https://freshmusicfreaks.com/jamz-supernova-releases-debut-mr-bongo-compilation-dance-around-the-world) - Freshmusicfreaks
+- [Tom Petty's Favorite (and Least Favorite) Tom Petty Songs](https://www.mentalfloss.com/entertainment/music/tom-petty-favorite-least-favorite-tom-petty-songs) - Mental Floss
+- [“The young'uns call it country, The Yankees call it dumb” “ ...](https://www.facebook.com/mike.moyer.71/posts/the-younguns-call-it-country-the-yankees-call-it-dumb-southern-accents-is-my-fav/29052840371000777) - Facebook
+- [Phoebe Bridgers made Fort Worth the coolest place in the galaxy for a night](http://www.dallasobserver.com/music/phoebe-bridgers-made-fort-worth-the-coolest-place-in-the-galaxy-for-a-night-40725367/) - Dallas Observer
+- [un:hurd Rebuilds Its Artist Platform Around Data-Driven Career Planning](https://www.themusicninja.com/?p=108251) - Themusicninja.com
