@@ -1,0 +1,67 @@
+# Sources for 2026-10-20 News Episode 
+- [Bon Jovi Announce 4 North American Stadium Shows on 2027 Tour](https://ultimateclassicrock.com/bon-jovi-2027-tour-dates-2/) - Ultimate Classic Rock
+- [Bon Jovi is the first headliner announced for BST Hyde Park 2027 - 14 years after performing at the inaugural festival](https://www.dailymail.com/tvshowbiz/article-16220913/Bon-Jovi-headliner-announced-BST-Hyde-Park.html) - Dailymail.com
+- [Bon Jovi Take The 'Forever Tour' Worldwide With 2027 Stadium Shows - That Eric Alper](https://www.thatericalper.com/2026/10/19/bon-jovi-take-the-forever-tour-worldwide-with-2027-stadium-shows) - Thatericalper
+- [Bon Jovi Extends Comeback With 2027 Stadium Tour Dates](https://www.jambase.com/article/bon-jovi-tour-dates-2027-stadium) - Jambase
+- [Bon Jovi Announces New Stadium Dates For 'Forever Tour' - Pollstar News](https://news.pollstar.com/2026/10/19/bon-jovi-announces-new-stadium-dates-for-forever-tour) - Pollstar
+- [Bon Jovi Announces 2027 Tour Dates](https://consequence.net/2026/10/bon-jovi-announces-2027-tour-dates) - Consequence
+- [Bon Jovi 2027 Forever Tour: Dates and Ticket Onsales](https://www.ticketnews.com/2026/10/bon-jovi-2027-forever-tour-stadium-dates) - Ticketnews
+- [Drake Hit with Another Lawsuit… Producer Claims He Stole Chorus for Chart-Topping Hit ‘Janice STFU’!](https://mediatakeout.com/drake-hit-with-another-lawsuit-producer-claims-he-stole-chorus-for-chart-topping-hit-janice-stfu/) - Mediatakeout.com
+- [Drake Denies Stealing 'Janice STFU' Chorus - Rolling Stone Canada](https://ca.rollingstone.com/music/drake-sued-janice-stfu-chorus-copyright-infringement) - Rollingstone
+- [Drake Sued Over 'Janice STFU' by Producer](https://www.digitalmusicnews.com/2026/10/18/drake-sued-over-janice-stfu) - Digitalmusicnews
+- [Songwriter Avi Hirschfield Sues Drake and UMG Over 'Janice STFU' Chorus - DancehallMag](https://www.dancehallmag.com/2026/10/18/news/songwriter-avi-hirschfield-sues-drake-and-umg-over-janice-stfu-chorus.html) - Dancehallmag
+- [Drake Gets Sued: Songwriter Claims "Janice STFU" Chorus Was Stolen - HotNewHipHop](https://www.hotnewhiphop.com/1013499-drake-sued-janice-stfu) - Hotnewhiphop
+- [Drake's Team Denies Stealing 'Janice STFU' Chorus, Calls Lawsuit a Money Grab - TMZ](https://www.tmz.com/2026/10/16/drake-responds-to-lawsuit-over-janice-stfu/) - Tmz
+- [Busta Rhymes Wants J Dilla to Get His Flowers](http://www.rollingstone.com/music/music-features/busta-rhymes-grammy-awards-j-dilla-collab-album-1235644054/) - Rolling Stone
+- [Busta Rhymes Talks Grammy Awards, Making J Dilla Collab Album](https://www.rollingstone.com/music/music-features/busta-rhymes-grammy-awards-j-dilla-collab-album-1235644054) - Rollingstone
+- [Busta Rhymes keeps J Dilla’s legacy alive in ‘Dillagence II’ \| KTLA](https://ktla.com/entertainment/busta-rhymes-keeps-j-dillas-legacy-alive-in-dillagence-ii) - Ktla
+- [Busta Rhymes Brings Out Common & J Dilla's Mom At GRAMMY Museum In Los Angeles - SHEEN Magazine](https://sheenmagazine.com/busta-rhymes-brings-out-common-j-dillas-mom-at-grammy-museum-in-los-angeles) - Sheenmagazine
+- [For Dummy, the Sky’s No Limit](https://www.spinmagazine.com/2026/10/for-dummy-the-skys-no-limit/) - Spinmagazine.com
+- [Dummy : do you love the color of the sky? \| Album review \| Treble](https://www.treblezine.com/dummy-do-you-love-the-color-of-the-sky-review) - Treblezine
+- [Dummy are dancing on the line between “failure and euphoria”](https://faroutmagazine.co.uk/dummy-are-dancing-on-the-line-between-failure-and-euphoria) - Faroutmagazine
+- [Album Reviews - Glide Magazine](https://glidemagazine.com/category/reviews/albumreviews) - Glidemagazine
+- [For Dummy, the Sky's No Limit](https://www.yahoo.com/entertainment/music/articles/dummy-sky-no-limit-123000662.html) - Yahoo
+- [A$AP Rocky Discovers the Wonders of Nature in Trippy New ‘Shroom Clouds’ Video](http://www.rollingstone.com/music/music-news/asap-shroom-clouds-music-video-1235644870/) - Rolling Stone
+- [A$AP Rocky Delivers Surreal Visual For "Shroom Clouds"](https://www.hotnewhiphop.com/1013711-asap-rocky-shroom-clouds-music-video) - Hotnewhiphop
+- [A$AP Rocky on ‘Don’t Be Dumb’ Disc 2 and the State of Rap: “Technically I’m Somewhat Responsible”](https://www.complex.com/music/a/antonio-johri/asap-rocky-dont-be-dumb-disc-2-interview) - Complex
+- [ASAP Rocky's 'Shroom Clouds' Video Teases 'Disc 2' Release](https://www.billboard.com/music/rb-hip-hop/asap-rocky-shroom-clouds-video-disc-2-1236362936) - Billboard
+- [A$AP Rocky Teases ‘Don’t Be Dumb: Disc 2’ Release Date in ‘Shroom Clouds’ Video](https://inmusicblog.com/rap/asap-rocky-dont-be-dumb-disc-2-release-date) - Inmusicblog
+- [D’Angelo’s Brother Confirms Posthumous Album Is Coming With Six Tracks Done And A Vault of Unreleased Music](https://bossip.com/4646253/dangelo-posthumous-album-unreleased-music/) - Bossip
+- [D'Angelo's brother confirms a posthumous album is on the way](https://www.pastemagazine.com/music/dangelo/dangelos-brother-confirms-a-posthumous-album-is-on-the-way) - Pastemagazine
+- [Brian McFadden reveals the reason he wasn't surprised at One Direction star Liam Payne's tragic balcony plunge death - as he vows to protect the new boyband he is hoping will repeat the success he enjoyed with Westlife](https://www.dailymail.com/tvshowbiz/article-16215681/Brian-McFadden-reason-surprised-One-Direction-Liam-Paynes-tragic-balcony-plunge-death-protect-boyband-repeat-success-Westlife.html) - Dailymail.com
+- [Brian McFadden leads search for Ireland’s 'next big boyband'](https://www.irishexaminer.com/lifestyle/artsandculture/arid-41920960.html) - Irishexaminer
+- [June McDoom Makes Folk Music With the Bass Turned Up](http://www.rollingstone.com/music/music-features/june-mcdoom-follow-the-light-interview-1235644687/) - Rolling Stone
+- [June McDoom intrigues with the dub-reggae-folk hybrid of Follow the Light \| The Line of Best Fit](https://www.thelineofbestfit.com/albums/june-mcdoom-intrigues-with-the-dub-reggae-folk-hybrid-of-follow-the-light) - Thelineofbestfit
+- [June McDoom Makes Folk Music With the Bass Turned Up](https://www.rollingstone.com/music/music-features/june-mcdoom-follow-the-light-interview-1235644687) - Rollingstone
+- [June McDoom: “I want to encourage people to make things they think are weird” \| Interview \| The Line of Best Fit](https://www.thelineofbestfit.com/features/interviews/june-mcdoom-is-writing-her-own-history) - Thelineofbestfit
+- [8 Albums Out Today to Listen To: Fontaines D.C., @, The Avalanches, and More - Our Culture](https://ourculturemag.com/8-albums-out-today-to-listen-to-fontaines-d-c-the-avalanches-and-more) - Ourculturemag
+- [Andrew Watt Reveals There Are Unreleased Ozzy Osbourne Songs: “We Made [Them] for a Specific Reason”](https://consequence.net/2026/10/andrew-watt-unreleased-ozzy-osbourne-songs/) - Consequence.net
+- [Unreleased Ozzy Songs Are For 'Specific Reason,' Producer Says](https://ultimateclassicrock.com/unheard-ozzy-osbourne-songs-reason/) - Ultimate Classic Rock
+- [Ozzy Osbourne Producer Andrew Watt Says Unreleased Songs Made “For a Specific Reason” Still Exist](https://metalinjection.net/news/ozzy-osbourne-producer-andrew-watt-says-unreleased-songs-made-for-a-specific-reason-still-exist) - Metalinjection
+- [Andrew Watt Reveals There Are Unreleased Ozzy Osbourne Songs](https://consequence.net/2026/10/andrew-watt-unreleased-ozzy-osbourne-songs) - Consequence
+- [“There are some songs that we made for a specific reason. They’re hard for me to listen to”: Producer Andrew Watt on Ozzy Osbourne’s unreleased final recordings and his last meetings with the legendary singer \| MusicRadar](https://www.musicradar.com/artists/there-are-some-songs-that-we-made-for-a-specific-reason-theyre-hard-for-me-to-listen-to-producer-andrew-watt-on-ozzy-osbournes-unreleased-final-recordings-and-his-last-meetings-with-the-legendary-singer) - Musicradar
+- [Producer Andrew Watt on Ozzy Osbourne’s unreleased final recordings – and their last meeting](https://www.yahoo.com/entertainment/music/articles/producer-andrew-watt-ozzy-osbourne-115125329.html) - Yahoo
+- [Hot Chip’s New Album Puts Them A Long Way From Kansas](https://pitchfork.com/story/hot-chips-new-album-puts-them-a-long-way-from-kansas/) - Pitchfork
+- [Hot Chip Announce New Album A Long Way From Kansas, Share Single “Random Violence”: Stream](https://consequence.net/2026/10/hot-chip-new-album-a-long-way-from-kansas/) - Consequence.net
+- [Hot Chip Travels ‘A Long Way’ For New LP](https://www.spinmagazine.com/2026/10/hot-chip-new-album/) - Spinmagazine.com
+- [Hot Chip Announce New Album A Long Way From Kansas and Share Tribute Single ‘Random Violence’](https://www.babystepmagazine.com/single-post/hot-chip-announce-new-album-a-long-way-from-kansas-and-share-tribute-single-random-violence) - Babystepmagazine
+- [Hot Chip Announce New Album A Long Way From Kansas For January 2027 Release, Share New Single & Video ...](https://music.mxdwn.com/2026/10/19/news/hot-chip-announce-new-album-a-long-way-from-kansas-for-january-2027-release-share-new-single-video-random-violence) - Mxdwn
+- [Hot Chip Announce New Album ‘A Long Way From Kansas’](https://www.clashmusic.com/news/hot-chip-announce-new-album-a-long-way-from-kansas) - Clashmusic
+- [Hot Chip’s New Album Puts Them A Long Way From Kansas \| Pitchfork](https://pitchfork.com/story/hot-chips-new-album-puts-them-a-long-way-from-kansas) - Pitchfork
+- [Hot Chip Announce Ninth Album 'A Long Way From ...](https://www.audiofuzz.com/2026/10/19/hot-chip-announce-ninth-album-a-long-way-from-kansas-and-pay-tribute-to-jd-twitch-on-random-violence) - Audiofuzz
+- [Hot Chip new album: A Long Way From Kansas \| Neon Music](https://neonmusic.co.uk/hot-chip-new-album-a-long-way-from-kansas) - Neonmusic
+- [Ed Sheeran performs at fundraising gig in NYC to raises $1 million for children in his home county of Suffolk - in midst of Macklemore pro-Palestine drama](https://www.dailymail.com/tvshowbiz/article-16220525/Ed-Sheeran-performs-fundraising-gig-NYC-raises-1-million-children-home-county-Suffolk-midst-Macklemore-pro-Palestine-drama.html) - Dailymail.com
+- [Mark Ashton celebrates incredible $1m boost for Suffolk with help from Ed Sheeran](https://www.eadt.co.uk/news/26644255.ed-sheeran-helps-suffolk-charity-raise-1m-new-york) - Eadt
+- [Sheeran, Ashton and Holland Raise $1m at New York Charity Event - Ipswich Town News \| TWTD.co.uk](https://www.twtd.co.uk/ipswich-town-news/53022/sheeran-ashton-and-holland-raise-$1m-at-new-york-charity-event) - Twtd
+- [The Genius of Charli XCX](https://www.thenation.com/article/culture/charli-xcx-music-fashion-film/) - Thenation.com
+- [Charli xcx masterfully explores rock music in ‘Music, Fashion, Film’ - Brown Daily Herald](https://www.browndailyherald.com/article/charli-xcx-masterfully-explores-rock-music-in-music-fashion-film-20261001) - Browndailyherald
+- [Charli XCX \| Biography, Movie, Songs, Wuthering Heights, Brat, Albums, & Facts \| Britannica](https://www.britannica.com/biography/Charli-XCX) - Britannica
+- [The Moment is a fictional mockumentary following pop star ...](https://www.instagram.com/p/DdzLEG3ML7X) - Instagram
+- [ALBUM REVIEW — CHARLI XCX “MUSIC, FASHION, FILM ...](https://www.instagram.com/p/DeoLmHRj5rY) - Instagram
+- [Leon Bridges: I’m Still ‘Doing My Thing After All This Time’](https://www.esquire.com/style/mens-fashion/a74135286/leon-bridges-happiness-anytime/) - esquire.com
+- [Leon Bridges: I’m Still ‘Doing My Thing After All This Time’](https://www.aol.ca/articles/leon-bridges-m-still-doing-160653000.html) - Aol
+- [MGM Resorts Newsroom - Press Releases](https://newsroom.mgmresorts.com/press-releases?item=123018) - Mgmresorts
+- [Where to dance in Amsterdam this week for Amsterdam Dance Event's 30th Anniversary [Event Guide]](https://earmilk.com/2026/10/19/where-to-dance-in-amsterdam-this-week-for-amsterdam-dance-events-30th-anniversary-event-guide/) - Earmilk.com
+- [Where to dance in Amsterdam this week for Amsterdam Dance Event's 30th Anniversary [Event Guide] - EARMILK](https://earmilk.com/2026/10/19/where-to-dance-in-amsterdam-this-week-for-amsterdam-dance-events-30th-anniversary-event-guide) - Earmilk
+- [ADE 2026 Techno and Hard Techno Parties: The Nights to Book](https://www.mneemo.com/blog/ade-2026-techno-hard-techno-parties) - Mneemo
+- [Audio Obscura concludes G-STAR RAWFACTORY run with 6 ADE events](https://electronicgroove.com/audio-obscura-concludes-gstar-factory-run-six-ade-events) - Electronicgroove
