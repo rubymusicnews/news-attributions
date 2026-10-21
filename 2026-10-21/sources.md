@@ -1,0 +1,76 @@
+# Sources for 2026-10-21 News Episode 
+- [Cardi B’s Tiny Desk Performance Is a Masterclass in Excellence](http://www.rollingstone.com/music/music-news/cardi-b-tiny-desk-performance-video-1235645313/) - Rolling Stone
+- [Cardi B channels Naomi Campbell in a Mugler jacket and latex pants on NPR’s Tiny Desk](https://pagesix.com/2026/10/20/style/cardi-bs-npr-tiny-desk-outfit-channels-naomi-campbell-in-vintage-mugler/) - Page Six
+- [Cardi B takes over NPR Tiny Desk with hits and a live band](https://www.hola.com/us/entertainment/20261019929960/cardi-b-tnpr-tiny-desk-live-band) - Hola
+- [Cardi B's Tiny Desk Performance Is a Masterclass in Excellence](https://www.rollingstone.com/music/music-news/cardi-b-tiny-desk-performance-video-1235645313) - Rollingstone
+- [Cardi B Set for NPR Tiny Desk Concert Premiering October 19 - DancehallMag](https://www.dancehallmag.com/2026/10/19/news/cardi-b-set-for-npr-tiny-desk-concert-premiering-october-19.html) - Dancehallmag
+- [Cardi B Debut 'Tiny Desk Concert' Addresses Feuds \| Hypebeast](https://hypebeast.com/2026/10/cardi-b-npr-tiny-desk-concert-debut) - Hypebeast
+- [Spotify Purged Over 50 Million AI Slop and Spam Songs From User Recommendations](https://gizmodo.com/spotify-purged-over-50-million-ai-slop-and-spam-songs-from-user-recommendations-2000828403) - Gizmodo.com
+- [Spotify Reveals Major Update in Its Fight Against AI Music Spam](https://inmusicblog.com/news/spotify-ai-music-spam-50-million-tracks) - Inmusicblog
+- [Spotify pulls 50 million AI slop and spam tracks from its recommendations \| The Verge](https://www.theverge.com/entertainment/1014284/spotify-ai-slop-spam-songs-removed) - Theverge
+- [Spotify Removes Millions of Song in Crackdown on AI 'Slop'](https://themusicnetwork.com/news/spotify-removes-millions-of-song-in-crackdown-on-ai-slop-and-spam) - Themusicnetwork
+- [Spotify Blocks 50 Million Songs From Recommendations in Crackdown on AI Music Spam \| Law Commentary](https://www.lawcommentary.com/articles/spotify-50-million-tracks-ai-music-spam) - Lawcommentary
+- [Spotify AI Slop Filter: What Changed (Oct 2026)](https://mubert.com/blog/spotify-ai-slop-50-million-recommendations) - Mubert
+- [Bono says U2 has got no problem with charging wealthy fans more to see the band live](https://www.businessinsider.com/bono-u2-ticket-prices-charging-rich-fans-more-2026-10#article) - Business Insider
+- [Bono Defends U2's Ticket Pricing as 2027 Tour Goes on Sale](https://www.ticketnews.com/2026/10/bono-u2-ticket-pricing-2027-tour) - Ticketnews
+- [Bono defends U2's concert pricing, says rich people can pay more](https://www.freep.com/story/entertainment/music/2026/10/20/bono-u2-concert-pricing-defense-rich-people/92354823007) - Freep
+- [Bono says he has 'no problem' with rich people paying more for U2 tickets](https://www.yahoo.com/entertainment/music/articles/bono-says-no-problem-rich-024206259.html) - Yahoo
+- [Bono defends U2's concert pricing, says rich people can pay more](https://www.usatoday.com/story/entertainment/music/2026/10/20/bono-u2-concert-pricing-defense-rich-people/92354823007) - Usatoday
+- [Bono Says U2 Has No Problem Charging Rich Fans More - Business Insider](https://www.businessinsider.com/bono-u2-ticket-prices-charging-rich-fans-more-2026-10) - Businessinsider
+- [Producer Andrew Watt Explains Why Final Black Sabbath Album Didn’t Come to Be](https://consequence.net/2026/10/andrew-watt-final-black-sabbath-album-explanation/) - Consequence.net
+- [Andrew Watt Explains Why the Final Black Sabbath Album Didn't Come to Be](https://consequence.net/2026/10/andrew-watt-final-black-sabbath-album-explanation) - Consequence
+- [Producer ANDREW WATT Says OZZY OSBOURNE Wanted To Make One Last BLACK SABBATH Album - "I Think Looking Back At All The Stuff He Wanted To Do, Making An Album With BILL WARD Was Really Important To Him"](https://bravewords.com/news/producer-andrew-watt-says-ozzy-osbourne-wanted-to-make-one-last-black-sabbath-album-i-think-looking-back-at-all-the-stuff-he-wanted-to-do-making-an-album-with-bill-ward-was-really-important-to-hi) - Bravewords
+- [Andrew Watt clarifies Tony Iommi’s Black Sabbath album comments - Chaoszine](https://chaoszine.net/andrew-watt-clarifies-tony-iommis-black-sabbath-album-comments) - Chaoszine
+- [ANDREW WATT Believes TONY IOMMI's Comment About Potential Final BLACK SABBATH Album Was 'Taken Out Of Context' - BLABBERMOUTH.NET](https://blabbermouth.net/news/andrew-watt-believes-tony-iommis-comment-about-potential-final-black-sabbath-album-was-taken-out-of-context) - Blabbermouth
+- [Andrew Watt Talks Unreleased Songs He Recorded With Ozzy Osbourne](https://www.billboard.com/music/rock/andrew-watt-unheard-songs-ozzy-osbourne-specific-reason-1236363420) - Billboard
+- [Jay-Z has reportedly chosen next year’s Super Bowl Halftime performer: himself](https://www.celebitchy.com/1003051/jay-z_has_reportedly_chosen_next_years_super_bowl_halftime_performer_himself/) - Celebitchy.com
+- [Jay-Z 'picks himself for Super Bowl 2027 Halftime Show as Miley Cyrus and Justin Bieber miss out'](https://www.dailymail.com/sport/nfl/article-16223605/jay-z-super-bowl-halftime-los-angeles.html) - Dailymail.com
+- [Jay-Z Reportedly Crazy in Love With Performing at Super Bowl 61 Halftime Show](https://www.adweek.com/convergent-tv/jay-z-reportedly-crazy-in-love-with-performing-at-super-bowl-61-halftime-show/) - Adweek
+- [Jay-Z, U2 and ‘Star Wars' headline NFL's next big entertainment events](https://www.sfchronicle.com/entertainment/article/jay-z-u2-star-wars-nfl-super-bowl-22485706.php?utm_medium=referral&amp;utm_campaign=yahoo_syndication) - San Francisco Chronicle
+- [Did JAY-Z choose himself to headline the 2027 Super Bowl halftime show? Inside the report shaking up music and the NFL](https://www.clarin.com/us-news/did-jay-z-choose-himself-to-headline-the-2027-super-bowl-halftime-show-inside-the-report-shaking-up-music-and-the-nfl_0_gPxXT0yhdR.html) - Clarin
+- [Jay-Z reportedly makes himself the pick for Super Bowl 2027 halftime show ahead of expected announcement﻿ \| NFL News - The Times of India](https://timesofindia.indiatimes.com/sports/nfl/news/jay-z-reportedly-makes-himself-the-pick-for-super-bowl-2027-halftime-show-ahead-of-expected-announcement/articleshow/135062893.cms) - Indiatimes
+- [Super Bowl Halftime Show 2026: JAY-Z & Beyoncé Climb Kalshi](https://www.actionnetwork.com/news/super-bowl-halftime-show-2026-odds-jay-z-surges-to-94-on-kalshi-as-beyonce-climbs) - Actionnetwork
+- [Jay-Z chooses himself for Super Bowl halftime show: report](https://nypost.com/2026/10/20/sports/jay-z-chooses-himself-for-super-bowl-halftime-show) - Nypost
+- [Jay-Z Picks Jay-Z for Super Bowl LXI - Puck](https://puck.news/jay-z-picks-jay-z-for-super-bowl-lxi) - Puck
+- [Jay-Z reportedly selects himself for Super Bowl LXI halftime show in Los Angeles at SoFi Stadium \| OutKick](https://www.foxnews.com/outkick-sports/jay-z-reportedly-selects-himself-super-bowl-lxi-halftime-show-los-angeles-sofi-stadium) - Foxnews
+- [Hear How Clare Torry’s Vocals on Pink Floyd’s “The Great Gig in the Sky” Made the Song Go from Pretty Good to Downright Great](https://www.openculture.com/2026/10/how-clare-torry-made-gig-in-the-sky-great.html) - Openculture.com
+- [Clare Torry_ Pink Floyd's 'Great Gig' Voice & ...](https://www.facebook.com/MatthewSantoroVideos/posts/clare-torry_-pink-floyds-great-gig-voice-15000-year-sponge/1644636410355898) - Facebook
+- ['Alice Cooper is a character, like Jekyll and Hyde'](https://www.bbc.co.uk/news/articles/c59vz78kvgv9o) - BBC News
+- ['Alice Cooper is a character, like Jekyll and Hyde' - AOL](https://www.aol.co.uk/articles/alice-cooper-character-jekyll-hyde-050917000.html) - Aol
+- [Children of Bodom, Cryptopsy, Bodysnatcher And Celestial Sanctuary Added To Mystic Festival (PL) Line-Up](http://www.metalunderground.com/news/details.cfm?newsid=162334) - Metalunderground.com
+- [Children Of Bodom To Play Mystic Festival (PL)](https://www.threads.com/@hamiltonslive/post/DeuCC1Lmqjn/metal-underground-children-of-bodom-cryptopsy-bodysnatcher-and-celestial) - Threads
+- [Kolejne cztery zespoły na Mystic Festival 2027. Różne koncepcje śmiercionośnego metalu - Antyradio](https://www.antyradio.pl/muzyka/koncerty/kolejne-cztery-zespoly-na-mystic-festival-2027-rozne-koncepcje-smiercionosnego-metalu) - Antyradio
+- [Mystic Festival 🇵🇱 2027](https://www.facebook.com/metalunderground/posts/mystic-festival-2027-finesse-brutalitychildren-of-bodom-cryptopsy-bodysnatcher-a/1644367290411872) - Facebook
+- [Lambrini Girls Announce Spring 2027 North American Tour, Unveil Two New Singles: Stream](https://consequence.net/2026/10/lambrini-girls-2027-north-american-tour/) - Consequence.net
+- [Lambrini Girls Announce Spring 2027 North American Tour, Share Two New Singles](https://consequence.net/2026/10/lambrini-girls-2027-north-american-tour) - Consequence
+- [Lambrini Girls Book 2027 North American Tour │ Exclaim!](https://exclaim.ca/music/article/lambrini-girls-book-2027-north-american-tour) - Exclaim
+- [Lambrini Girls Drop New Double Single Alongside North American Tour Announcement](https://www.stereoboard.com/content/view/253410/9) - Stereoboard
+- [Lambrini Girls Share New Singles ‘The Basement’ And ‘Spilt’ — Still Listening](https://www.stilllisteningmagazine.com/news/lambrini-girls-share-new-singles-the-basement-and-spilt) - Stilllisteningmagazine
+- [Patrick Droney Is in Pursuit of the Present](http://www.rollingstone.com/music/music-features/patrick-droney-made-you-look-interview-1235645335/) - Rolling Stone
+- [Patrick Droney on 'Made You Look' Album, Kelsea Ballerini, New York](https://www.rollingstone.com/music/music-features/patrick-droney-made-you-look-interview-1235645335) - Rollingstone
+- [League of Legends KPop Group K/DA Returns With "Firestarter" Single](https://bleedingcool.com/pop-culture/league-of-legends-kpop-group-k-da-returns-with-firestarter-single/) - Bleeding Cool News
+- [K/DA makes long-awaited comeback with FIRESTARTER, new EP and Worlds 2026 performance \| GosuGamers](https://www.gosugamers.net/news/79369-k-da-makes-long-awaited-comeback-with-firestarter-new-ep-and-worlds-2026-performance) - Gosugamers
+- [League of Legends KPop Group K/DA Returns With "Firestarter" Single](https://bleedingcool.com/pop-culture/league-of-legends-kpop-group-k-da-returns-with-firestarter-single) - Bleedingcool
+- [Riot Games' Virtual K-Pop Group K/DA Marks Return From 6-Year Hiatus With New Song, 'FIRESTARTER' \| Geek Culture](https://geekculture.co/virtual-k-pop-group-k-da-marks-return-from-6-year-hiatus-with-new-song-firestarter) - Geekculture
+- [K/DA, Riot Games' League of Legends virtual girl group ...](https://www.facebook.com/ign/posts/kda-riot-games-league-of-legends-virtual-girl-group-has-returned-after-6-years-w/1691349025980229) - Facebook
+- [League of Legends Virtual K-Pop Group K/DA Reemerge With New Music Video](https://www.ign.com/articles/league-of-legends-virtual-k-pop-group-kda-reemerge-after-6-years-of-silence-with-new-single-and-music-video-from-the-makers-of-arcane) - Ign
+- [The 'Teenage Dirtbags' sponsored by US rock band](https://www.bbc.co.uk/news/articles/c6j9kwmkd7gwo) - BBC News
+- [The 'Teenage Dirtbags' sponsored by US rock band - AOL](https://www.aol.co.uk/articles/teenage-dirtbags-sponsored-us-rock-050515000.html) - Aol
+- [The 'Teenage Dirtbags' sponsored by US rock band - AOL](https://www.aol.com/articles/teenage-dirtbags-sponsored-us-rock-050515000.html) - Aol
+- [An unlikely friendship has led to an even more ...](https://www.facebook.com/bbcherefordandworcester/posts/an-unlikely-friendship-has-led-to-an-even-more-unlikely-partnership-with-us-rock/1726567246139117) - Facebook
+- ['Teenage Dirtbag' band emerge as unlikely sponsors of youth soccer team](https://www.footballtransfers.com/us/transfer-news/uk-premier-league/2026/10/teenage-dirtbag-band-emerge-as-unlikely-sponsors-of-youth-soccer-team) - Footballtransfers
+- [Lily Allen left 'gutted' as she is forced to cancel her show in New Zealand with less than 24 hours notice due to a viral infection](https://www.dailymail.com/tvshowbiz/article-16225213/Lily-Allen-gutted-forced-cancel-New-Zealand-24-hours-viral-infection.html) - Dailymail.com
+- [Lily Allen cancels Auckland concert due to viral infection](https://thenewsmill.com/2026/10/lily-allen-cancels-auckland-concert-due-to-viral-infection) - Thenewsmill
+- [Lily Allen ‘Absolutely Gutted’ as Illness Forces Auckland Show Cancellation](https://au.rollingstone.com/music/music-news/lily-allen-absolutely-gutted-as-illness-forces-auckland-show-cancellation-102471) - Rollingstone
+- ['Absolutely gutted': Lily Allen cancels tonight's Auckland concert](https://www.1news.co.nz/2026/10/21/absolutely-gutted-lily-allen-cancels-tonights-auckland-concert) - 1news
+- [Lily Allen cancels Auckland concert due to viral infection; singer apologises to fans; promises ticket refunds; 'West End Girl' tour date called off \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/music/news/lily-allen-cancels-auckland-concert-due-to-viral-infection-singer-apologises-to-fans-promises-ticket-refunds-west-end-girl-tour-date-called-off/articleshow/135083273.cms) - Indiatimes
+- [Lily Allen forced to cancel concert at last minute after sudden illness \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/lily-allen-auckland-concert-cancelled-b3070551.html) - Independent
+- [Lily Allen cancels her only New Zealand show](https://www.rnz.co.nz/life/music/lily-allen-cancels-her-only-new-zealand-show) - Rnz
+- [Sienna Spiro Announces 2027 North American Tour Dates](https://consequence.net/2026/10/sienna-spiro-2027-my-house-tour-extended/) - Consequence.net
+- [Sienna Spiro Expands My House Tour into 2027](https://exclaim.ca/music/article/sienna-spiro-expands-my-house-tour-into-2027) - Exclaim!
+- [Sienna Spiro to Expand MY HOUSE TOUR (EXTENDED) With North American Dates Starting August 2027 \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Sienna-Spiro-to-Expand-MY-HOUSE-TOUR-EXTENDED-With-North-American-Dates-Starting-August-2027-20261020) - Broadwayworld
+- [Sienna Spiro brings “My House Tour (Extended)” tour to the Fox Theatre August 23, 2027 \| 313 Presents](https://www.313presents.com/news/detail/sienna-spiro-detroit-tour-2027) - 313presents
+- [Sienna Spiro Announces My House Tour (Extended) North American 2027 Dates ::antiMusic.com](https://www.antimusic.com/p/26/p1020sienna_spiro_announces_my_house_tour_extended_north_american_2027_dates.shtml) - Antimusic
+- [Sienna Spiro Announces 2027 "My House Tour (Extended)" Dates](https://consequence.net/2026/10/sienna-spiro-2027-my-house-tour-extended) - Consequence
+- [Sienna Spiro Extends ‘My House Tour’ with Bigger Venues & More U.S. Shows in Summer 2027: Dates & Ticket Info Revealed!](https://www.yahoo.com/entertainment/music/articles/sienna-spiro-extends-house-tour-174353919.html) - Yahoo
+- [SIENNA SPIRO Builds Addition to "House" With 2027 Dates](https://www.hitsdailydouble.com/news/live/sienna-spiro-tour-2026-10-20) - Hitsdailydouble
