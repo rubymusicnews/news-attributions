@@ -1,0 +1,67 @@
+# Sources for 2026-10-22 News Episode 
+- [Thai Pop Star Jeff Satur Signs With Universal Music Southeast Asia, Sets 2027 Album and World Tour](https://variety.com/2026/music/news/thai-pop-star-jeff-satur-universal-music-1236918438/) - Variety
+- [UMG wants to make Jeff Satur ’T-Pop’s first global superstar’](https://musically.com/2026/10/21/umg-wants-to-make-jeff-satur-t-pops-first-global-superstar/) - Music Ally
+- [Thai pop star Jeff Satur signs with Universal Music Southeast Asia, sets 2027 album and world tour](https://hirunews.lk/goldfmnews/495404/thai-pop-star-jeff-satur-signs-with-universal-music-southeast-asia-sets-2027-album-and-world-tour) - Hirunews
+- [Jeff Satur Signs With Universal Music Southeast Asia](https://www.billboard.com/music/music-news/jeff-satur-signs-universal-music-southeast-asia-1236364306) - Billboard
+- [Snoh Aalegra Unveils New Album With Song Featuring Nile Rodgers and Raphael Saadiq](https://pitchfork.com/story/snoh-aalegra-unveils-new-album-with-song-featuring-nile-rodgers-and-raphael-saadiq/) - Pitchfork
+- [Snoh Aalegra announces new album, Legendary Love](https://www.thelineofbestfit.com/news/snoh-aalegra-announces-new-album-legendary-love) - Thelineofbestfit.com
+- [Snoh Aalegra Unveils New Album With Song Featuring Nile Rodgers and Raphael Saadiq](https://www.yahoo.com/entertainment/music/articles/snoh-aalegra-unveils-album-song-160750762.html) - Yahoo
+- [Snoh Aalegra Announces Fourth Album 'Legendary Love' With New Single I Love You](https://www.stereoboard.com/content/view/253433/9) - Stereoboard
+- [Snoh Aalegra to Release Album LEGENDARY LOVE, Shares Single "I Love You" \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Snoh-Aalegra-to-Release-Album-LEGENDARY-LOVE-Shares-Single-I-Love-You-20261021) - Broadwayworld
+- [Snoh Aalegra Unveils New Album With Song Featuring Nile Rodgers and Raphael Saadiq](https://ca.news.yahoo.com/snoh-aalegra-unveils-album-song-160750762.html) - Yahoo
+- [Snoh Aalegra Unveils New Album With Song Featuring Nile Rodgers and Raphael Saadiq \| Pitchfork](https://pitchfork.com/story/snoh-aalegra-unveils-new-album-with-song-featuring-nile-rodgers-and-raphael-saadiq) - Pitchfork
+- [Moises and SoundCloud Partner to Bring AI-Supported Creation, Collaboration and Distribution Together for 150+ Million Artists](https://www.prnewswire.com/news-releases/moises-and-soundcloud-partner-to-bring-ai-supported-creation-collaboration-and-distribution-together-for-150-million-artists-302915591.html) - PRNewswire
+- [Moises and SoundCloud Connect AI Music Tools With Direct Publishing](https://www.famemagazine.co.uk/moises-and-soundcloud-connect-ai-music-tools-with-direct-publishing) - Famemagazine
+- [StreetInsider.com - PRNewswire](https://www.streetinsider.com/PRNewswire?before_id=27214890) - Streetinsider
+- [Moises and SoundCloud Join Forces to Empower Musicians - Investors Hangout](https://investorshangout.com/moises-and-soundcloud-join-forces-to-empower-musicians-537922-) - Investorshangout
+- [Chvrches Announce First Album in Six Years and 2027 Tour](https://pitchfork.com/story/chvrches-announce-first-album-in-six-years-and-2027-tour/) - Pitchfork
+- [CHVRCHES Announce New Album All the King’s Men and 2027 North American Tour](https://consequence.net/2026/10/chvrches-all-the-kings-men-2027-tour/) - Consequence.net
+- [‘Men’ Overboard: New CHVRCHES LP Due In January](https://www.spinmagazine.com/2026/10/new-chvrches-album/) - Spinmagazine.com
+- [Chvrches announce new album 'All The King's Men' - Northern Transmissions](https://northerntransmissions.com/chvrches-announce-new-album-all-the-kings-men) - Northerntransmissions
+- [CHVRCHES Announce New Album <i>All the King’s Men</i> and 2027 Tour Dates \| Under the Radar \| Music Blog for the Indie Music Magazine](https://www.undertheradarmag.com/news/chvrches_announce_new_album_all_the_kings_men_and_2027_tour_dates) - Undertheradarmag
+- [CHVRCHES announce new album ‘All The King's Men’ and 2027 tour](https://theneedledrop.com/news/chvrches-announce-new-album-all-the-kings-men-and-2027-tour) - Theneedledrop
+- [CHVRCHES: 'All The King's Men' album and 2027 tour](https://karlobag.eu/en/music/chvrches-announce-new-album-all-the-king-s-men-and-a-2027-tour-spanning-north-am-p3y21) - Karlobag
+- [CHVRCHES Announce New Album All the King's Men, 2027 North American Tour](https://consequence.net/2026/10/chvrches-all-the-kings-men-2027-tour) - Consequence
+- [Chvrches Announce First Album in Six Years and 2027 Tour \| Pitchfork](https://pitchfork.com/story/chvrches-announce-first-album-in-six-years-and-2027-tour) - Pitchfork
+- [Charli XCX Cancels ‘Music, Fashion, Film’ Show in Arizona Due: ‘Completely Lost My Voice’](http://www.rollingstone.com/music/music-news/charli-xcx-cancels-music-fashion-film-show-arizona-illness-1235645838/) - Rolling Stone
+- [Charli XCX cancels Arizona tour date due to sickness as she says she's 'completely lost her voice'](https://www.dailymail.com/tvshowbiz/article-16227799/Charli-XCX-cancels-Arizona-tour-date-sickness.html) - Dailymail.com
+- [Charli XCX Cancels ‘Music, Fashion, Film’ Arizona Show Due to Illness](https://www.rollingstone.com/music/music-news/charli-xcx-cancels-music-fashion-film-show-arizona-illness-1235645838) - Rollingstone
+- [Charli XCX Forced To Make Huge Tour Decision: ‘Fighting Sickness’](https://www.yahoo.com/entertainment/music/articles/charli-xcx-forced-huge-tour-141158400.html) - Yahoo
+- [Charli xcx Cancels 'Music, Fashion, Film' Arizona Show Due to Illness](https://variety.com/2026/music/news/charli-xcx-cancels-arizona-show-due-to-illness-1236918156) - Variety
+- [Charli xcx Cancels Arizona Concert After Losing Her Voice](https://inmusicblog.com/news/charli-xcx-cancels-arizona-concert-loses-voice) - Inmusicblog
+- [Charli xcx Arizona Concert Canceled: Details](https://www.billboard.com/music/pop/charli-xcx-arizona-concert-canceled-1236364200) - Billboard
+- [Los Gemelos de Sinaloa Are the Twins Winning the Música Mexicana Game](http://www.rollingstone.com/music/music-latin/los-gemelos-de-sinaloa-u-s-tour-dates-label-rancho-humilde-1235646185/) - Rolling Stone
+- [Los Gemelos de Sinaloa on U.S. Tour, Fuerza Regida, Rancho Humilde](https://www.rollingstone.com/music/music-latin/los-gemelos-de-sinaloa-u-s-tour-dates-label-rancho-humilde-1235646185) - Rollingstone
+- [Liam Gallagher sends fans wild as he appears to confirm Oasis have a new album on the way](https://www.dailymail.com/tvshowbiz/article-16226397/Liam-Gallagher-fans-wild-confirm-Oasis-new-album.html) - Dailymail.com
+- [Liam Gallagher suggests Oasis will discuss new album after ‘Live ’27’ tour: “Can’t see us touring again unless we have new music”](https://www.nme.com/news/music/liam-gallagher-oasis-discuss-new-music-after-live-27-tour-3971261) - Nme
+- [Liam Gallagher drops huge hint over new Oasis album - The Mirror](https://www.mirror.co.uk/3am/celebrity-news/oasis-new-music-liam-gallagher-37797255) - Mirror
+- [Talking Heads Reunite for Coffee Table Book](http://www.rollingstone.com/music/music-news/talking-heads-new-feeling-book-1235646227/) - Rolling Stone
+- [Talking Heads Announce New Book](https://pitchfork.com/story/talking-heads-announce-new-book/) - Pitchfork
+- [Talking Heads Announce First Authorized Book New Feeling](https://consequence.net/2026/10/talking-heads-reunite-new-feeling-book) - Consequence
+- [Talking Heads Announce Career-Spanning Book 'New Feeling'](https://hit-channel.com/talking-heads-new-feeling-book) - Hit-channel
+- [Talking Heads reunite for first authorised book in decades -](https://happymag.tv/talking-heads-reunite-first-authorised-book-decades) - Happymag
+- [Talking Heads announce book of rare archive material](https://www.rte.ie/entertainment/2026/1022/1596402-talking-heads-announce-book-of-rare-archive-material) - Rte
+- [Talking Heads announce 'Talking Heads: New Feeling,' their first authorized book as a band](https://theneedledrop.com/news/talking-heads-announce-talking-heads-new-feeling-their-first-authorized-book-as-a-band) - Theneedledrop
+- [Martin Garrix Rocks With U2, Madonna, Ed Sheeran](https://www.spinmagazine.com/2026/10/martin-garrix-new-album/) - Spinmagazine.com
+- [Martin Garrix announces all-star debut pop album - The Music Universe](https://themusicuniverse.com/martin-garrix-announces-all-star-debut-pop-album) - Themusicuniverse
+- [Martin Garrix Rocks With U2, Madonna, Ed Sheeran](https://www.yahoo.com/entertainment/music/articles/martin-garrix-rocks-u2-madonna-150609536.html) - Yahoo
+- [Martin Garrix announces debut pop album ‘MARTY’, featuring U2, Ed Sheeran, Madonna & Aitana](https://www.bandwagon.asia/articles/martin-garrix-announces-debut-pop-album-marty-featuring-u2-ed-sheeran-madonna-aitana) - Bandwagon
+- [Martin Garrix announces debut album ‘MARTY’ featuring Madonna, U2 and Ed Sheeran](https://tribune.com.pk/story/2636167/martin-garrix-announces-debut-album-marty-featuring-madonna-u2-and-ed-sheeran) - Tribune
+- [Музыка «Битлз» из параллельных вселенных: десятки альбомов великой Четвёрки, которые вы до сих пор не слышали](https://www.ixbt.com/live/offtopic/muzyka-bitlz-iz-parallelnyh-vselennyh-desyatki-albomov-velikoy-chetverki-kotorye-vy-do-sih-por-ne-slyshali.html) - Ixbt.com
+- [Alt.Latino: The Los Tigres Tiny Desk explained](https://www.npr.org/2026/10/21/nx-s1-6010854/alt-latino-the-los-tigres-tiny-desk-explained) - NPR
+- [The Los Tigres Tiny Desk explained : Alt.Latino : NPR](https://www.npr.org/2026/10/21/nx-s1-6010661/the-los-tigres-tiny-desk-explained) - Npr
+- [Los Tigres del Norte, a Tiny Desk Concert, and the Big Question of the Latino Vote](https://thelatinonewsletter.org/p/los-tigres-del-norte-a-tiny-desk-concert-and-the-big-question-of-the-latino-vote) - Thelatinonewsletter
+- [Los Tigres Del Norte's Tiny Desk performance is radical Latinidad - Los Angeles Times](https://www.latimes.com/delos/story/2026-10-15/los-tigres-del-norte-latinidad-npr-tiny-desk-concert-el-tiny) - Latimes
+- [Ben Folds Five Detail First Tour Since 2013](https://www.spinmagazine.com/2026/10/ben-folds-five-first-tour-since-2013/) - Spinmagazine.com
+- [Ben Folds Five Announce First Tour in 15 Years](https://consequence.net/2026/10/ben-folds-five-2027-us-tour/) - Consequence.net
+- [As expected, Ben Folds Five is getting the band back ...](https://www.facebook.com/SPIN/posts/as-expected-ben-folds-five-is-getting-the-band-back-together-the-influential-pia/1559311966228644) - Facebook
+- [Ben Folds Five Detail First Tour Since 2013](https://www.yahoo.com/entertainment/music/articles/ben-folds-five-detail-first-140800406.html) - Yahoo
+- [Ben Folds Five Announce First US Tour in 15 Years](https://consequence.net/2026/10/ben-folds-five-2027-us-tour) - Consequence
+- [Ben Folds Five to stop in Austin on first tour in 15 years - CultureMap Austin](https://austin.culturemap.com/news/entertainment/ben-folds-five-tour-acl) - Culturemap
+- [Ben Folds Five Reveals 2027 US Tour Dates - V13 Media](https://v13.net/2026/10/ben-folds-five-reveals-2027-us-tour-dates) - V13
+- [6 Classic Rock Hits That Almost Went to Different Artists](https://www.mentalfloss.com/6-classic-rock-hits-that-almost-went-to-different-artists-01m5awr0ybcw) - Mental Floss
+- [Yard Act is still searching for a greater purpose](https://www.npr.org/2026/10/21/nx-s1-6004238/yard-act-is-still-searching-for-a-greater-purpose) - NPR
+- [Review: Yard Act – You’re Gonna Need a Little Music – 7th Level Music](https://www.7thlevelmusic.com?p=16852) - 7thlevelmusic
+- [Yard Act is still searching for a greater purpose - KASU.org](https://www.kasu.org/education-and-community-culture/2026-10-21/yard-act-is-still-searching-for-a-greater-purpose) - Kasu
+- [Yard Act is still searching for a greater purpose](https://www.wkms.org/2026-10-21/yard-act-is-still-searching-for-a-greater-purpose) - Wkms
+- [Yard Act is still searching for a greater purpose](https://www.knba.org/2026-10-21/yard-act-is-still-searching-for-a-greater-purpose) - Knba
