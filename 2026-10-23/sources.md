@@ -1,0 +1,72 @@
+# Sources for 2026-10-23 News Episode 
+- [Raye Wins 2026 Mercury Prize](https://pitchfork.com/story/raye-wins-2026-mercury-prize/) - Pitchfork
+- [Raye Wins Mercury Prize for Album of the Year](https://variety.com/2026/music/news/raye-wins-mercury-prize-album-of-the-year-1236921858/) - Variety
+- [Raye wins the Mercury Prize with This Music May Contain Hope](https://www.bbc.co.uk/news/articles/cw073mj02v72o) - BBC News
+- [Galway artist Dove Ellis misses out on Mercury Prize as Raye crowned winner](https://www.thejournal.ie/mercury-prize-2026-7202433-Oct2026/) - TheJournal.ie
+- [RAYE wins Mercury Prize 2026 for album This Music May Contain Hope \| ITV News Tyne Tees](https://www.itv.com/news/tyne-tees/2026-10-22/raye-wins-mercury-prize-2026-for-album-this-music-may-contain-hope) - Itv
+- [Raye left tearful as she's revealed as winner of the 2026 Mercury Prize - The Mirror](https://www.mirror.co.uk/3am/celebrity-news/mercury-prize-awards-2026-winner-37801254) - Mirror
+- [Raye takes home Mercury Prize for ‘This Music May Contain Hope’](https://hirunews.lk/goldfmnews/495727/raye-takes-home-mercury-prize-for-this-music-may-contain-hope) - Hirunews
+- [Raye wins Mercury Prize for her album This Music May Contain Hope \| Alloa and Hillfoots Advertiser](https://www.alloaadvertiser.com/leisure/national/26662769.raye-wins-mercury-prize-album-music-may-contain-hope) - Alloaadvertiser
+- [DIY and LNER take you to the music for the 2026 Mercury Prize Newcastle • News • DIY Magazine](https://diymag.com/news/diy-lner-2026-mercury-prize-newcastle-shortlist) - Diymag
+- [Universal Music aims for Grammy glory with new cross-cultural act IndiLat](https://musically.com/2026/10/22/universal-music-aims-for-grammy-glory-with-new-cross-cultural-act-indilat/) - Music Ally
+- [Universal Music aims for Grammy glory with new cross-cultural act IndiLat - Music Ally](https://musically.com/2026/10/22/universal-music-aims-for-grammy-glory-with-new-cross-cultural-act-indilat) - Musically
+- [Indian and Latin American sounds find a meeting point in ‘Muévete’ - The Hindu](https://www.thehindu.com/entertainment/music/indialatin-america-fusion-finds-its-root-in-indilats-muevete/article71554771.ece) - Thehindu
+- [Queens Of The Stone Age kündigen "Halloqueen"-Events rund um Albumveröffentlichung an](https://www.visions.de/news/queens-of-the-stone-age-halloqueen/) - Visions.de
+- [Queens of the Stone Age May 14, 2027 \| Grand Casino Arena](https://www.grandcasinoarena.com/news/detail/queens-of-the-stone-age-may-14-2027) - Grandcasinoarena
+- [Queens Of The Stone Age HalloQueen Listening Party 4pm · Fingerprints Music](https://fingerprintsmusic.com/in-store-events/queens-of-the-stone-age-halloqueen-listening-party-4pm) - Fingerprintsmusic
+- [QUEENS OF THE STONE AGE Announce 2027 Tour; Watch Band Perform "Where The Goth Girls At?" On The Tonight Show Starring Jimmy Fallon; Video](https://bravewords.com/news/queens-of-the-stone-age-announce-2027-tour-watch-band-perform-where-the-goth-girls-at-on-the-tonight-show-starring-jimmy-fallon-video) - Bravewords
+- [Queens of The Stone Age 2026 Chicago](https://www.tiktok.com/discover/queens-of-the-stone-age-2026-chicago) - Tiktok
+- [Ella Langley Pays Tribute to Dolly Parton With Smoldering Version of ‘Jolene’](http://www.rollingstone.com/music/music-country/ella-langley-performs-jolene-dolly-parton-tribute-concert-1235646106/) - Rolling Stone
+- [Zac Brown Delivers Emotional ‘Duet’ With Dolly Parton During Tribute Ceremony](http://www.rollingstone.com/music/music-country/zac-brown-dolly-parton-duet-butterfly-tribute-concert-1235646266/) - Rolling Stone
+- [How Lainey Wilson’s Celebration of Dolly Parton Look Paid Homage to the Late Country Singer](http://wwd.com/pop-culture/celebrity-news/lainey-wilson-celebration-of-dolly-parton-butterfly-jacket-1239380571/) - WWD
+- [Ella Langley Honors Dolly Parton with 'Jolene' at CMA Tribute Special in Nashville](https://www.yahoo.com/entertainment/music/articles/ella-langley-honors-dolly-parton-052530598.html) - Yahoo
+- [Ella Langley Sings 'Jolene' at Dolly Parton Tribute Concert - WATCH](https://www.rollingstone.com/music/music-country/ella-langley-performs-jolene-dolly-parton-tribute-concert-1235646106) - Rollingstone
+- [2027 Grammys Predictions: Best Contemporary Country Album Nominees](https://www.rollingstone.com/music/music-features/grammys-2027-best-contemporary-country-album-predictions-1235644241) - Rollingstone
+- [Dolly Parton Tribute Show: CMA Taps Ella Langley, Reba McEntire](https://www.rollingstone.com/music/music-country/dolly-parton-tribute-show-cma-ella-langley-reba-mcentire-1235636789) - Rollingstone
+- [CMA's Dolly Parton Celebration Red Carpet: Reba McEntire, Katy Perry & More](https://deadline.com/gallery/cmas-dolly-parton-celebration-red-carpet-reba-mcentire-katy-perry-kristin-chenoweth-more) - Deadline
+- [Anuel AA Announces Corridos Album, Maluma Reveals Plans to Explore Música Mexicana](https://consequence.net/2026/10/anuel-aa-maluma-corridos-musica-mexicana/) - Consequence.net
+- [Anuel AA Reveals Corridos Album Plans, Maluma Eyes Música Mexicana Project](https://consequence.net/2026/10/anuel-aa-maluma-corridos-musica-mexicana) - Consequence
+- [Anuel AA Dropping a Corridos Album & 'RHLM2': Latin Music Week 2026](https://www.billboard.com/music/latin/anuel-aa-new-album-premiere-party-latin-music-week-2026-1236362394) - Billboard
+- [Premios Billboard de la Música Latina 2026: lista completa de nominados y dónde ver la entrega](https://www.record.com.mx/historia/premios-billboard-de-la-musica-latina-2026-lista-completa-de-nominados-y-donde-ver-la-entrega-2026102204092793704) - Record.com.mx
+- [Billboard Latin Music Awards 2026: How to Watch & Full Nominees List](https://www.justjared.com/2026/10/22/billboard-latin-music-awards-2026-how-to-watch-performers-nominees) - Justjared
+- [2026 Billboard Latin Music Awards Performers: Tito Double P, Kapo, More](https://www.billboard.com/music/latin/2026-billboard-latin-music-awards-performers-tito-double-p-1236345616) - Billboard
+- [2026 Billboard Latin Music Awards Performers & Presenters: Full List](https://www.billboard.com/music/latin/2026-billboard-latin-music-awards-performers-how-to-watch-1236356486) - Billboard
+- [Tony Iommi keeps the Black Sabbath flame burining on From The Dark](https://www.loudersound.com/music/albums/tony-iommi-from-the-dark) - Louder
+- [Tony Iommi – From The Dark ReviewTony Iommi From The Dark Album Review](https://myglobalmind.com/2026/10/21/tony-iommi-from-the-dark-album-review) - Myglobalmind
+- [Tony Iommi: From The Dark – Album Review](https://louderthanwar.com/tony-iommi-from-the-dark-album-review) - Louderthanwar
+- [Tony Iommi - From The Dark (Album Review) - Wall Of Sound](https://www.wallofsoundau.com/reviews/tony-iommi-from-the-dark-album-review) - Wallofsoundau
+- [JØRN LANDE Talks Co-Writing And Singing On TONY IOMMI's Entire New Solo Album - "I Was Asked If I Wanted To Maybe Work On A Track Or Two" (Video)](https://bravewords.com/news/jorn-lande-talks-co-writing-and-singing-on-tony-iommis-entire-new-solo-album-i-was-asked-if-i-wanted-to-maybe-work-on-a-track-or-two-video) - Bravewords
+- [Black Sabbath's Tony Iommi Releases 'Stormwatcher' Video](https://www.rollingstone.com/music/music-news/tony-iommi-stormwatcher-music-video-1235634010) - Rollingstone
+- [Daft Punk and LEGO Join Forces for New Partnership, “Alive 2007” Set Confirmed](https://consequence.net/2026/10/daft-punk-alive-2007-lego-set/) - Consequence.net
+- [Daft Punk and LEGO Announce Partnership, "Alive 2007" Set Confirmed](https://consequence.net/2026/10/daft-punk-alive-2007-lego-set) - Consequence
+- [LEGO Inks Daft Punk Partnership After Fan-Inspired Project](https://www.digitalmusicnews.com/2026/10/22/lego-daft-punk-partnership) - Digitalmusicnews
+- [LEGO and DAFT PUNK™ Team up for 'ALIVE 2007' Set \| Hypebeast](https://hypebeast.com/2026/10/lego-daft-punk-collaboration-alive-2007-set-release-info-partnership-launch-news) - Hypebeast
+- [Daft Punk announce LEGO partnership · News ⟋ RA](https://ra.co/news/86253) - Ra
+- [The LEGO Group and DAFT PUNK Partnership Announcement - About Us - LEGO.com](https://www.lego.com/en-us/aboutus/news/2026/october/lego-group-and-daft-punk-partnership-announcement) - Lego
+- [The LEGO Group and Daft Punk Announce Partnership](https://toybook.com/daft-punk-lego-ideas-announcement) - Toybook
+- [TXT’s Agency Warns Of Strong Legal Action Against False Rumors And Malicious Posts](http://www.soompi.com/article/1880735wpp/txts-agency-warns-of-strong-legal-action-against-false-rumors-and-malicious-posts) - soompi
+- [TXT’s Agency Warns Of Strong Legal Action Against False Rumors And Malicious Posts \| Soompi](https://www.soompi.com/article/1880735wpp/txts-agency-warns-of-strong-legal-action-against-false-rumors-and-malicious-posts) - Soompi
+- [BigHit Music Takes Legal Action Against Malicious Posts Targeting TXT Amid "Severe Defamatory Rumors Ahead of Comeback"](https://news.sbs.co.kr/english/article.do?news_id=N1008810756) - Sbs
+- [TXT — Big Hit Music Announces Strong Legal Action Against Malicious Rumors](https://en.koreadaily.com/txt-legal-action-malicious-rumors) - Koreadaily
+- [Who is Jeremy Yang? Alleged Chinese streamer linked to TXT's Soobin releases video and chat logs amid BIGHIT legal threat](https://www.indiatimes.com/trending/who-is-jeremy-yang-alleged-chinese-streamer-linked-to-txts-soobin-releases-video-and-chat-logs-amid-bighit-legal-threat/articleshow/135110113.html) - Indiatimes
+- [TXT Soobin News \| TXT (Tomorrow X Together) Soobin Issue \| TXT Soobin Gay Deepfakes Video Controversy \| TXT Soobin (Choi Soo Bin) Explicit Gay Deepfake Allegations: BigHit Music Issues Statement \| TXT Soobin Gay Deepfake: Male Influencer Shares New Video Of Soobin Amid Heavy Fan Backlash \| Is TXT Soobin Gay - Filmibeat](https://www.filmibeat.com/korean/txt-soobin-news-choi-soo-bin-gay-deepfake-controversy-male-influencer-drops-new-post-bighit-responds-535549.html) - Filmibeat
+- [John Anderson, Country Hall of Famer Whose Hits Included ‘Seminole Wind’ and ‘Swingin’,’ Dies at 71](https://variety.com/2026/music/people-news/john-anderson-dead-seminole-wind-swingin-die-1236919387/) - Variety
+- [John Anderson, country music Hall of Famer, dies at 71](https://www.cbsnews.com/news/john-anderson-dies-age-71-country-music-hall-of-famer/) - CBS News
+- [John Anderson Dies: Country Singer Of Hits ‘Wild And Blue’ & ‘Swingin” Was 71](http://deadline.com/2026/10/john-anderson-dead-1237170579/) - Deadline
+- [Country Music Legend John Anderson Dead At 71](https://dailycaller.com/2026/10/22/john-anderson-country-music-hall-of-fame-legend-dead-71) - The Daily Caller
+- [John Anderson, country music star whose hits included 'Wild and Blue,' dies at 71](https://abcnews.com/Entertainment/wireStory/john-anderson-country-music-star-hits-included-wild-137478084) - Abcnews.com
+- [John Anderson, Country Music Hall of Famer, Dies at 71](https://www.breitbart.com/entertainment/2026/10/22/john-anderson-country-music-hall-of-famer-dies-at-71/) - Breitbart News
+- [The next K-pop? POPS founder Esther Nguyen hopes TikTok can make Southeast Asian music a global phenomenon](https://fortune.com/2026/10/22/esther-nguyen-pops-worldwide-vietnam-music/) - Fortune
+- [The next K-pop? POPS founder Esther Nguyen hopes TikTok can make Southeast Asian music a global phenomenon](https://finance.yahoo.com/media-advertising/articles/next-k-pop-pops-founder-070000091.html) - Yahoo
+- [The next K-pop? POPS founder hopes TikTok can make Southeast Asian music a global phenomenon \| Fortune](https://fortune.com/2026/10/22/esther-nguyen-pops-worldwide-vietnam-music) - Fortune
+- [Tiny Desk Radio: Shirley Caesar, Sam Smith, CeCe Winans](https://www.npr.org/2026/10/22/g-s1-149341/tiny-desk-radio-shirley-caesar-sam-smith-cece-winans) - NPR
+- [Tiny Desk Radio: Shirley Caesar, Sam Smith, CeCe Winans \| NSPR](https://www.mynspr.org/npr-news/2026-10-22/tiny-desk-radio-shirley-caesar-sam-smith-cece-winans) - Mynspr
+- [We take y'all to church on this episode. We presents three ...](https://www.facebook.com/NPR/posts/we-take-yall-to-church-on-this-episode-we-presents-three-artists-backed-by-choir/1483046007025727) - Facebook
+- [Chris Motionless Interview - 'Our Fans Are So Passionate'](https://loudwire.com/chris-motionless-in-white-interview/) - Loudwire
+- [Chris Motionless Interview - 'Our Fans Are So Passionate'](https://loudwire.com/chris-motionless-in-white-interview) - Loudwire
+- [Michael Kiwanuka – FUDGE (2026)](https://exystence.net/blog/2026/10/22/michael-kiwanuka-fudge-2026/) - Exystence.net
+- [Michael Kiwanuka announces new album FUDGE - Northern Transmissions](https://northerntransmissions.com/michael-kiwanuka-announces-new-album-fudge) - Northerntransmissions
+- [Michael Kiwanuka Fudge review: His most personal statement yet](https://www.mojo4music.com/articles/new-music/michael-kiwanuka-fudge-reviewed) - Mojo4music
+- [Fudge review – on his secret fifth album, Michael Kiwanuka answers to no one but himself](https://observer.co.uk/music/pop/article/on-fudge-michael-kiwanuka-answers-to-no-one-but-himself) - Observer
+- [Michael Kiwanuka review, Fudge – A bittersweet return for one of our best artists \| The Independent](https://www.independent.co.uk/arts-entertainment/music/reviews/michael-kiwanuka-fudge-review-stroke-health-b3070655.html) - Independent
+- [Michael Kiwanuka: Fudge review – rough and instinctive, but also lush and alive with melody - AOL](https://www.aol.com/articles/michael-kiwanuka-fudge-review-rough-060022000.html) - Aol
