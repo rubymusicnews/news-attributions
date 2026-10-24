@@ -1,0 +1,76 @@
+# Sources for 2026-10-24 News Episode 
+- [Major music stars like Harry Styles and Celine Dion are embracing residencies. Here’s why](https://newsroom.ap.org/detail/Why%20big%20music%20stars%20like%20Harry%20Styles%20and%20Celine%20Dion%20are%20embracing%20residencies/6ffeeffb46fbc81a4c4a30f10babd4a1/text) - Ap.org
+- [Why big music stars like Harry Styles and Celine Dion are embracing residencies](https://www.bozemandailychronicle.com/wire/business/why-big-music-stars-like-harry-styles-and-celine-dion-are-embracing-residencies/article_c31c7a73-eba7-5c4b-ad3b-a992b464c1e5.html) - Bozemandailychronicle
+- [Why music superstars like Harry Styles and Celine Dion are embracing residencies](https://unb.com.bd/category/Entertainment/why-music-superstars-like-harry-styles-and-celine-dion-are-embracing-residencies/198581) - Unb
+- [Why big music stars like Harry Styles and Celine Dion are embracing residencies](https://www.newindianexpress.com/amp/story/entertainment/entertainment-news/2026/Oct/24/why-big-music-stars-like-harry-styles-and-celine-dion-are-embracing-residencies) - Newindianexpress
+- [Why music superstars like Harry Styles and Celine Dion are embracing residencies](https://www.tbsnews.net/splash/why-music-superstars-harry-styles-and-celine-dion-are-embracing-residencies-1581361) - Tbsnews
+- [Why big music stars like Harry Styles and Celine Dion are embracing residencies](https://www.weatherforddemocrat.com/texas/news/why-big-music-stars-like-harry-styles-and-celine-dion-are-embracing-residencies/article_59f11557-4ddc-53d8-ac04-e16cccf3d232.html) - Weatherforddemocrat
+- [Rosalía Pays Tribute to Juan Luis Guerra, Celia Cruz, Daddy Yankee, and More During Billboard Hall of Fame Induction](https://consequence.net/2026/10/rosalia-billboard-hall-of-fame-juan-luis-guerra/) - Consequence.net
+- [Rosalía Is Latest Star Embracing Bra Top Trend](http://wwd.com/pop-culture/celebrity-news/rosalia-tom-ford-haider-ackermann-bra-top-billboard-latin-1239383600/) - WWD
+- [Rosalía Honors Latin Music Legends During Billboard Hall of Fame Speech](https://consequence.net/2026/10/rosalia-billboard-hall-of-fame-juan-luis-guerra) - Consequence
+- [Karol G Wins Four Awards at the 2026 Billboard Latin Music Awards](https://colombiaone.com/2026/10/23/karol-g-2026-billboard-latin-music-awards) - Colombiaone
+- [Rosalía Receives Hall of Fame Award: Billboard Latin Music Awards 2026](https://www.billboard.com/music/latin/rosalia-hall-of-fame-speech-billboard-latin-music-awards-1236366165) - Billboard
+- [Rosalía Won Three Billboard Latin Music Awards and Thanked Latin America for Every Single One of Them \| BELatina](https://belatina.com/rosalia-won-three-billboard-latin-music-awards-and-thanked-latin-america-for-every-single-one-of-them) - Belatina
+- [Fuerza Regida wins big at 2026 Billboard Latin Music Awards](https://www.miaminewtimes.com/music/fuerza-regida-wins-big-at-2026-billboard-latin-music-awards-40593532) - Miaminewtimes
+- [The artist dropping her debut album after a billion streams](https://www.bbc.co.uk/news/articles/cwj0leg7ng67o) - BBC News
+- [Jazzy on her debut LP, the solutions needed for Ireland's nightclubs and the 'laziness' of AI](https://www.musicweek.com/talent/read/jazzy-on-her-debut-lp-the-solutions-needed-for-ireland-s-nightclubs-and-the-laziness-of-ai/095309) - Musicweek
+- [Bad Wolves Unveil New Version of “Jolene” Cover with Dolly Parton’s Vocals: Stream](https://consequence.net/2026/10/bad-wolves-new-jolene-cover-dolly-parton-vocals/) - Consequence.net
+- [Bad Wolves Release Cover of "Jolene" With Dolly Parton — Better Noise Music](https://betternoise.com/news/bad-wolves-release-cover-of-jolene-with-dolly-parton) - Betternoise
+- [Bad Wolves Unveil New Version of "Jolene" Cover with Dolly Parton's Vocals](https://consequence.net/2026/10/bad-wolves-new-jolene-cover-dolly-parton-vocals) - Consequence
+- [Bad Wolves release “Jolene” with Dolly Parton](https://nextmosh.com/bad-wolves-release-jolene-cover-featuring-dolly-partons-vocals) - Nextmosh
+- [Bad Wolves Release New Version of "Jolene" Featuring Dolly Parton Herself │ Exclaim!](https://exclaim.ca/music/article/bad-wolves-release-new-version-of-jolene-featuring-dolly-parton-herself) - Exclaim
+- [BAD WOLVES Release Official Music Video For New Version Of "Jolene" Feat. DOLLY PARTON](https://bravewords.com/news/bad-wolves-release-official-music-video-for-new-version-of-jolene-feat-dolly-parton) - Bravewords
+- [I-Pop meets K-Pop in the Weverse Con Festival India line-up](https://musically.com/2026/10/23/i-pop-meets-k-pop-in-the-weverse-con-festival-india-line-up/) - Music Ally
+- [Weverse Con Festival India Announces 2027 Lineup](https://inmusicblog.com/k-pop/weverse-con-festival-india-2027-lineup) - Inmusicblog
+- [ENHYPEN, TXT, HWASA join India's first Weverse Con Festival 2027 in New Delhi; Check out the full lineup \| PINKVILLA: Korean](https://www.pinkvilla.com/entertainment/enhypen-txt-hwasa-join-indias-first-weverse-con-festival-2027-in-new-delhi-check-out-the-full-lineup-1405962) - Pinkvilla
+- [HYBE takes flagship Weverse Con festival overseas for 1st time with India debut - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261008/hybe-takes-flagship-weverse-con-festival-overseas-for-1st-time-with-india-debut) - Koreatimes
+- [Weverse Con India Tickets: Presale Oct. 27, Sale Oct. 30 : CONCERTS : koreaportal](https://en.koreaportal.com/amp/articles/54913/20261021/weverse-con-india-tickets-presale-oct-27-sale-30.htm) - Koreaportal
+- [HYBE’s Weverse Con Festival to make its international debut in India in 2027 - Music Business Worldwide](https://www.musicbusinessworldwide.com/hybes-weverse-con-festival-to-make-its-international-debut-in-india-in-2027) - Musicbusinessworldwide
+- [Slash Interview: New Music With Myles Kennedy, Honoring Aerosmith](https://loudwire.com/slash-myles-kennedy-conspirators-flying-blind-interview/) - Loudwire
+- [Slash feat. Myles Kennedy and The Conspirators to release new studio album “Flying Blind” on February 26th 2027 \| Grande Rock webzine](https://grande-rock.com/news/slash-feat-myles-kennedy-and-the-conspirators-to-release-new-studio-album-flying-blind-on-february-26th-2027) - Grande-rock
+- [Slash Interview: New Music With Myles Kennedy, Honoring ...](https://www.facebook.com/SlashFrance/posts/slash-interview-new-music-with-myles-kennedy-honoring-aerosmith-/2069068267914483) - Facebook
+- [Slash announce Flying Blind, share title track and 2027 tour](https://metalinsider.net/video/slash-featuring-myles-kennedy-and-the-conspirators-drop-flying-blind-video-new-album-arriving-in-february) - Metalinsider
+- [Slash Interview: New Music With Myles Kennedy, Honoring Aerosmith](https://loudwire.com/slash-myles-kennedy-conspirators-flying-blind-interview) - Loudwire
+- [Twisted Teens Hit the Big Time](https://pitchfork.com/story/twisted-teens-hit-the-big-time-interview/) - Pitchfork
+- [Twisted Teens Share 'Stalks', Opening Track from Their Third Album Of The Year - Indie is not a genre](https://www.indieisnotagenre.com/twisted-teens-share-stalks-opening-track-from-their-third-album-of-the-year) - Indieisnotagenre
+- [Twisted Teens Hit the Big Time \| Pitchfork](https://pitchfork.com/story/twisted-teens-hit-the-big-time-interview) - Pitchfork
+- [Melon Music Awards 2026 Announces Presenter Lineup](http://www.soompi.com/article/1880886wpp/melon-music-awards-2026-announces-presenter-lineup) - soompi
+- [MMA2026 Presenters Unite Global K-Pop Fans](https://www.chosun.com/english/kpop-culture-en/2026/10/23/GGPDT3ICSZE2HCVXK45GTXITRA) - Chosun
+- [Melon Music Awards 2026 Announces Presenter Lineup \| Soompi](https://www.soompi.com/article/1880886wpp/melon-music-awards-2026-announces-presenter-lineup) - Soompi
+- [MMA2026: From Lee Young-ae and Lee Seung-chul to aespa, IVE and KORTIS ... “A Convergence of Stars” - First-Class Business Newspaper Financial News](https://en.fnnews.com/news/202610231034433720) - Fnnews
+- [Byun Yo-Han and Tiffany Young to present at Melon Music Awards 2026 in Seoul - CHOSUNBIZ](https://biz.chosun.com/en/en-entertainment/2026/10/23/VHZZATBY75B2JEFRYITADNPLTA) - Chosun
+- [Beoga on quitting Ed Sheeran’s tour: ‘You have to hold your friends accountable’](https://www.irishtimes.com/culture/music/2026/10/23/irish-trad-group-beoga-on-quitting-ed-sheerans-tour-you-have-to-hold-your-friends-accountable/) - The Irish Times
+- [Beoga and Niall Breslin to perform on The Late Late Show tonight \| Hotpress](https://www.hotpress.com/music/beoga-and-niall-breslin-to-perform-on-the-late-late-show-tonight-23166191) - Hotpress
+- [Beoga on quitting Ed Sheeran’s tour: ‘You have to hold your friends accountable’ – The Irish Times](https://www.irishtimes.com/culture/music/2026/10/23/irish-trad-group-beoga-on-quitting-ed-sheerans-tour-you-have-to-hold-your-friends-accountable) - Irishtimes
+- [Beoga quits Ed Sheeran's tour in solidarity with Macklemore over Palestine stance - SSBCrack News](https://news.ssbcrack.com/beoga-quits-ed-sheerans-tour-in-solidarity-with-macklemore-over-palestine-stance) - Ssbcrack
+- [Niamh Dunne says Beoga quit Ed Sheeran’s tour after September 14 removal](https://www.el-balad.com/17060330) - El-balad
+- [Irish trad band who quit Ed Sheeran’s tour reveal where they stand with the singer after Macklemore-Palestine row](https://goss.ie/showbiz/irish-trad-band-who-quit-ed-sheerans-tour-reveal-where-they-stand-with-the-singer-after-macklemore-palestine-row-487309) - Goss
+- [Ed Sheeran opening act Beoga shares free Palestine message on live TV after dropping out of his shows](https://www.irishstar.com/culture/entertainment/ed-sheeran-beoga-free-palestine-37805885) - Irishstar
+- [Irish band Beoga speak out after quitting Ed Sheeran's tour over Macklemore Palestine row](https://www.rsvplive.ie/news/irish-news/irish-band-beoga-speak-out-37737862) - Rsvplive
+- [Irish band speaks out after leaving Ed Sheeran's US tour in solidarity with Macklemore](https://www.dublinlive.ie/news/world-news/irish-band-speaks-out-after-34720871) - Dublinlive
+- [Echolocation: Where has Ecco2k been these last 5 years?](https://www.dazeddigital.com/music/article/71225/1/echolocation-where-has-ecco2k-been-these-last-5-years-aldehydes-and-ketones?utm_source=Link&utm_medium=Link&utm_campaign=RSSFeed&utm_term=echolocation-where-has-ecco2k-been-these-last-5-years) - Dazed
+- [Ecco2k returns with first new solo release in nearly five years, “Aldehydes and Ketones” \| The Line of Best Fit](https://www.thelineofbestfit.com/news/ecco2k-returns-with-first-new-solo-release-in-nearly-five-years-aldehydes-and-ketones) - Thelineofbestfit
+- [Ecco2k drops first solo song in 5 years, “Aldehydes and Ketones” \| The FADER](https://www.thefader.com/2026/10/22/ecco2k-aldehydes-and-ketones) - Thefader
+- [Echolocation: Where has Ecco2k been these last 5 years? \| Dazed](https://www.dazeddigital.com/music/article/71225/1/echolocation-where-has-ecco2k-been-these-last-5-years-aldehydes-and-ketones) - Dazeddigital
+- [Ecco2k returns with "Aldehydes and Ketones"](https://theneedledrop.com/news/ecco2k-returns-new-single) - Theneedledrop
+- [ALDEHYDES AND KETONES. DROPPING TOMORROW](https://www.reddit.com/r/sadboys/comments/1xbw24r/ecco2k_aldehydes_and_ketones_dropping_tomorrow) - Reddit
+- [Yung Miami Drops Her Debut Album Watch Dis!](https://www.xxlmag.com/yung-miami-watch-dis-album/) - XXLMAG.COM
+- [Biggest Takeaways From Yung Miami’s New Album ‘Watch Dis!’](https://hiphopwired.com/3068373/biggest-takeaways-from-yung-miami-new-album-watch-dis/) - Hip-Hop Wired
+- [Don’t Cry, Caresha! Yung Miami Gets Candid About Crying While Crafting ‘Dear JT’ Amid The City Girls’ Sisterhood Split](https://bossip.com/4647861/yung-miami-dear-jt/) - Bossip
+- [Yung Miami ‘Watch Dis’ Review](https://inmusicblog.com/reviews/yung-miami-watch-dis-review-best-songs-ranked) - Inmusicblog
+- [Yung Miami addresses estranged friendship with JT on “Dear JT” \| The FADER](https://www.thefader.com/2026/10/23/yung-miami-dear-jt-lyrics-song) - Thefader
+- [Yung Miami Addresses JT Fallout on New Solo Album 'Watch Dis!'](https://www.hot97.com/news/yung-miami-addresses-jt-fallout-on-new-solo-album-watch-dis) - Hot97
+- [Yung Miami Reveals Star-Studded Watch Dis Album Tracklist](https://www.hot97.com/news/yung-miami-reveals-star-studded-watch-dis-album-tracklist) - Hot97
+- [Yung Miami Unveils 'Watch Dis' Album Tracklist Featuring Summer Walker, Trina, Travis Scott, & More - That Grape Juice](https://thatgrapejuice.net/2026/10/yung-miami-unveils-watch-dis-album-tracklist-featuring-summer-walker-trina-travis-scott-more) - Thatgrapejuice
+- [Yung Miami Reveals Full Tracklist for Debut Solo Album \| Pitchfork](https://pitchfork.com/story/yung-miami-announces-debut-solo-album-watch-dis-features) - Pitchfork
+- [Deep Cut Friday: “Found a Job” by Talking Heads](https://www.spinmagazine.com/2026/10/deep-cut-friday-found-a-job-by-talking-heads/) - Spinmagazine.com
+- [Ryan Gosling’s Band Dead Man’s Bones Tease Return](https://pitchfork.com/story/ryan-goslings-band-dead-mans-bones-tease-return/) - Pitchfork
+- [Ryan Gosling's band Dead Man's Bones is back after 17 years](https://www.thelineofbestfit.com/news/ryan-goslings-band-dead-mans-bones-is-back-after-17-years) - Thelineofbestfit.com
+- [Dead Man's Bones to Return with New Music After 17 Years](https://exclaim.ca/music/article/dead-man-s-bones-to-return-with-new-music-after-17-years) - Exclaim!
+- [Ryan Gosling makes surprise musical comeback after 17 years \| Contactmusic.com](https://www.contactmusic.com/story/467/3632126/ryan-gosling-makes-surprise-musical-comeback-after-17-years) - Contactmusic
+- [Ryan Gosling’s Band Dead Man’s Bones Tease Return \| Pitchfork](https://pitchfork.com/story/ryan-goslings-band-dead-mans-bones-tease-return) - Pitchfork
+- [Ryan Gosling's Band Dead Man's Bones Tease New Music After 17 Years](https://consequence.net/2026/10/ryan-gosling-dead-mans-bones-new-music) - Consequence
+- [Two Door Cinema Club Announce 2027 US Tour](https://consequence.net/2026/10/two-door-cinema-club-2027-us-tour/) - Consequence.net
+- [Two Door Cinema Club extends Tourist History anniversary tour](https://theneedledrop.com/news/two-door-cinema-club-extends-tourist-history-anniversary-tour) - Theneedledrop
+- [Two Door Cinema Club Map Out 2027 US Tour](https://consequence.net/2026/10/two-door-cinema-club-2027-us-tour) - Consequence
+- [Two Door Cinema Club \| ALT 94.7](https://www.audacy.com/alt947/events/two-door-cinema-club) - Audacy
