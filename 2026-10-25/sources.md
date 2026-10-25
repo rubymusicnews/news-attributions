@@ -1,0 +1,60 @@
+# Sources for 2026-10-25 News Episode 
+- [Happy 20th Birthday, ‘Debut’! A Revealing Look Back at Taylor Swift’s Self-Titled First Album, Via a Previously Unpublished Q&A](https://variety.com/2026/music/news/taylor-swift-interview-debut-album-20th-anniversary-1236930352/) - Variety
+- [Here’s to 20 Years of ‘Taylor Swift’](http://www.rollingstone.com/music/music-features/taylor-swift-debut-album-20-years-1235646292/) - Rolling Stone
+- [Happy Birthday to Taylor Swift's 'Debut': A Previously Unpublished Q&A](https://variety.com/2026/music/news/taylor-swift-interview-debut-album-20th-anniversary-1236930352) - Variety
+- [Why the charts are full of old songs - and so are your playlists](https://www.bbc.co.uk/news/articles/c6kg50nnj0x4o) - BBC News
+- [Music streaming: Why we're listening to so many old songs  - BBC News](http://www.bbc.co.uk/news/articles/c6kg50nnj0x4o) - Bbc
+- [Don Toliver, Malcolm Todd, Alex Warren, and Megan Moroney Rock Rolling Stone’s Musicians on Musicians Event](http://www.rollingstone.com/music/music-live-reviews/musicians-on-musicians-event-2026-recap-1235647549/) - Rolling Stone
+- [Rolling Stone's Musicians on Musicians Event: Recap](https://www.rollingstone.com/music/music-live-reviews/musicians-on-musicians-event-2026-recap-1235647549) - Rollingstone
+- [Rolling Stone’s 2026 Musicians on Musicians Event Will Feature Don Toliver, Malcolm Todd, Alex Warren, and Megan Moroney](https://www.imdb.com/news/ni66049637) - Imdb
+- [Rolling Stone's Musicians on Musicians Event 2026: The Best Photos](https://www.rollingstone.com/music/music-pictures/musicians-on-musicians-event-2026-best-photos-1235647568) - Rollingstone
+- [Musicians on Musicians 2026](https://www.rollingstone.com/p/musicians-on-musicians-2026) - Rollingstone
+- [Glastonbury turns it back on music veterans as Harry Styles, Billie Eilish and Sam Fender are set to headline](https://www.dailymail.com/tvshowbiz/article-16235981/Glastonbury-music-Harry-Styles-Billie-Eilish-Sam-Fender.html) - Dailymail.com
+- [Glastonbury bets on Harry Styles, Billie Eilish and Sam Fender ᐉ News from Fakti.bg - Culture \| ФАКТИ.БГ](https://fakti.bg/en/amp/kultura-art/1093594-glastonbury-bets-on-harry-styles-billie-eilish-and-sam-fender) - Fakti
+- [BTS: después de la camiseta de la selección y del mate, la banda coreana prepara su despedida de la Argentina](https://www.lanacion.com.ar/espectaculos/musica/bts-despues-de-la-camiseta-de-la-seleccion-y-del-mate-la-banda-coreana-prepara-su-despedida-de-la-nid24102026/) - La Nacion
+- [AND THE BEST PART OF THE SHOW IS? 💜 BTS has ...](https://www.facebook.com/koreanophiles/posts/and-the-best-part-of-the-show-is-bts-has-drawn-massive-crowds-in-argentina-selli/1568442625323664) - Facebook
+- [In a Historic Blunder, Wu-Tang Clan Sold an Album as a Unique Artwork—A New Doc Tells the Story of an Architect of the Sale](https://www.artnews.com/art-news/reviews/wu-tang-clan-sold-album-artwork-once-upon-time-shaolin-film-1234803666/) - ARTnews
+- [All 12 New Documentaries Coming to Netflix in October 2026](https://www.whats-on-netflix.com/coming-soon/all-12-documentaries-coming-to-netflix-in-october-2026) - Whats-on-netflix
+- [The Disciple: A Wu-Tang Fable Comes to Netflix in October - Netflix Tudum](https://www.netflix.com/tudum/articles/the-disciple-a-wu-tang-fable-release-date-news) - Netflix
+- [RZA Wants 'The Disciple' Documentary to Inspire, Not Reignite Controversy](https://www.vibe.com/features/editorial/rza-the-disciple-netflix-documentary-interview-1235199544) - Vibe
+- [Wu-Tang Clan Sold an Album as an Artwork—A New Doc Tells the Tale](https://www.artnews.com/art-news/reviews/wu-tang-clan-sold-album-artwork-once-upon-time-shaolin-film-1234803666) - Artnews
+- [Phoebe Bridgers Gave Brad Paisley One of the Best Compliment He’s Ever Gotten](http://www.rollingstone.com/music/music-country/phoebe-bridgers-likes-this-brad-paisley-song-camouflage-1235647457/) - Rolling Stone
+- [Watch Bradley Cooper's 548M Action Blockbuster Before It ...](https://www.yahoo.com/entertainment/movies/articles/watch-bradley-cooper-548m-action-140000763.html) - Yahoo
+- [phoebebridgers has never been shy about professing her ...](https://www.instagram.com/reel/De2olR3CnuC) - Instagram
+- [Brad Paisley's Song 'Camouflage': Phoebe Bridgers Is a Fan](https://www.rollingstone.com/music/music-country/phoebe-bridgers-likes-this-brad-paisley-song-camouflage-1235647457) - Rollingstone
+- [Phoebe Bridgers Celebrates Country Music: A Nod to Brad ...](https://www.wpig.com/news/2026/10/24/all/phoebe-bridgers-celebrates-country-music-a-nod-to-brad-paisl/3788034) - Wpig
+- [Billy Strings Can’t Stop Winning at the 2026 Bluegrass Awards](http://www.rollingstone.com/music/music-features/2026-bluegrass-music-awards-winners-billy-strings-1235647613/) - Rolling Stone
+- [2026 Bluegrass Music Awards Winners: Billy Strings Takes Entertainer](https://www.rollingstone.com/music/music-features/2026-bluegrass-music-awards-winners-billy-strings-1235647613) - Rollingstone
+- [Billy Strings Named IBMA Entertainer Of The Year - Chattanoogan.com](https://www.chattanoogan.com/2026/10/23/525117/Billy-Strings-Named-IBMA-Entertainer.aspx) - Chattanoogan
+- [2026 IBMA Awards Winners List: Billy Strings, East Nash Grass & More](https://www.billboard.com/music/awards/2026-ibma-awards-winners-list-billy-strings-east-nash-grass-1236367230) - Billboard
+- [Billy Strings & East Nash Grass Lead 2026 IBMA Awards Winners](https://www.yahoo.com/entertainment/music/articles/billy-strings-east-nash-grass-170319197.html) - Yahoo
+- [Todd Snider Died While Working on an Ambitious New Album. His Friends Finished It](http://www.rollingstone.com/music/music-features/todd-snider-poshtumous-album-my-second-rodeo-1235647372/) - Rolling Stone
+- [Todd Snider's Posthumous Album 'My Second Rodeo': How It Was Finished](https://www.rollingstone.com/music/music-features/todd-snider-poshtumous-album-my-second-rodeo-1235647372) - Rollingstone
+- [REVIEW: The Sound of Country Music Ten Years from Now? Todd Snider "My Second Rodeo" • Americana Highways](https://americanahighways.org/2026/10/08/review-the-sound-of-country-music-ten-years-from-now-todd-snider-my-second-rodeo) - Americanahighways
+- [Todd Snider's Posthumous Album 'My Second Rodeo' Released ::antiMusic.com](https://www.antimusic.com/p/26/c1010todd_sniders_posthumous_album_my_second_rodeo_released.shtml) - Antimusic
+- [Best Of: Meshell Ndegeocello / Betty Gilpin](https://www.npr.org/2026/10/24/nx-s1-6014572/best-of-meshell-ndegeocello-betty-gilpin) - NPR
+- [Meshell Ndegeocello reflects on her musical influences: 'I'm the child of many' : NPR](https://www.npr.org/2026/10/19/nx-s1-6007821/meshell-ndegeocello-reflects-on-her-musical-influences-im-the-child-of-many) - Npr
+- [Meshell Ndegeocello Offers Superb Soulful Duets of Classics](https://www.popmatters.com/meshell-ndegeocello-synonym) - Popmatters
+- [Album Review: Meshell Ndegeocello – Synonym](https://music.mxdwn.com/2026/10/11/reviews/album-review-meshell-ndegeocello-synonym) - Mxdwn
+- [Meshell Ndegeocello Releases New Album ‘Synonym’](https://bassmagazine.com/meshell-ndegeocello-releases-new-album-synonym) - Bassmagazine
+- [Meshell Ndegeocello pays tribute to classic duets with new album, 'Synonym' : NPR](https://www.npr.org/2026/10/06/nx-s1-5894726/meshell-ndegeocello-pays-tribute-to-classic-duets-with-new-album-synonym) - Npr
+- [.𖥔 ݁ ˖ Meshell Ndegeocello's new album is out TODAY ...](https://www.instagram.com/p/DeAO6tNJH5v) - Instagram
+- [Unico concerto italiano a Bologna per il post-punk degli irlandesi Fontaines D.C.](https://www.ansa.it/sito/notizie/cultura/musica/2026/10/24/unico-concerto-italiano-a-bologna-per-il-post-punk-degli-irlandesi-fontaines_84ef15b8-4db4-4967-aa50-1d1ce682c3c3.html) - ANSA.it
+- [Fontaines D.C. 'Dopamine Chamber World Tour' Setlist -](https://happymag.tv/fontaines-dc-setlist) - Happymag
+- [Fontaines D.C. Tickets \| 2026-27 Tour & Concert Dates](https://www.ticketmaster.com.mx/fontaines-d-c-tickets/artist/2557986?language=en-mx) - Ticketmaster
+- [Fontaines D.C. in Bologna, 26 October 2026: tickets, venue and time · ADMC](https://www.alldaymusic.club/events/bologna/fontaines-d-c-bologna-2026-10-26) - Alldaymusic
+- [Fontaines D.C. Bologna at Unipol Arena 2026 - Tickets](https://karlobag.eu/en/music/news/fontaines-d-c-bologna-at-unipol-arena-2026-tickets-j5l91) - Karlobag
+- [Fontaines D.c. Release Music Video for New Single 'Tongue' \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Fontaines-Dc-Release-Music-Video-for-New-Single-Tongue-20260930) - Broadwayworld
+- [25 Years of Apple iPod: A Visual History](https://me.pcmag.com/en/topic-2/38424/25-years-of-apple-ipod-a-visual-history) - PCMag.com
+- [Happy 25th Anniversary, iPod - MacRumors](https://www.macrumors.com/2026/10/23/ipod-25th-anniversary) - Macrumors
+- [Apple announces the first iPod \| October 23, 2001 \| HISTORY](https://www.history.com/this-day-in-history/october-23/first-ipod) - History
+- [25 Years of Apple iPod: A Visual History](https://tech.yahoo.com/ai/apple-intelligence/articles/25-years-apple-ipod-visual-191950278.html) - Yahoo
+- [25 Years of Apple iPod: A Visual History](http://me.pcmag.com/en/topic-2/38424/25-years-of-apple-ipod-a-visual-history) - Pcmag
+- [In 1970, a Philadelphia man wrote one song for his wife and unborn child, making a wish. 3 years later, he died but the song reached Billboard No. 1 spot and is still a chartbuster](https://economictimes.indiatimes.com/magazines/panache/in-1970-a-philadelphia-man-wrote-one-song-for-his-wife-and-unborn-child-making-a-wish-3-years-later-he-died-but-the-song-reached-billboard-no-1-spot-and-is-still-a-chartbuster/articleshow/135172611.cms) - The Times of India
+- [In 1970, a Philadelphia man wrote one song for his wife and unborn child, making a wish. 3 years later, he died but the song reached Billboard No. 1 spot and is still a chartbuster - The Economic Times](https://m.economictimes.com/magazines/panache/in-1970-a-philadelphia-man-wrote-one-song-for-his-wife-and-unborn-child-making-a-wish-3-years-later-he-died-but-the-song-reached-billboard-no-1-spot-and-is-still-a-chartbuster/amp_articleshow/135172611.cms) - Economictimes
+- [In 1970, a Philadelphia man wrote one song for his wife and unborn child, making a wish. 3 years later, he](https://m.economictimes.com/magazines/panache/in-1970-a-philadelphia-man-wrote-one-song-for-his-wife-and-unborn-child-making-a-wish-3-years-later-he-died-but-the-song-reached-billboard-no-1-spot-and-is-still-a-chartbuster/articleshow/135172611.cms) - Economictimes
+- [Still the Jesus Guy: Kirk Franklin Talks I Am What I Am and Faith Without Filters](https://hiphopwired.com/3068421/still-the-jesus-guy-kirk-franklin-talks-i-am-what-i-am-and-faith-without-filters/) - Hip-Hop Wired
+- [Still the Jesus Guy: Kirk Franklin Talks I Am What I Am and Faith Without Filters](https://blackamericaweb.com/2026/10/24/still-the-jesus-guy-kirk-franklin-talks-i-am-what-i-am-and-faith-without-filters) - Blackamericaweb
+- [UB Spotlight: Kirk Franklin’s ‘I Am What I Am’ \| Some of Best Work of Career](https://urbanbridgez.com/2026/10/23/ub-spotlight-kirk-franklins-i-am-what-i-am-some-of-best-work-of-career) - Urbanbridgez
+- [This Time by Kirk Franklin (featuring GloRilla) - Songfacts](https://www.songfacts.com/facts/kirk-franklin/this-time) - Songfacts
+- [Kirk Franklin, GloRilla's 'This Time' No. 1 on Hot Gospel Songs Chart](https://www.billboard.com/music/chart-beat/kirk-franklin-glorilla-this-time-number-1-hot-gospel-songs-1236356173) - Billboard
