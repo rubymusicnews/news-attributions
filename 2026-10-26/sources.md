@@ -1,0 +1,60 @@
+# Sources for 2026-10-26 News Episode 
+- [Jay-Z Brings His ‘Jay-Z 30’ Concert Series to a Close in Los Angeles With Dr. Dre, Snoop Dogg and Too Short](https://variety.com/2026/music/news/jay-z-30-closer-dr-dre-snoop-dogg-los-angeles-sofi-stadium-1236930554/) - Variety
+- [Watch Jay-Z Bring Out Dr. Dre and Snoop Dogg at LA Tour Closer](https://pitchfork.com/story/watch-jay-z-bring-out-dr-dre-and-snoop-dogg-at-la-tour-closer/) - Pitchfork
+- [See Jay-Z Bring Out Snoop Dogg and Dr. Dre for Medley at Los Angeles Show](http://www.rollingstone.com/music/music-news/jay-z-snoop-dogg-dr-dre-medley-los-angeles-show-1235647696/) - Rolling Stone
+- [Jay-Z stuns in Los Angeles finale with Snoop Dogg, Dr. Dre, Too Short](https://www.freep.com/story/entertainment/music/2026/10/25/jay-z-too-short-snoop-dogg-dr-dre/92424283007) - Freep
+- [Jay-Z Closes Anniversary Run at SoFi Stadium With West Coast Guests - Northeast Times](https://northeasttimes.com/2026/10/25/jay-z-closes-anniversary-run-at-sofi-stadium-with-west-coast-guests) - Northeasttimes
+- [Jay-Z urges fans to 'question everything' during Los Angeles show](https://www.yahoo.com/entertainment/music/articles/jay-z-urges-fans-everything-094849518.html) - Yahoo
+- [Jay-Z Enlists Dr. Dre and Snoop Dogg for 'Jay-Z 30' Closer in LA](https://variety.com/2026/music/news/jay-z-30-closer-dr-dre-snoop-dogg-los-angeles-sofi-stadium-1236930554) - Variety
+- [Jay-Z's Special Guests in LA: Blue Ivy, John Legend & More](https://www.billboard.com/music/rb-hip-hop/jay-z-la-night-one-guests-blue-ivy-john-legend-scarface-1236367544) - Billboard
+- [RA.1062 Loraine James](https://soundcloud.com/resident-advisor/ra-1062-loraine-james) - Soundcloud.com
+- [RA.1062 Loraine James ⟋ RA Podcast](https://ra.co/podcast/1081) - Ra
+- [Loraine James - Resident Advisor Podcast 1062 2026-10-25](https://www.1001tracklists.com/tracklist/2pdb1jv1/loraine-james-resident-advisor-podcast-1062-2026-10-25.html) - 1001tracklists
+- [Jade Waited Two Years for ‘Angel of My Dreams’ to Take Off](http://www.rollingstone.com/music/music-features/jade-angel-of-my-dreams-victorias-secret-show-interview-1235646752/) - Rolling Stone
+- [Jade Thirlwall shares powerful piece of advice after huge debut album success - The Mirror](https://www.mirror.co.uk/3am/celebrity-news/jade-thirlwall-thats-showbiz-baby-37805452) - Mirror
+- [Why JADE’s Angel of My Dreams Is Trending Again](https://holrmagazine.com/jade-angel-of-my-dreams-trending-again) - Holrmagazine
+- [Jade’s “Angel Of My Dreams” Streams Surge After Victoria’s Secret Fashion Show](https://www.nylon.com/entertainment/jade-angel-of-my-dreams-victorias-secret-fashion-show-2026) - Nylon
+- [Kesha Announces Surprise Release of Music Video For 16-Year-Old Song ‘Backstabber’](https://www.today.com/popculture/music/kesha-announces-surprise-release-music-video-backstabber-rcna605560) - TODAY
+- [Kesha’s Backstabber gets an official music video after 16 years, Here’s when to watch](https://businessupturn.com/entertainment/hollywood/hollywood-music/keshas-backstabber-gets-an-official-music-video-after-16-years-heres-when-to-watch) - Businessupturn
+- [BACKSTABBER MUSIC VIDEO RELEASING TOMMOROW](https://www.reddit.com/r/KESHA/comments/1xf8bee/backstabber_music_video_releasing_tommorow) - Reddit
+- [Scott Walker’s The Drift will get under your skin](https://www.theverge.com/entertainment/1018300/scott-walker-the-drift-music-album-review) - The Verge
+- [The Best Albums of the 21st Century: Enduring Legacies - Treble](https://www.treblezine.com/the-best-albums-of-the-21st-century-enduring-legacies) - Treblezine
+- [Elastica – Elastica (Deluxe Edition) (2026)](https://exystence.net/blog/2026/10/25/elastica-elastica-deluxe-edition-2026/) - Exystence.net
+- [ALBUM REVIEW – ELASTICA: ELASTICA : Silent Radio](https://www.silentradio.co.uk/10/05/album-review-elastica-elastica) - Silentradio
+- [Elastica – Elastica Deluxe Edition: New Music Friday](https://www.live4ever.uk.com/elastica-deluxe-edition-music-friday) - Uk
+- [ALPHA DRIVE ONE’s Geonwoo Sues Agency + WAKEONE Briefly Comments](http://www.soompi.com/article/1881225wpp/alpha-drive-ones-geonwoo-sues-agency-wakeone-briefly-comments) - soompi
+- [ALPHA DRIVE ONE’s Agency Issues New Statement On Geonwoo’s Lawsuit And Future Activities](http://www.soompi.com/article/1881236wpp/alpha-drive-ones-agency-issues-new-statement-on-geonwoos-lawsuit-and-future-activities) - soompi
+- [ALPHA DRIVE ONE's Geonwoo Sues Agency + WAKEONE Briefly Comments \| Soompi](https://www.soompi.com/article/1881225wpp/alpha-drive-ones-geonwoo-sues-agency-wakeone-briefly-comments) - Soompi
+- [Instagram](https://www.instagram.com/p/De6VatbRoGg) - Instagram
+- [Alpha Drive One’s Geonwoo sues WakeOne over contract status after post-controversy hiatus](https://www.koreajoongangdaily.com/entertainment/alpha-drive-ones-geonwoo-sues-wakeone-over-contract-status-after-postcontroversy-hiatus/12936835) - Koreajoongangdaily
+- [Twice’s Nayeon to release new solo track ‘NA-sty’ on Nov. 20](https://www.koreajoongangdaily.com/entertainment/twices-nayeon-to-make-a-solo-comeback-on-nov-20/12937733) - Koreajoongangdaily
+- [WAKEONE responds to Geonwoo lawsuit, keeps ALPHA DRIVE ONE at seven members](https://www.allkpop.com/article/2026/10/wakeone-responds-to-geonwoo-lawsuit-keeps-alpha-drive-one-at-seven-members) - Allkpop
+- [Stevie Wonder Seeking Eviction of Ex-Fiancée](https://www.theroot.com/stevie-wonder-seeking-eviction-of-ex-fianc-e-2000132338) - The Root
+- [Stevie Wonder sues to evict ex-fiancée after 38 years of rent-free living](https://www.yahoo.com/entertainment/celebrity/articles/stevie-wonder-sues-evict-ex-000510037.html) - Yahoo
+- [Stevie Wonder Sues to Evict Woman After 38 Years of Living Rent-Free in His Home \| Law Commentary](https://www.lawcommentary.com/articles/stevie-wonder-eviction-lawsuit-38-years-rent-free) - Lawcommentary
+- [Stevie Wonder seeks eviction of woman living in his home for nearly 40 years](https://www.hola.com/us/celebrities/20261024931091/stevie-wonder-seeks-eviction-of-woman-living-in-his-home-for-nearly-40-years) - Hola
+- [Stevie Wonder Sues Former Fiancée To Evict Her From L.A. Home After Nearly 40 Years Of Living Rent-Free - theJasmineBRAND](https://thejasminebrand.com/2026/10/23/stevie-wonder-sues-former-fiancee-to-evict-her-from-l-a-home-after-nearly-40-years-of-living-rent-free) - Thejasminebrand
+- [Haunted Dancehall 2026 at NCH: Kelela brings superstar aura to risk-taking festival’s first night](https://www.irishtimes.com/culture/music/review/2026/10/25/haunted-dancehall-2026-at-nch-kelela-brings-superstar-aura-to-risk-taking-festivals-first-night/) - The Irish Times
+- [The Nialler9 Dublin Gig Guide: October 20th to 26th](https://nialler9.com/the-nialler9-dublin-gig-guide-october-bank-holiday-edition-haunted-dancehall-2manydjs-macklemore-jazzy-and-more) - Nialler9
+- [Haunted Dancehall 2026 at NCH: Kelela brings superstar aura to risk-taking festival’s first night – The Irish Times](https://www.irishtimes.com/culture/music/review/2026/10/25/haunted-dancehall-2026-at-nch-kelela-brings-superstar-aura-to-risk-taking-festivals-first-night) - Irishtimes
+- [Freddie McGregor – FM (1992, Remastered 2026)](https://exystence.net/blog/2026/10/25/freddie-mcgregor-fm-1992-remastered-2026/) - Exystence.net
+- [Freddie McGregor - FM - 2026 Reissue / Soul Jazz from Piccadilly Records](https://www.piccadillyrecords.com/169793/Freddie-McGregor-FM-2026-Reissue-Soul-Jazz) - Piccadillyrecords
+- [Freddie McGregor - FM (High Times, 1992) \| Full Album \| Roots & Dub Vault](https://www.youtube.com/watch?v=2CsCil6_9_k) - Youtube
+- [FM [CD] - Freddie McGregor](https://drownedworldrecords.com/products/fm-cd) - Drownedworldrecords
+- [Review \| Freddie McGregor - FM \| Reggae Vibes](https://www.reggae-vibes.com/reviews/2026/10/freddie-mcgregor-fm) - Reggae-vibes
+- [Wenn sich Rap nicht mehr rechnet: Warum der deutsche Rapper Prinz Pi aufhören muss und jetzt Schreiner wird](https://www.nzz.ch/feuilleton/vom-rapper-zum-schreiner-ld.10039178) - Www.nzz.ch
+- [Nigel Durham denied death rumors months before the former Saxon drummer died at 61](https://economictimes.indiatimes.com/magazines/panache/nigel-durham-denied-death-rumors-months-before-the-former-saxon-drummer-died-at-61/articleshow/135181832.cms) - The Times of India
+- [Nigel Durham denied death rumors months before the former Saxon drummer died at 61 - The Economic Times](https://m.economictimes.com/magazines/panache/nigel-durham-denied-death-rumors-months-before-the-former-saxon-drummer-died-at-61/articleshow/135181832.cms) - Economictimes
+- [Nigel Durham Dies at 61: Cause of Death, Wife and Net Worth](https://poptvculture.com/nigel-durham-dies-at-61-cause-of-death-wife-and-net-worth) - Poptvculture
+- [Who was Nigel Durham? Saxon drummer dies at 61, months after denying death hoax in July - The Economic Times](https://m.economictimes.com/news/international/world-news/who-was-nigel-durham-saxon-drummer-dies-at-61-months-after-denying-death-hoax-in-july/articleshow/135191766.cms) - Economictimes
+- [Former Saxon Drummer Nigel Durham Dies at 61, Months After Insisting He Was 'Still Alive & Kickin' \| IBTimes UK](https://www.ibtimes.co.uk/former-saxon-drummer-nigel-durham-dies-aged-61-1827639) - Ibtimes
+- [Fenne Lily – Win Win (2026)](https://exystence.net/blog/2026/10/25/fenne-lily-win-win-2026/) - Exystence.net
+- [Review: Fenne Lily’s 'Win Win' is a heartfelt toss-up](https://www.pastemagazine.com/music/fenne-lily/fenne-lily-win-win-review) - Pastemagazine
+- [Fenne Lily Shares Favourite Lyrics, Influences, and Writing Process For Latest Record 'Win Win' - Clunk Magazine](https://clunkmag.com/intervew-fenne-lily) - Clunkmag
+- [Fenne Lily, “Win Win”](https://floodmagazine.com/235511/fenne-lily-win-win) - Floodmagazine
+- [Legend To Legend: Janet Jackson Presents Missy Elliott With Icon Award At Annual Dancers Against Cancer Gala Of The Stars](https://bossip.com/4648172/janet-jackson-missy-elliott-icon-award-dancers-against-cancer-gala-of-the-stars/) - Bossip
+- [Missy Elliott Honored With Icon Award, Presented By Janet Jackson At 2026 Gala Of The Stars Benefiting Dancers Against Cancer](https://www.forbes.com/sites/dominiquefluker/2026/10/24/missy-elliott-honored-with-icon-award-presented-by-janet-jackson-at-2026-gala-of-the-stars-benefiting-dancers-against-cancer) - Forbes
+- [Janet Jackson, 60, Makes Rare Red Carpet Appearance in Sheer Black Lace Gown to Honor Missy Elliott - AOL](https://www.aol.com/articles/janet-jackson-60-makes-rare-190025000.html) - Aol
+- [Missy Elliott to Receive Icon Award Presented by Janet Jackson - That Grape Juice](https://thatgrapejuice.net/2026/10/missy-elliott-to-receive-icon-award-presented-by-janet-jackson) - Thatgrapejuice
+- [Missy Elliott to Receive Icon Award From Janet Jackson: Gala of the Stars](https://www.billboard.com/music/awards/missy-elliott-icon-award-janet-jackson-gala-of-the-stars-2026-1236361391) - Billboard
+- [Missy Elliott to Be Honored at Gala of the Stars](https://www.hollywoodreporter.com/lifestyle/lifestyle-news/missy-elliott-dancers-against-cancer-gala-janet-jackson-1236730601) - Hollywoodreporter
