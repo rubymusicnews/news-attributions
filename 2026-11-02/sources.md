@@ -1,0 +1,60 @@
+# Sources for 2026-11-02 News Episode 
+- [Juan Atkins, Co-Founder of Techno Music, Dies at 64](https://pitchfork.com/story/juan-atkins-co-founder-of-techno-music-dies-at-64/) - Pitchfork
+- [Juan Atkins, Techno Music Pioneer, Dead at 64](http://www.rollingstone.com/music/music-news/juan-atkins-techno-music-pioneer-cybotron-dead-obituary-1235651028/) - Rolling Stone
+- [Juan Atkins, co-creator of the techno music genre, has died](https://www.nbcnews.com/news/obituaries/juan-atkins-co-creator-techno-music-genre-dies-rcna606930) - Nbcnews
+- [Detroit Techno Pioneer Juan Atkins Dies at 64](https://www.complex.com/music/a/treyalston/juan-atkins-dies-detroit-techno-pioneer-64) - Complex
+- [Juan Atkins, Co-Founder of Techno Music, Dies at 64 \| Pitchfork](https://pitchfork.com/story/juan-atkins-co-founder-of-techno-music-dies-at-64) - Pitchfork
+- [Juan Atkins, Detroit techno pioneer, has died \| DJ Mag](https://djmag.com/news/juan-atkins-detroit-techno-pioneer-has-died) - Djmag
+- [Juan Atkins, techno pioneer and Belleville Three member, dies aged 64 · News ⟋ RA](https://ra.co/news/86327) - Ra
+- [Juan Atkins, pioneering Detroit electronic musician, dies at 64](https://www.detroitnews.com/story/entertainment/music/2026/11/01/juan-atkins-pioneering-detroit-electronic-musician-dies-at-64/92550042007) - Detroitnews
+- [Hikaru Utada Releases New Single “Intentions” on November 25 with Cover Art by Paris-Based Artist Yukiko Noritake](https://www.animenewsnetwork.com/press-release/2026-11-01/hikaru-utada-releases-new-single-intentions-on-november-25-with-cover-art-by-paris-based-artist-/.243407) - Anime News Network
+- [宇多田ヒカル、JR東海テーマソングとして話題の新曲“Intentions”リリース決定](https://spincoaster.com/news/hikaru-utada-intentions) - Spincoaster
+- [宇多田ヒカル、新曲『Intentions』の配信日が11月25日に決定 ...](https://mediadogs.jp/2026/11/02/utada-hikaru-intentions-release-date) - Mediadogs
+- [Hikaru Utada Announces New Single “Intentions” with ...](https://redbeanime.com/hikaru-utada-announces-new-single-intentions-with-cover-art-by-yukiko-noritake) - Redbeanime
+- [The Beatles Songs Paul McCartney Has Called His Favorites](https://www.mentalfloss.com/entertainment/music/paul-mccartney-favorite-beatles-song) - Mental Floss
+- [The 20 best songs by The Beatles, according to Paul McCartney](https://faroutmagazine.co.uk/the-20-best-songs-by-the-beatles-according-to-paul-mccartney) - Faroutmagazine
+- [RA.1063 Andy Stott](https://soundcloud.com/resident-advisor/ra-1063-andy-stott) - Soundcloud.com
+- [Andy Stott Returns After Five Years With ‘Late Loop,’ an Album With No Bass and No Reverb](https://stupiddope.com/2026/11/andy-stott-returns-after-five-years-with-late-loop-an-album-with-no-bass-and-no-reverb) - Stupiddope
+- [The Best Albums of October 2026 - Treble](https://www.treblezine.com/the-best-albums-of-october-2026) - Treblezine
+- [Andy Stott: Late Loop Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/andy-stott-late-loop) - Pitchfork
+- [8 New Albums You Should Listen to Now: DIIV, Queens of the Stone Age, and More - Yahoo News Canada](https://ca.news.yahoo.com/8-albums-listen-now-diiv-181050043.html) - Yahoo
+- [8 New Albums You Should Listen to Now: Diiv, Queens of the Stone Age, and More \| Pitchfork](https://pitchfork.com/story/8-new-albums-you-should-listen-to-now-diiv-queens-of-the-stone-age) - Pitchfork
+- [[INTERVIEW] TWS turns members' fears into fan anthem on 'TO US' - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261102/tws-turns-members-fears-into-fan-anthem-on-to-us) - 코리아타임스
+- [TWS offers comfort, courage with ‘To Us’ - The Korea Herald](https://www.koreaherald.com/article/10921762) - Koreaherald
+- [TWS return with overwhelming emotion in new single TO US - CHOSUNBIZ](https://biz.chosun.com/en/en-entertainment/2026/11/02/OC5NJ3KHMRGFXAUYUIPIESE4SU?outputType=amp) - Chosun
+- [TWS, the icon of youth arrives.. Single album 2 "TO US" Harame revealed: "Fearlessly throwing myself out there" \| STARNEWS](https://www.starnewskorea.com/en/music/2026/10/27/2026102707544471268) - Starnewskorea
+- [Disabled Fans Say the Live-Music Industry Can Do Better: ‘We Are Not a Pain in the Ass’](http://www.rollingstone.com/music/music-features/disabled-fans-live-music-industry-ada-compliance-1235566027/) - Rolling Stone
+- [Disabled Fans Say the Live-Music Industry Can Do Better](https://www.rollingstone.com/music/music-features/disabled-fans-live-music-industry-ada-compliance-1235566027) - Rollingstone
+- [BigXthaPlug Wrestles With Success on ‘Better Over Time’](http://www.rollingstone.com/music/music-album-reviews/bigxthaplug-better-over-time-new-album-review-1235649228/) - Rolling Stone
+- [Album Review: BigXthaPlug, 'Better Over Time'](https://www.rollingstone.com/music/music-album-reviews/bigxthaplug-better-over-time-new-album-review-1235649228) - Rollingstone
+- [BigXthaPlug - BETTER OVER TIME (Album Review) \| RGM](https://ratingsgamemusic.com/2026/10/30/bigxthaplug-better-over-time-album-review) - Ratingsgamemusic
+- [BigXthaPlug comes home to Dallas for early album listening party](https://www.dallasobserver.com/music/bigxthaplug-kicks-off-nationwide-better-over-time-movie-experience-in-addison-40728051) - Dallasobserver
+- [Wu-Tang Clan to Headline Detroit Lions Thanksgiving Game Halftime Show](https://www.billboard.com/music/rb-hip-hop/wu-tang-clan-halftime-show-detroit-lions-thanksgiving-game-1236371793/) - Billboard
+- [NFL Thanksgiving schedule: Lions announce halftime show performer for game vs. Bears](https://www.cbssports.com/nfl/news/nfl-thanksgiving-schedule-lions-halftime-show-performer-wu-tang-clan/) - CBS Sports
+- [Wu-Tang Clan set for halftime show at Detroit Lions' 2026 Thanksgiving game](https://www.cbsnews.com/detroit/news/wu-tang-clan-lions-halftime-thanksgiving) - Cbsnews
+- [Wu-Tang Clan to perform at halftime show during Lions-Bears Thanksgiving game](https://nypost.com/2026/11/01/sports/wu-tang-clan-to-perform-at-halftime-show-during-lions-bears-thanksgiving-game) - Nypost
+- [Wu-Tang Clan to headline Thanksgiving halftime show for Bears-Lions game at Ford Field \| Latest NFL News, Analysis & Updates \| NFL.com](https://www.nfl.com/news/wu-tang-clan-thanksgiving-halftime-show-bears-lions-ford-field?remove_header=) - Nfl
+- [Wu-Tang Clan to Headline Lions Thanksgiving Halftime Show](https://rg.org/news/football/wu-tang-clan-lions-thanksgiving-halftime-show-bears) - Rg
+- [Wu-Tang Clan to Headline Halftime Show of Detroit Lions' Thanksgiving Day Game](https://consequence.net/2026/11/wu-tang-clan-thanksgiving-day-lions-halftime-show) - Consequence
+- [Pitchfork Music Festival : dix groupes à suivre de près dans cette édition 2026](https://www.telerama.fr/musique/pitchfork-music-festival-dix-groupes-a-suivre-de-pres-dans-cette-edition-2026-7033655.php) - Telerama.fr
+- [I didn’t get to see George Michael’s Faith tour. Can a new concert film make up for that?](https://www.irishtimes.com/culture/music/2026/11/01/i-didnt-get-to-see-george-michaels-faith-tour-can-a-new-concert-film-make-up-for-that/) - The Irish Times
+- [Tickets are now on sale for George Michael: The Faith Tour film](https://www.hellorayo.co.uk/magic/entertainment/music/george-michael-faith-tour-film) - Hellorayo
+- [I didn’t get to see George Michael’s Faith tour. Can a new concert film make up for that? – The Irish Times](https://www.irishtimes.com/culture/music/2026/11/01/i-didnt-get-to-see-george-michaels-faith-tour-can-a-new-concert-film-make-up-for-that) - Irishtimes
+- [George Michael: The Faith Tour - Trailer 2](https://www.flicks.com.au/trailer/george-michael-the-faith-tour/50089) - Flicks
+- [George Michael: The Faith Tour \| Official US Trailer \| Bleecker Street](https://cinemadailyus.com?p=35455) - Cinemadailyus
+- [Kid Rock Reveals He Used AI on New Song with Eminem](https://consequence.net/2026/11/kid-rock-reveals-he-used-ai-on-song/) - Consequence.net
+- [Kid Rock Admits Gospel Choir on Eminem Collaboration "Heal My Faith" Was Created Using AI](https://www.complex.com/music/a/markelibert/kid-rock-eminem-heal-my-faith-ai-choir) - Complex
+- [Kid Rock Admits To Using AI on Controversial New Song with Eminem](https://www.mensjournal.com/entertainment/kid-rock-admits-to-using-ai-on-controversial-new-song-with-eminem) - Mensjournal
+- [Kid Rock Admits To Using AI on Controversial New Song ...](https://www.yahoo.com/entertainment/music/articles/kid-rock-admits-using-ai-213746822.html) - Yahoo
+- [Why musicians are touring less and expecting fans to come to them](https://www.cbc.ca/radio/costofliving/music-residencies-tourism-9.7401919) - CBC News
+- [Why Independent Artists Are Rethinking the Business of Making Music](https://www.side-line.com/independent-artists-rethink-business-of-making-music) - Side-line
+- [Cold War Kids – Robbers & Cowards / Complete Cowards (2026)](https://exystence.net/blog/2026/11/01/cold-war-kids-robbers-cowards-complete-cowards-2026/) - Exystence.net
+- [Listen to Cold War Kids’ Newly Completed ‘Robbers & Cowards’ Songs](https://www.udiscovermusic.com/news/cold-war-kids-robbers-cowards-20th-anniversary-out-now) - Udiscovermusic
+- [Cold War Kids Release ‘Jesse Latour’ Ahead Of Anniversary Reissue](https://www.udiscovermusic.com/news/cold-war-kids-jesse-latour) - Udiscovermusic
+- [The Weekend Stream: November 1, 2026 - The Second Disc](https://theseconddisc.com/2026/11/01/the-weekend-stream-november-1-2026) - Theseconddisc
+- [Photos: COLD WAR KIDS Marks 20 Years of ROBBERS & COWARDS Debut Album \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/Photos-COLD-WAR-KIDS-Marks-20-Years-of-ROBBERS-COWARDS-Debut-Album-20261030) - Broadwayworld
+- [Cold War Kids Stream Expanded 'Robbers & Cowards' Album ::antiMusic.com](https://www.antimusic.com/p/26/r1030cold_war_kids_stream_expanded_robbers___cowards_album.shtml) - Antimusic
+- [Rob Hirst's family and friends help finish book honouring Midnight Oil songwriter](https://www.abc.net.au/news/2026-11-01/rob-hirst-book-midnight-oil-drummer-songwriter/107314400) - ABC News (AU)
+- [Family completes Midnight Oil drummer Rob Hirst’s book \| UA.NEWS](https://ua.news/en/culture/rodina-zavershila-knigu-barabanshchika-midnight-oil-roba-gersta-abc-news-australia) - Ua
+- [Rob Hirst Final Book World Is Almost At Peace Out 27 October — Noise11 Music News \| News \|](https://www.noise11.com/news/rob-hirst-world-almost-peace-20261019) - Noise11
+- [Rob Hirst’s Family Completes Farewell Songwriting Book](https://ozarab.media/rob-hirsts-family-completes-farewell-songwriting-book) - Ozarab
