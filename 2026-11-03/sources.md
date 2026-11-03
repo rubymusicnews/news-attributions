@@ -1,0 +1,61 @@
+# Sources for 2026-11-03 News Episode 
+- [A$AP Rocky, Lil Uzi Vert and Hatsune Miku star in new Fortnite season](https://musically.com/2026/11/02/aap-rocky-lil-uzi-vert-and-hatsune-miku-star-in-new-fortnite-season/) - Music Ally
+- [A$AP Rocky, Lil Uzi Vert and Hatsune Miku Join Fortnite's New Treasure Hunters Season - RouteNote - Radar](https://routenote.com/radar/aap-rocky-lil-uzi-vert-and-hatsune-miku-join-fortnites-new-treasure-hunters-season) - Routenote
+- [Fortnite Treasure Hunters season is now live; features crossover collaboration with One Piece: Everything you need to know - The Times of India](https://timesofindia.indiatimes.com/technology/gaming/fortnite-treasure-hunters-season-is-now-live-features-crossover-collaboration-with-one-piece-everything-you-need-to-know/articleshow/135469114.cms) - Indiatimes
+- [One Piece's Luffy, Zoro, and Nami skins revealed in Fortnite Treasure Hunters trailer \| GosuGamers](https://www.gosugamers.net/entertainment/news/79429-one-piece-s-luffy-zoro-and-nami-skins-revealed-in-fortnite-treasure-hunters-trailer) - Gosugamers
+- [A$AP ROCKY JOINS FORTNITE TREASURE HUNTERS WITH ONE PIECE CROSSOVER, BOSS BATTLE AND EXCLUSIVE SKINS!](https://vergemagazine.co.uk/aap-rocky-joins-fortnite-treasure-hunters-with-one-piece-crossover-boss-battle-and-exclusive-skins) - Vergemagazine
+- [The Weeknd hits big in Hong Kong and China with Faye Wong sample](https://musically.com/2026/11/02/the-weeknd-hits-big-in-hong-kong-and-china-with-faye-wong-sample/) - Music Ally
+- [The Weeknd hits big in Hong Kong and China with Faye Wong sample - Music Ally](https://musically.com/2026/11/02/the-weeknd-hits-big-in-hong-kong-and-china-with-faye-wong-sample) - Musically
+- [As the Hong Kong Tour Dates Come to an End, the Weeknd Gifts Fans the Song Hong Kong (Feat. 王菲季候風), a Love Letter to the Region \| WebWire](http://webwire.com/ViewPressRel.asp?SESSIONID=&aId=363624) - Webwire
+- [The Weeknd drops Asia-exclusive song - The Music Universe](https://themusicuniverse.com/the-weeknd-drops-asia-exclusive-song) - Themusicuniverse
+- [The Weeknd王菲《Hong Kong》上线：为何用feat而非采样？一文看懂合作背景与发行逻辑](https://k.sina.com.cn/article_7879776328_1d5abd84806802g57i.html?from=ent) - Sina
+- [The Weeknd - HongKong. （feat.王菲季候风） in Hong Kong](https://www.instagram.com/p/DfMab59n0RU) - Instagram
+- [Kimbee Chan, known on Instagram as kimbeechan_official ...](https://www.facebook.com/WanderlustHongKong/posts/kimbee-chan-known-on-instagram-as-kimbeechan_official-and-the-wife-of-hong-kong-/1793188019476365) - Facebook
+- [Olivia Rodrigo Readies First Christmas Single](https://www.spinmagazine.com/2026/11/olivia-rodrigo-christmas-single/) - Spinmagazine.com
+- [You Seem Pretty Busy for a Girl About to Release Christmas Music](http://www.vulture.com/article/olivia-rodrigo-is-releasing-christmas-music.html) - Vulture
+- [Olivia Rodrigo prepares for festive face-off with first Christmas single take me home (4 christmas) \| Official Charts](https://www.officialcharts.com/chart-news/olivia-rodrigo-take-me-home-4-christmas-single) - Officialcharts
+- [Universal Music Canada](https://www.universalmusic.ca/2026/11/02/olivia-rodrigo-announces-new-holiday-single-take-me-home-4-christmas) - Universalmusic
+- [Natalia Lafourcade, Carlos Santana, and Edgar Barrera Find Hope in the Face of Violence in “Hermano”](https://consequence.net/2026/11/natalia-lafourcade-carlos-santana-edgar-barrera-hermano/) - Consequence.net
+- [Santana and Natalia Lafourcade Call For Peace With "Hermano”](https://rockandbluesmuse.com/2026/10/30/santana-and-natalia-lafourcade-call-for-peace-with-hermano) - Rockandbluesmuse
+- ["Hermano": Escucha la canción de Carlos Santana y Natalia Lafourcade](https://www.sopitas.com/musica/carlos-santana-natalia-lafourcade-hermano-colaboracion) - Sopitas
+- [Natalia Lafourcade & Edgar Barrera on Why Their Carlos Santana Collaboration Matters Now](https://consequence.net/2026/11/natalia-lafourcade-carlos-santana-edgar-barrera-hermano) - Consequence
+- [Santana Sets Planet of Free Will Tour for 2027 With London Opening Night - 24Hip-Hop](https://24hip-hop.com/santana-planet-of-free-will-tour-2027) - 24hip-hop
+- [For Pablo Alborán, Embracing Your Feelings Is the Bravest Thing a Person Can Do](https://www.spinmagazine.com/2026/11/for-pablo-alboran-embracing-your-feelings-is-the-bravest-thing-a-person-can-do/) - Spinmagazine.com
+- [For Pablo Alborán, Embracing Your Feelings Is the Bravest Thing a Person Can Do](https://www.yahoo.com/entertainment/music/articles/pablo-albor-n-embracing-feelings-150000193.html) - Yahoo
+- [Pablo Alborán Interview: A Journey through Music](https://www.spinmagazine.com/2026/11/for-pablo-alboran-embracing-your-feelings-is-the-bravest-thing-a-person-can-do) - Spinmagazine
+- [Pablo Alborán prepara ‘SINFØNICO’, el disco “más importante” de su vida y el primero con sello propio](https://www.elespanol.com/malaga/cultura/20261023/pablo-alboran-prepara-sinfonico-disco-importante-vida-primero-sello-propio/1003744429157_0.html) - Elespanol
+- [Best Valentine’s Weekend Concerts 2027 \| OnesToWatch Live](https://onestowatch.com/live/best-valentines-day-concerts) - Onestowatch
+- [Tove Lo Extends “ESTRUS World Tour” with Spring 2027 US Dates](https://consequence.net/2026/11/tove-lo-2027-us-tour-dates/) - Consequence.net
+- [Tove Lo Extends "ESTRUS World Tour" with Spring 2027 US Dates](https://consequence.net/2026/11/tove-lo-2027-us-tour-dates) - Consequence
+- [Tove Lo Announces Spring 2027 North American ‘ESTRUS’ Tour Dates](https://music.mxdwn.com/2026/11/02/news/tove-lo-announces-spring-2027-north-american-estrus-tour-dates) - Mxdwn
+- [Tove Lo Adds Spring 2027 U.S. Tour Dates](https://www.fullaccessmagazine.com/2026/11/02/tove-lo-estrus-tour-spring-2027-us-dates) - Fullaccessmagazine
+- [Tove Lo Adds 9 U.S. Shows to the ESTRUS World Tour](https://whereisthebuzz.com/tove-lo-adds-9-u-s-shows-to-the-estrus-world-tour) - Whereisthebuzz
+- [We Have Access to More Music Than Ever. So Why Are We Letting the Best Performances Disappear?](https://www.spinmagazine.com/2026/11/we-have-access-to-more-music-than-ever-so-why-are-we-letting-the-best-performances-disappear/) - Spinmagazine.com
+- [Metallica is releasing recordings of every Sphere concert](https://www.sfchronicle.com/entertainment/article/metallica-sphere-show-recordings-nugs-22468961.php) - Sfchronicle
+- [We're psyched to announce every Life Burns Faster show ...](https://www.threads.com/@metallica/post/DeM8-X1mNvS/were-psyched-to-announce-every-life-burns-faster-show-at-spherevegas-will-be) - Threads
+- [We Have Access to More Music Than Ever. So Why Are We Letting the Best Performances Disappear?](https://www.yahoo.com/entertainment/music/articles/access-more-music-ever-why-203646995.html) - Yahoo
+- [Dave Stewart Looks Back on His Life and Career With New Solo Album](https://www.spinmagazine.com/2026/11/dave-stewart-interview/) - Spinmagazine.com
+- [Dave Stewart Looks Back on His Life and Career With New Solo Album](https://www.yahoo.com/entertainment/music/articles/dave-stewart-looks-back-life-135717997.html) - Yahoo
+- [In arrivo il box set del leggendario tour del '76 di Bob Dylan](https://www.ansa.it/sito/notizie/cultura/musica/2026/11/02/in-arrivo-il-box-set-del-leggendario-tour-del-76-di-bob-dylan_14551f95-516e-4288-b859-a075bd562693.html) - ANSA.it
+- [Bob Dylan 1976 Rolling Thunder Revue 39-Disc Box Set Coming](https://bestclassicbands.com/dylan-rolling-thunder-live-1976-box-9-15-26) - Bestclassicbands
+- [Bob Dylan’s Legendary 1976 Lakeland Civic Center Concert Gets Official Release - LkldNow](https://www.lkldnow.com/bob-dylans-legendary-1976-lakeland-civic-center-concert-gets-official-release) - Lkldnow
+- [Bob Dylan, a monumental 39-CD box set on the way featuring ...](https://ondarock.com/news/bob-dylan-rolling-thunder-revue-box-set-39-cd-371-unreleased-recordings) - Ondarock
+- [2000s pop icon looks completely unrecognizable with pillowy lips and chiseled cheekbones... who is she?](https://www.dailymail.com/tvshowbiz/article-16259755/tatu-yulia-volkova-unrecognizable-things-said.html) - Dailymail.com
+- [t.A.T.u. All The Things She Said Live Performance in CDMX](https://www.facebook.com/joejimenez25/videos/all-the-things-she-said-tatu-mexico-julia-volkova-%D1%8E%D0%BB%D1%8F-%D0%B2%D0%BE%D0%BB%D0%BA%D0%BE%D0%B2%D0%B0-lena-katina-la-mar/1319294316918245) - Facebook
+- [Zach Bryan’s New Song Is a Cover by an Obscure Kentucky Songwriter](http://www.rollingstone.com/music/music-country/zach-bryan-covers-kentucky-hurricane-ian-noe-1235651328/) - Rolling Stone
+- [Watch Zach Bryan Cover Ian Noe's 'Kentucky Hurricane' in New Video](https://www.rollingstone.com/music/music-country/zach-bryan-covers-kentucky-hurricane-ian-noe-1235651328) - Rollingstone
+- [“What an Honor”: Ian Noe Shares Heartwarming Reaction to Zach Bryan Covering ‘Kentucky Hurricane’ \| Holler](https://holler.country/news/breaking/what-an-honor-ian-noe-shares-heartwarming-reaction-to-zach-bryan-covering-kentucky-hurricane) - Holler
+- [Kentucky Hurricane - Ian Noe - Covered by Zach Bryan - YouTube](https://youtu.be/sN_7m0imwAE?is=xPgJWOY_v2d851By) - Youtu
+- [Zach Bryan’s New Song Is a Cover By an Obscure Kentucky Songwriter](https://www.yahoo.com/entertainment/music/articles/zach-bryan-song-cover-obscure-165921421.html) - Yahoo
+- [Nicole Scherzinger performs the splits during The Pussycat Dolls' final show in Brazil as they bring the curtain down on their problem-ridden tour](https://www.dailymail.com/tvshowbiz/article-16259631/Nicole-Scherzinger-splits-Pussycat-Dolls-final-Brazil.html) - Dailymail.com
+- [The Pussycat Dolls at The O2 review - Attitude](https://www.attitude.co.uk/culture/the-pussycat-dolls-at-the-o2-review-537233) - Attitude
+- [Sufjan Stevens Releases First New Christmas Song in Nearly 15 Years: Stream](https://consequence.net/2026/11/sufjan-stevens-on-this-christmas-new-song/) - Consequence.net
+- [Sufjan Stevens releases "On This Christmas (It Only Gets Better)"](https://www.pastemagazine.com/article/sufjan-stevens-releases-on-this-christmas-it-only-gets-better) - Pastemagazine
+- [Listen to Sufjan Stevens’ New Song “On This Christmas (It Only Gets Better)” \| Pitchfork](https://pitchfork.com/story/listen-to-sufjan-stevens-new-song-on-this-christmas-it-only-gets-better) - Pitchfork
+- [Sufjan Stevens Shares First New Christmas Song in Nearly 15 Years](https://consequence.net/2026/11/sufjan-stevens-on-this-christmas-new-song) - Consequence
+- [Sufjan Stevens Shares New Song "On This Christmas (It Only Gets Better)"](https://stereogum.com/2516288/sufjan-stevens-on-this-christmas-it-only-gets-better/music) - Stereogum
+- [The Grammy-Winning Band That Turned Down Opening for Metallica](https://loudwire.com/turnstile-turn-down-open-metallica/) - Loudwire
+- [Metallica wanted Turnstile on tour, but band declined](https://karlobag.eu/en/music/metallica-s-tour-invitation-to-turnstile-declined-james-hetfield-reveals-the-sto-m6kgt) - Karlobag
+- [The Grammy-Winning Band That Turned Down Opening for Metallica](https://loudwire.com/turnstile-turn-down-open-metallica) - Loudwire
+- [James Hetfield reveals Turnstile said no to touring with… \| Kerrang!](https://www.kerrang.com/james-hetfield-reveals-turnstile-said-no-to-touring-with-metallica) - Kerrang
+- [Turnstile turned down the chance to tour with Metallica](https://www.nme.com/news/music/turnstile-turned-down-the-chance-to-tour-with-metallica-3974749) - Nme
