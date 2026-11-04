@@ -1,0 +1,65 @@
+# Sources for 2026-11-04 News Episode 
+- [BTS, Katseye Drive Hybe to Record Quarterly Revenue and Profit](https://variety.com/2026/music/news/bts-katseye-hybe-record-quarterly-revenue-profit-1236938217/) - Variety
+- [HYBE (XKRX:352820) (Q3 2026) Earnings Call Highlights: Record Revenue of KRW 1. ...](https://finance.yahoo.com/markets/stocks/articles/hybe-xkrx-352820-q3-2026-190311880.html) - Yahoo
+- [(2nd LD) Hybe posts record quarterly results as BTS tour lifts revenue \| Yonhap News Agency](https://en.yna.co.kr/view/AEN20261103008952320) - Yna
+- [HYBE (352820.KS) Q3 FY2026 earnings call transcript](https://finance.yahoo.com/quote/352820.KS/earnings/352820.KS-Q3-2026-earnings_call-716454.html) - Yahoo
+- [Carl Cox, Bonobo, and Jessie Ware Among First 30 Acts Revealed by Barcelona’s Sónar 2027](https://consequence.net/2026/11/sonar-2027-barcelona-carl-cox-bonobo-jessie-ware/) - Consequence.net
+- [Yung Lean, Bonobo, Peggy Gou and more lead line-up for Sónar Festival](https://www.thelineofbestfit.com/news/yung-lean-bonobo-peggy-gou-and-more-lead-line-up-for-sonar-festival) - Thelineofbestfit.com
+- [Sónar 2027 returns to its origins in the heart of Barcelona](https://www.thenewbarcelonapost.com/en/line-up-sonar-2027-firsts-artists) - Thenewbarcelonapost
+- [Barcelona's Sónar Festival reveals 30 artists for 2027 · News ⟋ RA](https://ra.co/news/86333) - Ra
+- [Carl Cox, Bonobo, and Jessie Ware Among First 30 Acts Revealed by Sónar 2027](https://consequence.net/2026/11/sonar-2027-barcelona-carl-cox-bonobo-jessie-ware) - Consequence
+- [Sónar 2027 Festival Returns to the Barcelona Waterfront](https://thegroovecartel.com/news/festivals/sonar-returns-2027-barcelona-festival) - Thegroovecartel
+- [Tame Impala and Jennie’s ‘Dracula’ Saw a Major Streaming Bump Over Halloweekend](http://www.rollingstone.com/music/music-news/tame-impala-jennie-dracula-remix-stream-surge-1235651451/) - Rolling Stone
+- [Tame Impala and Jennie's 'Dracula' Streams Spike After Halloween](https://www.rollingstone.com/music/music-news/tame-impala-jennie-dracula-remix-stream-surge-1235651451) - Rollingstone
+- [Tame Impala's 'Dracula' Has Best Streaming Day This Halloween](https://www.billboard.com/music/pop/tame-impala-dracula-halloween-best-streaming-day-1236372887) - Billboard
+- [Tame Impala & JENNIE’s ‘Dracula’ Enters the Halloween Canon With Best Streaming Day Yet](https://www.yahoo.com/entertainment/music/articles/tame-impala-jennie-dracula-enters-165724205.html) - Yahoo
+- [The Cure’s Robert Smith Promises More Concerts and New Music in 2027](https://consequence.net/2026/11/the-cures-robert-smith-promises-more-concerts-and-new-music-in-2027/) - Consequence.net
+- [The Cure have more shows and new music to come in 2027, says Robert Smith \| Contactmusic.com](https://www.contactmusic.com/story/467/3638182/the-cure-have-more-shows-and-new-music-to-come-in-2027-says-robert-smith) - Contactmusic
+- [The Cure's Robert Smith Promises More Concerts and New Music in 2027](https://consequence.net/2026/11/the-cures-robert-smith-promises-more-concerts-and-new-music-in-2027) - Consequence
+- [Robert Smith of The Cure Teases New Music and Tour Plans for The Cure in 2027 - AOL](https://www.aol.com/articles/robert-smith-cure-teases-music-040300000.html) - Aol
+- [How Beyonce, Kelly Rowland and Michelle Williams' group chat could become a 2027 Destiny's Child reunion](https://www.dailymail.com/tvshowbiz/article-16259207/Destinys-Child-reunion-beyonce-kelly-rowland-michelle-williams.html) - Dailymail.com
+- [Destiny's Child reunion – Beyonce, Kelly, Michelle seen at Jay-Z show](https://www.usatoday.com/story/entertainment/music/2026/10/24/destinys-child-reunion-jay-z-30th-anniversary-show/92408525007) - Usatoday
+- [Kelly Rowland Teases Destiny’s Child Super Bowl Reunion](https://www.realitytea.com/2026/11/02/kelly-rowland-destinys-child-reunion-jay-z-super-bowl-2027) - Realitytea
+- [Journey Members Getting Along Well, Plan to Turn Farewell Tour Into “Long Goodbye”](https://consequence.net/2026/11/journey-farewell-tour-long-goodbye/) - Consequence.net
+- [Journey gives surprising update on farewell tour after playing 110 concerts - syracuse.com](https://www.syracuse.com/entertainment/2026/11/after-110-concerts-classic-rock-band-gives-surprising-update-on-farewell-tour.html) - Syracuse
+- [Journey’s ‘farewell’ San Francisco show may not be the end after all](https://www.sfchronicle.com/entertainment/music/article/journey-farewell-tour-long-22509780.php) - Sfchronicle
+- [Journey Say Their Farewell Tour Isn't The End. What Could That Mean?](https://www.rollingstone.com/music/music-features/journey-farewell-tour-isnt-the-end-1235651807) - Rollingstone
+- [Neal Schon Says Journey Will Continue Touring: 'It's Not Over'](https://ultimateclassicrock.com/neal-schon-journey-touring-not-over) - Ultimateclassicrock
+- [Seventeen's Joshua and Jeonghan are showing on tour just how fun going to work with your best friend can be](https://www.businessinsider.com/kpop-seventeen-joshua-jeonghan-jxj-dreaming-tour-incheon-best-friends-2026-11#article) - Business Insider
+- [Seventeen's Joshua and Jeonghan Hit the Road on a Besties' Tour - Business Insider](https://www.businessinsider.com/kpop-seventeen-joshua-jeonghan-jxj-dreaming-tour-incheon-best-friends-2026-11) - Businessinsider
+- [Steve Ellis, Singer of 1967 Classic ‘Everlasting Love,’ Dead at 76](http://www.rollingstone.com/music/music-news/steve-ellis-love-affair-everlasting-love-dead-obituary-1235651940/) - Rolling Stone
+- [Steve Ellis Dies: “Everlasting Love” Singer Was 76](http://deadline.com/2026/11/steve-ellis-dead-1237212331/) - Deadline
+- [Rest In Peace Steve Ellis (7 April 1950](https://www.facebook.com/purpleradioathenscom/posts/rest-in-peacesteve-ellis7-april-1950-30-october-2026-singer-with-love-affair-the/1748545070610483) - Facebook
+- [Steve Ellis, Love Affair Frontman Behind 'Everlasting Love,' Dies At 76 \| 95.1 ZZO](https://951zzo.iheart.com/content/2026-11-02-steve-ellis-love-affair-frontman-behind-everlasting-love-dies-at-76) - Iheart
+- [Steve Ellis, 'Everlasting Love' singer for Love Affair, dies at 76](https://www.wgauradio.com/news/trending/steve-ellis-everlasting-love-singer-love-affair-dies-76/FTK5FPNWTJAXNBKJWD3HGF6S5I) - Wgauradio
+- [Love Affair frontman Steve Ellis - behind hit song Everlasting Love - dies - AOL](https://www.aol.com/articles/love-affair-frontman-steve-ellis-075127000.html) - Aol
+- [Love Affair frontman Steve Ellis - behind hit song Everlasting Love - dies - AOL](https://www.aol.co.uk/articles/love-affair-frontman-steve-ellis-075127000.html) - Aol
+- [Love Affair frontman and Everlasting Love singer Steve Ellis dies aged 76](https://www.independent.ie/world-news/love-affair-frontman-and-everlasting-love-singer-steve-ellis-dies-aged-76/a/163963507.html) - Independent
+- [Canadians David Foster, Paul Anka to receive Kennedy Center honours next month](https://www.cbc.ca/news/entertainment/kennedy-center-anka-foster-9.7406813) - CBC News
+- [Kennedy Center 2026 Honorees Include Paul Anka & David Foster](https://stereogum.com/2516347/kennedy-center-2026-honorees-include-paul-anka-barbara-mandrell-david-foster/news) - Stereogum
+- [Paul Anka, David Foster and Barbara Mandrell Lead 2026 Kennedy Center Honors Alongside Andy Garcia and David Mamet - That Eric Alper](https://www.thatericalper.com/2026/11/03/paul-anka-david-foster-and-barbara-mandrell-lead-2026-kennedy-center-honors-alongside-andy-garcia-and-david-mamet) - Thatericalper
+- [Paul Anka and David Foster receive Kennedy Center ...](https://www.facebook.com/rockhistorybook/posts/paul-anka-and-david-foster-named-2026-kennedy-center-honorees-two-men-who-helped/1447647964009454) - Facebook
+- [Kennedy Center Honors forced to move venue amid Trump legal dispute \| The Independent](https://www.independent.co.uk/bulletin/culture/kennedy-center-honors-trump-moves-venue-b3077864.html) - Independent
+- [Kennedy Center Honors 2026: 5 Honorees Revealed, Including Andy Garcia, David Foster & More](https://www.yahoo.com/entertainment/celebrity/articles/kennedy-center-honors-2026-5-185307191.html) - Yahoo
+- [Paul Anka and David Mamet to Be Honored by a Kennedy Center in Turmoil - The New York Times](https://www.nytimes.com/2026/11/02/arts/music/kennedy-center-honors-mamet-garcia-trump.html) - Nytimes
+- [I Went to the Macklemore Show Devised After He Was Kicked Off Ed Sheeran’s Tour. It Was Quite Something.](https://slate.com/culture/2026/11/macklemore-london-dublin-show-palestine-gaza.html) - Slate Magazine
+- [Macklemore breaks silence on Ed Sheeran row on stage at Wembley Stadium - The Mirror](https://www.mirror.co.uk/3am/celebrity-news/macklemore-breaks-silence-ed-sheeran-37829573) - Mirror
+- [Macklemore speaks out on Ed Sheeran Free Palestine clash \| Celebrity News \| Showbiz & TV \| Express.co.uk](https://www.express.co.uk/celebrity-news/2262140/macklemore-speaks-out-ed-sheeran) - Express
+- [Macklemore: Free Palestine show was ‘one of most beautiful moments’ of my life](https://www.belfasttelegraph.co.uk/entertainment/news/macklemore-free-palestine-show-was-one-of-most-beautiful-moments-of-my-life/a/163712729.html) - Belfasttelegraph
+- [Macklemore, Ed Sheeran scandal: Rapper doubles down at first show after being kicked off tour \| Nine.com.au](https://www.nine.com.au/entertainment/celebrity/macklemore-ed-sheeran-tour-drama-rapper-stands-by-free-palestine-statement-20261027-p618tb.html) - Nine
+- [Ye breaks rap record as Playboi Carti and North West appear](https://rollingout.com/2026/11/03/ye-breaks-rap-record-playboi-carti-north/) - Rolling Out
+- [Kanye West sets US rap show attendance record, organisers say \| IQ Magazine](https://www.iqmagazine.com/2026/11/kanye-west-sets-us-rap-show-attendance-record-organisers-say) - Iqmagazine
+- [Ye breaks rap record as Playboi Carti and North West appear](https://rollingout.com/2026/11/03/ye-breaks-rap-record-playboi-carti-north) - Rollingout
+- [Super Fan Review: Kanye Delivers Historic Halloween Show In Houston](https://103weup.com/2026/11/02/super-fan-review-kanye-delivers-historic-halloween-show-in-houston) - 103weup
+- [Texas Representative Ron Reynolds Recognizes Ye at Record Houston Show](https://thesource.com/2026/11/03/state-rep-ron-reynolds-honors-ye-houston-concert) - Thesource
+- [Kanye West Receives Texas State Proclamation Following History-Making Houston Show - That Grape Juice](https://thatgrapejuice.net/2026/11/kanye-west-receives-texas-state-proclamation-following-history-making-houston-show) - Thatgrapejuice
+- [Diana Ross announces first Australian show in more than 20 years](https://www.abc.net.au/news/2026-11-04/diana-ross-sydney-2027-groove-armada-centennial-park-mardi-gras/107342834) - ABC News (AU)
+- [News: Diana Ross returns to Sydney after more than 20 years for one-night-only show - Backseat Mafia](https://www.backseatmafia.com/news-diana-ross-returns-to-sydney-after-more-than-20-years-for-one-night-only-show) - Backseatmafia
+- [Diana Ross Announces Exclusive Sydney Show: Tickets, Date](https://au.rollingstone.com/music/music-news/diana-ross-sydney-summertime-australia-show-tickets-date-102967) - Rollingstone
+- [Diana Ross Returns To Sydney After More Than Two Decades For Exclusive Australian Show - Noise11 Music News — Noise11 Music News \| Live \|](https://www.noise11.com/news/diana-ross-sydney-2027-20261104) - Noise11
+- [Sam Burton Went Broke Making His New Album. It Was Worth It](http://www.rollingstone.com/music/music-features/sam-burton-fairweather-friend-interview-1235643858/) - Rolling Stone
+- [Sam Burton on New Album 'Fairweather Friend,' Tarot Reading](https://www.rollingstone.com/music/music-features/sam-burton-fairweather-friend-interview-1235643858) - Rollingstone
+- [Sam Burton's third solo album, Fairweather Friend, arrives ...](https://www.instagram.com/p/DesGpMwI4Gf) - Instagram
+- [Dominic Fike Might Be Growing Up, But He’s Angsty as Ever](http://www.rollingstone.com/music/music-album-reviews/dominic-fike-how-to-quit-smoking-review-1235651962/) - Rolling Stone
+- [Dominic Fike ‘How To Quit Smoking’ Review](https://inmusicblog.com/reviews/dominic-fike-how-to-quit-smoking-album-review) - Inmusicblog
+- [Dominic Fike: 'How to Quit Smoking' Review](https://www.rollingstone.com/music/music-album-reviews/dominic-fike-how-to-quit-smoking-review-1235651962) - Rollingstone
