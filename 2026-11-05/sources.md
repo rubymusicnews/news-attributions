@@ -1,0 +1,65 @@
+# Sources for 2026-11-05 News Episode 
+- [Morat Are Redefining What a Latin Superstar Looks Like, One Pop-Rock Song At a Time](https://consequence.net/2026/11/morat-redefine-latin-band-us-interview/) - Consequence.net
+- [Morat in Madrid: tickets for the Movistar Arena concert](https://karlobag.eu/en/music/news/morat-in-madrid-tickets-for-the-movistar-arena-concert-osnea) - Karlobag
+- [Morat Are Proving There's More Than One Way to Latin Stardom](https://consequence.net/2026/11/morat-redefine-latin-band-us-interview) - Consequence
+- [On Tour With Morat: Inside the last night of their sold-out Madrid run](https://1883magazine.com/on-tour-with-morat-madrid) - 1883magazine
+- [All the Albums Coming Out in November](http://www.rollingstone.com/music/music-news/album-releases-november-2026-1235651380/) - Rolling Stone
+- [U2 Carnaval de Luz: Release Date, Dolly Parton and Reviews](https://25yearslatersite.com/music/news/u2-s-carnaval-de-luz-arrives-november-13-as-early-reviews-land) - 25yearslatersite
+- [U2’s “The Greatest Show on Earth” Is an Infinite Gesture of Hope - Atwood Magazine](https://atwoodmagazine.com/ugse-u2-the-greatest-show-on-earth-song-review) - Atwoodmagazine
+- [Universal Music Canada](https://www.universalmusic.ca/2026/11/04/u2-guinness-exclusive-one-off-limited-edition-run-of-new-album-carnaval-de-luz-on-pearl-white-marble-vinyl) - Universalmusic
+- [Steinberg unveil Cubase 16](https://www.soundonsound.com/news/steinberg-unveil-cubase-16) - Soundonsound.com
+- [Steinberg Releases Cubase 16](https://sonicstate.com/news/2026/11/05/steinberg-releases-cubase-16) - Sonicstate
+- [Steinberg Releases Cubase 16 with New MIDI Tools, Instrument Stacking and Yamaha Vocal Synthesis - YamahaMusicians.com](https://yamahamusicians.com/steinberg-releases-cubase-16-with-new-midi-tools-instrument-stacking-and-yamaha-vocal-synthesis) - Yamahamusicians
+- [Steinberg Cubase 16: Exciting New Creative Production Features](https://www.gearnews.com/steinberg-cubase-daw-studio) - Gearnews
+- [Steinberg announces Cubase 16 with new tool Instrument Stacks \| Headliner Magazine](https://headlinerhub.com/steinberg-announces-cubase-16-powerful-new-tools-stem-separation-instrument-stacks.html) - Headlinerhub
+- [Herbert Blomstedt, conductor of great orchestras for seven decades, dies at 99](https://www.npr.org/2026/11/04/nx-s1-5740271/herbert-blomstedt-conductor-dead) - NPR
+- [The Strad News - Obituary: Herbert Blomstedt (1927–2026) \| The Strad](https://www.thestrad.com/news/obituary-herbert-blomstedt-1927-2026/22044.article) - Thestrad
+- [Herbert Blomstedt, former S.F. Symphony music director, dead at 99](https://www.sfchronicle.com/entertainment/classical/article/herbert-blomstedt-former-s-f-symphony-music-22512089.php) - Sfchronicle
+- [Herbert Blomstedt, conductor of great orchestras for seven decades, dies at 99 \| Interlochen Public Radio](https://www.interlochenpublicradio.org/2026-11-04/herbert-blomstedt-conductor-of-great-orchestras-for-seven-decades-dies-at-99) - Interlochenpublicradio
+- [Instagram](https://www.instagram.com/p/DfU-1rmjAh4) - Instagram
+- [Iron Maiden and Z2 Comics Announce Somewhere In Time Graphic Novel](https://consequence.net/2026/11/iron-maiden-announce-somewhere-in-time-graphic-novel/) - Consequence.net
+- [Iron Maiden's 'Somewhere in Time' 40th Anniversary Graphic Novel](https://loudwire.com/iron-maidens-somewhere-in-time-gets-40th-anniversary-graphic-novel/) - Loudwire
+- [Iron Maiden Announce 'Somewhere in Time' Graphic Novel With Exclusive Vinyl for 2027](https://www.rockumweb.com/reportes/2730/iron-maiden-announce-somewhere-in-time-graphic-novel-with-exclusive-vinyl-for-2027) - Rockumweb
+- [Iron Maiden and Z2 Comics Announce Somewhere In Time Graphic Novel](https://consequence.net/2026/11/iron-maiden-announce-somewhere-in-time-graphic-novel) - Consequence
+- [IRON MAIDEN And Z2 Comics Announce "Somewhere In Time: The Graphic Album"](https://bravewords.com/news/iron-maiden-and-z2-comics-announce-somewhere-in-time-the-graphic-album) - Bravewords
+- [Iron Maiden's 'Somewhere in Time' 40th Anniversary Graphic Novel](https://loudwire.com/iron-maidens-somewhere-in-time-gets-40th-anniversary-graphic-novel) - Loudwire
+- [Christine and the Queens Returns with Two New Songs](https://pitchfork.com/story/christine-and-the-queens-returns-with-two-new-songs/) - Pitchfork
+- [Christine and the Queens Returns with Two New Songs \| Pitchfork](https://pitchfork.com/story/christine-and-the-queens-returns-with-two-new-songs) - Pitchfork
+- [Christine And The Queens Releases "Rendez-vous Avec Toi" / "Rendez-vous in Your Arms," First Single From Upcoming Album Due Next Spring - mxdwn Music](https://music.mxdwn.com/2026/11/04/news/christine-and-the-queens-releases-rendez-vous-avec-toi-rendez-vous-in-your-arms-first-single-from-upcoming-album-due-next-spring) - Mxdwn
+- [Christine and the Queens Releases New Song “Rendez vous avec toi” - pm studio world wide music news](https://www.pmstudio.com/music/20261105-29337) - Pmstudio
+- [Christine and the Queens shares new single from upcoming album](https://www.pastemagazine.com/music/christine-and-the-queens/christine-and-the-queens-shares-first-single-from-upcoming-album) - Pastemagazine
+- [Greta Van Fleet’s Audience Used to Be Old Dudes in Zeppelin Shirts. Something Changed](http://www.rollingstone.com/music/music-features/greta-van-fleet-audience-age-interview-1235652490/) - Rolling Stone
+- [Greta Van Fleet Interview: Changing Audience, New Album, Tour](https://www.rollingstone.com/music/music-features/greta-van-fleet-audience-age-interview-1235652490) - Rollingstone
+- [Greta Van Fleet Is Still Burning Bright \| Vogue](https://www.vogue.com/article/greta-van-fleet-palace-for-the-people-interview) - Vogue
+- [Pearl Jam Still Auditioning Drummers: “We Want to Play Some Shows Next Year”](https://consequence.net/2026/11/pearl-jam-still-auditioning-drummers/) - Consequence.net
+- [Wait, so does Pearl Jam have a drummer? Here’s what Jeff Ament says](https://chaoszine.net/pearl-jam-drummer-auditions-jeff-ament-2027) - Chaoszine
+- [Pearl Jam Still Auditioning Drummers Following Matt Cameron Split](https://ultimateclassicrock.com/pearl-jam-auditioning-drummers-matt-cameron) - Ultimateclassicrock
+- [Pearl Jam Still Auditioning Drummers: "We Want to Play Some Shows Next Year"](https://consequence.net/2026/11/pearl-jam-still-auditioning-drummers) - Consequence
+- [Mike McCready Talks Pearl Jam's Future and Abe Laboriel Jr.: "We're Trying to Get Him Into the Band" - pearljamonline.it](https://www.pearljamonline.it/en/mike-mccready-talks-pearl-jam-future-and-abe-laboriel-jr-were-trying-to-get-him-into-the-band) - Pearljamonline
+- [Four Tet Produced a Tech-House Remix for the Durutti Column](https://pitchfork.com/story/four-tet-remixes-the-durutti-column/) - Pitchfork
+- [The Durutti Column's "Your Shadow At Morning" Reimagined by Four Tet](https://louderthanwar.com/the-durutti-columns-your-shadow-at-morning-reimagined-by-four-tet) - Louderthanwar
+- [Your Shadow at Morning · Culture - News](https://xsinews.com/culture/music/your-shadow-at-morning-7acc54c3?lang=en) - Xsinews
+- [FLOOD - The Durutti Column Recruit Four Tet for “Your Shadow at Morning” Remix](https://floodmagazine.com/236122/listen-durutti-column-your-shadow-at-morning-four-tet-remix) - Floodmagazine
+- [Sahara Ray, Australian Model and Swimwear Designer ...](https://www.yahoo.com/entertainment/celebrity/articles/sahara-ray-australian-model-swimwear-172748466.html) - Yahoo
+- [Apple Music Selfie Sing turns your iPhone into a karaoke booth](https://www.cultofmac.com/news/apple-music-selfie-sing-karaoke-video-ios-27-3) - Cult of Mac
+- [Apple Music’s new Selfie Sing feature will let iPhone users record karaoke videos with scrolling lyrics - The Times of India](https://timesofindia.indiatimes.com/technology/tech-news/apple-musics-new-selfie-sing-feature-will-let-iphone-users-record-karaoke-videos-with-scrolling-lyrics/articleshow/135542642.cms) - Indiatimes
+- [Apple Music adds Selfie Sing karaoke feature in iOS 27.3](https://uz.kursiv.media/en/2026-11-04/apple-music-selfie-sing) - Kursiv
+- [Apple Music's Upcoming Feature Will Let You Record Yourself Doing Karaoke](https://www.engadget.com/2306269/apple-music-selfie-sing-karaoke-video) - Engadget
+- [Apple Music Selfie Sing: How to Record Your Own Karaoke Videos on iPhone - RouteNote - Radar](https://routenote.com/radar/apple-music-selfie-sing-how-to-record-your-own-karaoke-videos-on-iphone) - Routenote
+- [Apple Music Selfie Sing turns your iPhone into a karaoke booth](https://tech.yahoo.com/ai/apple-intelligence/articles/apple-music-selfie-sing-turns-154516654.html) - Yahoo
+- [2 Years After Release Angel Of My Dreams Charts of US Billboard Top 100](https://ohnotheydidnt.livejournal.com/133103135.html) - Livejournal.com
+- [JADE Makes Billboard Hot 100 History as 'Angel of My Dreams' Revives Two Years After Release](https://www.rockumweb.com/reportes/2725/jade-makes-billboard-hot-100-history-as-angel-of-my-dreams-revives-two-years-after-release) - Rockumweb
+- [Little Mix's Jade Earns 1st Solo Hot 100 Hit With 'Angel of My Dreams'](https://www.billboard.com/music/chart-beat/little-mix-jade-angel-of-my-dreams-solo-hot-100-1236372969) - Billboard
+- [Bob Dylan comes knockin' on pope's door as Leo welcomes legend to Vatican](https://abcnews.com/International/wireStory/bob-dylan-knockin-popes-door-leo-welcomes-legend-137857488) - Abcnews.com
+- [Pope Leo welcomes Bob Dylan to Vatican while rock legend tours in Italy](https://pagesix.com/2026/11/04/celebrity-news/pope-leo-welcomes-bob-dylan-to-vatican-while-rock-legend-tours-in-italy/) - Page Six
+- [Pope Leo XIV meets with Bob Dylan at Vatican - UPI.com](https://www.upi.com/Entertainment_News/2026/11/04/vatican-city-bob-dylan-pope-leo/8351793826241) - Upi
+- [Bob Dylan Meets Pope Leo XIV at the Vatican in Rome](https://www.billboard.com/music/music-news/bob-dylan-meets-pope-leo-xiv-vatican-rome-1236374334) - Billboard
+- [Pope Leo meets with renowned singer Bob Dylan](https://www.ewtnnews.com/world/pope-leo-meets-with-renowned-singer-bob-dylan) - Ewtnnews
+- [Pope Leo welcomes Bob Dylan to Vatican while rock legend tours in Italy](https://pagesix.com/2026/11/04/celebrity-news/pope-leo-welcomes-bob-dylan-to-vatican-while-rock-legend-tours-in-italy) - Pagesix
+- [You have to see Bob Dylan’s link-up with Pope Leo to believe it](https://www.yahoo.com/entertainment/music/articles/see-bob-dylan-pope-leo-172054252.html) - Yahoo
+- [Frank Sinatra sings "It Was A Very Good Year" in the recording studio (1965, video)](https://freerepublic.com/focus/f-chat/4401785/posts) - Freerepublic.com
+- [Tributes paid to legendary rock drummer who played on more UK number one singles than any other - backing acts including Paul McCartney, the Kinks, Dusty Springfield, Lulu, Marc Bolan, Paul Weller and the Wombles](https://www.dailymail.com/news/article-16265609/Tributes-paid-legendary-rock-drummer-clem-cattini.html) - Dailymail.com
+- [Who was Clem Cattini? The Telstar drummer who played on more than 40 UK number ones has died at 89](https://www.nacionale.com/en/articles/who-was-clem-cattini-telstar-drummer-uk-number-ones-dies-89) - Nacionale
+- [Clem Cattini, Rock and Roll Drummer Behind The Tornados' "Telstar" and 42 U.K. #1 Singles, Dies at 89](https://www.thatericalper.com/2026/11/04/clem-cattini-rock-and-roll-drummer-behind-the-tornados-telstar-and-42-u-k-1-singles-dies-at-89) - Thatericalper
+- [Clem Cattini: Shakin’ All Over, Telstar and Forty-Three Number Ones](https://thestrangebrew.co.uk/clem-cattini-shakin-all-over-telstar) - Thestrangebrew
+- [Famed drummer Clem Cattini passes away at 89 after MAJOR fall at his residence:‘A true powerhouse of percussion’ \| - The Times of India](https://timesofindia.indiatimes.com/entertainment/english/music/news/famed-drummer-clem-cattini-passes-away-at-89-after-major-fall-at-his-residencea-true-powerhouse-of-percussion/articleshow/135558893.cms) - Indiatimes
