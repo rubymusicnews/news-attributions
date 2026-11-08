@@ -1,0 +1,68 @@
+# Sources for 2026-11-08 News Episode 
+- [Elvis Music Owners, Eminem Publisher File Sprawling New Lawsuits Against AI Music Generator Suno: ‘The Next Elvis Won’t Pick Up a Guitar’](https://variety.com/2026/music/news/elvis-eminem-sue-suno-ai-music-generator-1236941798/) - Variety
+- [Elvis Estate and Eminem Publisher Sue Suno Over AI Voice Cloning \| AI Weekly](https://aiweekly.co/alerts/elvis-estate-and-eminem-publisher-sue-suno-over-ai-voice-cloning) - Aiweekly
+- [Elvis Presley rights holders and Eminem’s publisher sue AI music generator Suno](https://tribune.com.pk/story/2639163/elvis-presley-rights-holders-and-eminems-publisher-sue-ai-music-generator-suno) - Tribune
+- [Elvis rights holders and Eminem publisher sue AI music generator Suno \| Межа](https://mezha.net/eng/news/mezha-283a60477ded3bd3306f8ef5_elvis_rights_holders) - Mezha
+- [Elvis music owners file new lawsuit against AI music generator](https://wreg.com/news/local/elvis-presleys-music-owners-file-new-lawsuit-against-ai-music-generator) - Wreg
+- [Elvis, Eminem rights holders sue AI music generator Suno\| The Daily Star](https://www.thedailystar.net/culture/entertainment/news/elvis-eminem-rights-holders-sue-ai-music-generator-suno-4318351) - Thedailystar
+- [Elvis Estate, Eminem Publisher File Lawsuits Against AI Startup Suno](https://variety.com/2026/music/news/elvis-eminem-sue-suno-ai-music-generator-1236941798) - Variety
+- [Deep Purple’s Ian Gillan Recovering After “Successful” Surgery Following Medical Emergency](http://deadline.com/2026/11/ian-gillan-deep-purple-medical-emergency-1237210620/) - Deadline
+- [Deep Purple postpone shows after Ian Gillan hospitalised following "medical emergency"](https://www.nme.com/news/music/deep-purple-postpone-shows-ian-gillan-hospitalised-medical-emergency-3974745) - Nme
+- [Ian Gillan shares health update after emergency surgery](https://www.music-news.com/news/UK/192143/Ian-Gillan-shares-health-update-after-emergency-surgery) - Music-news
+- [Deep Purple cancel tour after Ian Gillan medical emergency \| GuitarPlayer](https://www.guitarplayer.com/music/there-are-very-serious-risks-involved-deep-purple-cancel-remaining-tour-dates-after-ian-gillan-medical-emergency) - Guitarplayer
+- [Deep Purple Postpones Remaining European Tour Dates](https://www.jambase.com/article/deep-purple-tour-dates-postponed-europe-ian-gillan) - Jambase
+- [Richard Lloyd, Television’s Fiery and Fluent Guitarist, Dies at 75](https://variety.com/2026/music/news/richard-lloyd-dead-television-guitarist-1236942055/) - Variety
+- [Richard Lloyd Dies: Guitarist With Influential Punk Pioneers Television Was 75](http://deadline.com/2026/11/richard-lloyd-dead-1237216318/) - Deadline
+- [Richard Lloyd, Television’s Guitarist, Dead at 75](http://www.vulture.com/article/richard-lloyd-television-guitarist-dead.html) - Vulture
+- [Richard Lloyd, Television Guitarist, Dead at 75](https://consequence.net/2026/11/richard-lloyd-television-dead) - Consequence
+- [Television's Richard Lloyd Has Died │ Exclaim!](https://exclaim.ca/music/article/television-s-richard-lloyd-has-died) - Exclaim
+- [Richard Lloyd Death: Television Guitarist Dies at 75](https://www.billboard.com/music/music-news/richard-lloyd-death-television-guitarist-dies-obituary-1236376953) - Billboard
+- [Richard Lloyd, influential Television guitarist, dies aged 75 \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/richard-lloyd-television-death-age-b3081065.html) - Independent
+- [Richard Lloyd, Television guitarist and co-founder, dead at 75 \| GuitarPlayer](https://www.guitarplayer.com/guitarists/richard-lloyd-television-guitarist-and-co-founder-dead-at-75) - Guitarplayer
+- [Meet the Rising Stars Competing for Best New Artist at the Latin Grammys](http://www.rollingstone.com/music/music-latin/best-new-artist-latin-grammys-nominees-winners-1235654396/) - Rolling Stone
+- [Latin Grammys 2026: Performers, Nominees & How to Watch](https://hit-channel.com/latin-grammys-2026-performers-nominees-and-how-to-watch) - Hit-channel
+- [Latin Grammys 2026: Meet the Rising Stars Up for Best New Artist](https://www.rollingstone.com/music/music-latin/best-new-artist-latin-grammys-nominees-winners-1235654396) - Rollingstone
+- [Everything you need to know about the 2026 Latin Grammy Awards](https://www.courant.com/2026/11/05/2026-latin-grammy-awards) - Courant
+- [Young Miko Kisses Her “Late Checkout Tour” Goodbye with a Star-Studded Brooklyn Finale: Review + Tracklist](https://consequence.net/2026/11/young-miko-late-checkout-tour-finale-review/) - Consequence.net
+- [Young Miko Kisses Her “Late Checkout Tour” Goodbye with a Star-Studded Brooklyn Finale: Review + Tracklist](https://consequence.net/2026/11/young-miko-kisses-her-late-checkout-tour-goodbye-with-a-star-studded-brooklyn-finale-review-tracklist/) - Consequence.net
+- [Young Miko Closes Late Checkout Tour at Barclays Center: Review + Setlist](https://consequence.net/2026/11/young-miko-late-checkout-tour-finale-review) - Consequence
+- [Young Miko Celebrates a Milestone with Star-Studded ...](https://www.instagram.com/p/DfbQ5f5G13z) - Instagram
+- [Young Miko Brings Out Rauw Alejandro at Sold-Out Brooklyn Tour Stop to Perform “Aquel Diciembre”](https://www.complex.com/music/a/markelibert/rauw-alejandro-young-miko-aquel-diciembre-barclays) - Complex
+- [Winners Of 2026 Korea Grand Music Awards – ARTIST DAY](http://www.soompi.com/article/1884897wpp/winners-of-2026-korea-grand-music-awards-artist-day) - soompi
+- [Winners Of 2026 Korea Grand Music Awards - ARTIST DAY \| Soompi](https://www.soompi.com/article/1884897wpp/winners-of-2026-korea-grand-music-awards-artist-day) - Soompi
+- [KGMA 2026 Winners: BTS, BLACKPINK and Stray Kids Win](https://inmusicblog.com/k-pop/kgma-2026-winners-full-list) - Inmusicblog
+- [Here Are All The Winners Of The 2026 Korean Grand Music Awards (KGMA) - Koreaboo](https://www.koreaboo.com/news/winners-2026-korean-grand-music-awards-kgma) - Koreaboo
+- [Benson Boone Brings Young Fan Battling Cancer Onstage](http://www.billboard.com/music/music-news/benson-boone-kenzie-riddle-beautiful-things-brisbane-1236376893/) - Billboard
+- [Singer Benson Boone invites 13-year-old Kenzie Riddle on stage — ABC News Australia](https://ua.news/en/dovkolo-svitu/spivak-benson-bun-zaprosiv-na-stsenu-13-richnu-kenzi-riddl-abc-news-australia) - Ua
+- [Benson Boone Brings Young Fan Battling Cancer Onstage](https://www.billboard.com/music/music-news/benson-boone-kenzie-riddle-beautiful-things-brisbane-1236376893) - Billboard
+- [Benson Boone Invites 13-Year-Old Fan Onstage for Birthday Duet in Brisbane](https://www.talk995.com/2026/11/08/benson-boone-invites-13-year-old-fan-onstage-for-birthday-duet-in-brisbane) - Talk995
+- [Benson Boone Grants Sick Teen's Wish At Brisbane Concert](https://themusic.com.au/news/benson-boone-grants-sick-teens-wish/lV4riYiLio0/07-11-26) - Themusic
+- [Regis – Hidden in This Is the Light That You Miss (Remastered and Expanded) (2026)](https://exystence.net/blog/2026/11/07/regis-hidden-in-this-is-the-light-that-you-miss-2020/) - Exystence.net
+- [Dolly Parton's new SongTeller hotel and museum in Nashville is pitch-perfect tribute to Queen of Country - but the footage she recorded before her death is hard to watch](https://www.dailymail.com/travel/article-16271171/Dolly-Parton-Nashville-SongTeller-museum-death.html) - Dailymail.com
+- [Dolly Parton's SongTeller Hotel, Nashville, Tennessee — Hotel Review \| Condé Nast Traveler](https://www.cntraveler.com/hotels/nashville/dolly-partons-songteller-hotel) - Cntraveler
+- [Dolly lives on in Nashville, as new hotel & museum opens](https://thewest.com.au/travel/dolly-lives-on-in-nashville-as-new-hotel-museum-opens-c-23007606) - Thewest
+- [Dolly Parton Wedding Dress Found After 60 Years](https://www.womansworld.com/entertainment/celebrities/dolly-parton-wedding-dress-found-after-60-years) - Womansworld
+- [The Dolly Parton Museum in Nashville Is Now Open - AFAR](https://www.afar.com/magazine/the-dolly-parton-museum-in-nashville-is-now-open) - Afar
+- [Christian Sæhle brings a vibrant, noctural energy with "Party People"](https://earmilk.com/2026/11/07/christian-saehle-brings-a-vibrant-noctural-energy-with-party-people/) - Earmilk.com
+- [Christian Sæhle brings a vibrant, noctural energy with "Party People" - EARMILK](https://earmilk.com/2026/11/07/christian-saehle-brings-a-vibrant-noctural-energy-with-party-people) - Earmilk
+- [Christian Saehle party people alt pop single](https://www.facebook.com/anrfactory/posts/if-pop-had-its-own-sleazy-sunset-strip-christiansaehle-would-be-reigning-from-it/1671783561625971) - Facebook
+- [Radie Peat on her first solo album: ‘Singing I don’t think about... it’s a totally emotional thing’](https://www.irishtimes.com/culture/music/2026/11/07/radie-peat-on-her-first-solo-album-singing-i-dont-think-about-its-a-totally-emotional-thing/) - The Irish Times
+- [Radie Peat on her first solo album: ‘Singing I don’t think about... it’s a totally emotional thing’ – The Irish Times](https://www.irishtimes.com/culture/music/2026/11/07/radie-peat-on-her-first-solo-album-singing-i-dont-think-about-its-a-totally-emotional-thing) - Irishtimes
+- [Radie Peat unveils new song, “Hares on the Mountain” \| The Line of Best Fit](https://www.thelineofbestfit.com/news/radie-peat-unveils-new-song-hares-on-the-mountain) - Thelineofbestfit
+- [Radie Peat shares new single ‘Hares on the Mountain’ – Rough Trade Records](https://roughtraderecords.com/wp/2026/10/14/radie-peat-shares-new-single-hares-on-the-mountain) - Roughtraderecords
+- [Niall Horan's 3Arena gigs: What you need to know](https://www.rte.ie/entertainment/2026/1107/1598147-niall-horans-3arena-gigs-what-you-need-to-know/) - RTE
+- [Travel disruption warning for Niall Horan’s Dublin gigs](https://www.thetraveler.org/travel-disruption-warning-for-niall-horans-dublin-gigs) - Thetraveler
+- [Niall Horan's 3Arena gigs: What you need to know](https://www.rte.ie/entertainment/2026/1107/1598147-niall-horans-3arena-gigs-what-you-need-to-know) - Rte
+- [Going to Niall Horan next week? Here’s what you need to know about travel restrictions in Dublin](https://www.thejournal.ie/niall-horan-3arean-shows-diversions-travel-7217749-Nov2026) - Thejournal
+- [Niall Horan concert warning as major travel disruption and Luas restrictions announced - U105](https://www.u105.com/news/entertainment/niall-horan-concert-warning-as-major-travel-disruption-and-luas-restrictions-announced) - U105
+- [Niall Horan concert warning as major travel disruption and Luas restrictions announced - LMFM](https://www.lmfm.ie/news/entertainment/niall-horan-concert-warning-as-major-travel-disruption-and-luas-restrictions-announced) - Lmfm
+- [CJ Group’s Miky Lee Hailed as ‘Godmother of K-Culture’ as She Receives Asian Hall of Fame Lifetime Achievement Medal](https://variety.com/2026/film/news/miky-lee-godmother-k-culture-asian-hall-fame-1236941850/) - Variety
+- [CJ’s Miky Lee wins Asian Hall of Fame lifetime honor - The Korea Herald](https://www.koreaherald.com/article/10929664) - Koreaherald
+- [CJ's Miky Lee honored as 'Godmother of K-culture' at Asian Hall of Fame - The Korea Times](https://www.koreatimes.co.kr/amp/lifestyle/people-events/20261108/cjs-miky-lee-honored-as-godmother-of-k-culture-at-asian-hall-of-fame) - Koreatimes
+- [CJ Group’s Miky Lee To Receive Asian Hall Of Fame’s Lifetime Achievement Honor](https://www.yahoo.com/entertainment/celebrity/articles/cj-group-miky-lee-receive-135539017.html) - Yahoo
+- [Miky Lee Hailed as 'Godmother of K-Culture' at Asian Hall of Fame](https://variety.com/2026/film/news/miky-lee-godmother-k-culture-asian-hall-fame-1236941850) - Variety
+- [CJ's Miky Lee honored as 'Godmother of K-culture' at Asian Hall of Fame - The Korea Times](https://www.koreatimes.co.kr/lifestyle/people-events/20261108/cjs-miky-lee-honored-as-godmother-of-k-culture-at-asian-hall-of-fame) - Koreatimes
+- [CJ Group Vice Chairwoman Miky Lee Receives - Businesskorea](https://www.businesskorea.co.kr/news/articleView.html?idxno=280743) - Businesskorea
+- [Meet the Vigodas: Conan O’Brien Plays Out His Teenage Dream With L.A. Cover Band](http://www.rollingstone.com/music/music-features/conan-obrien-the-vigodas-interview-los-angeles-performance-1235654174/) - Rolling Stone
+- [Meet the Vigodas: Conan O’Brien Plays Out His Teenage Dream With L.A. Cover Band](https://www.yahoo.com/entertainment/music/concerts/articles/meet-vigodas-conan-o-brien-181624549.html) - Yahoo
+- [Conan O'Brien Talks New Band the Vigodas](https://www.rollingstone.com/music/music-features/conan-obrien-the-vigodas-interview-los-angeles-performance-1235654174) - Rollingstone
