@@ -1,0 +1,73 @@
+# Sources for 2026-11-09 News Episode 
+- [Hayley Williams Hangs in Her Hotel Room in “Dream Girl in Shibuya” Video](https://pitchfork.com/story/hayley-williams-hangs-in-a-hotel-room-in-new-dream-girl-in-shibuya-video/) - Pitchfork
+- [Hayley Williams Hangs in Her Hotel Room in “Dream Girl in Shibuya” Video \| Pitchfork](https://pitchfork.com/story/hayley-williams-hangs-in-a-hotel-room-in-new-dream-girl-in-shibuya-video) - Pitchfork
+- [Hayley Williams Shares New Black And White Music Video For “Dream Girl In Shibuya” - mxdwn Music](https://music.mxdwn.com/2026/11/08/news/hayley-williams-shares-new-black-and-white-music-video-for-dream-girl-in-shibuya) - Mxdwn
+- [Justin Timberlake Reveals ‘What Goes Around… Comes Around’ Is Not About Britney Spears](http://www.rollingstone.com/music/music-news/justin-timberlake-what-goes-around-comes-around-britney-spears-1235654443/) - Rolling Stone
+- [Justin Timberlake finally reveals if ‘What Goes Around… Comes Around’ is about ex Britney Spears — a full 20 years later](https://pagesix.com/2026/11/07/celebrity-news/justin-timberlake-reveals-if-hit-song-is-about-britney-spears/) - Page Six
+- [Justin Timberlake denies 2006 hit is about Britney Spears after decades of speculation - Newswav](https://newswav.com/article/justin-timberlake-denies-2006-hit-is-about-britney-spears-after-decades-of-A2611_7NpU1G) - Newswav
+- [Justin Timberlake denies ‘What Goes Around... Comes Around’ is about Britney Spears after decades-long rumor](https://www.yahoo.com/entertainment/celebrity/interviews/articles/justin-timberlake-denies-goes-around-214725695.html) - Yahoo
+- [Justin Timberlake Denies That ‘What Goes Around... Comes Around’ Is About His Ex Britney Spears](https://ohnotheydidnt.livejournal.com/133119698.html) - Livejournal
+- [Justin Timberlake Reveals 'What Goes Around... Comes Around' Was Inspired by a Friend's Breakup](https://www.yahoo.com/entertainment/music/new-albums/articles/justin-timberlake-reveals-goes-around-092441713.html) - Yahoo
+- [Justin Timberlake Reveals If 'What Goes Around... Comes Around' Is Really About Ex Britney Spears \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/11/07/justin-timberlake-reveals-if-what-goes-around-comes-around-is-really-about-ex-britney-spears) - Justjared
+- [Justin Timberlake Says This Popular Song Is Not About Britney Spears](https://www.eonline.com/news/1437933/justin-timberlake-says-this-popular-song-is-not-about-britney-spears) - Eonline
+- [Alanis Morissette Shares She Identifies as Pansexual](http://www.billboard.com/culture/pride/alanis-morissette-pansexual-1236376991/) - Billboard
+- [Alanis Morissette comes out as pansexual at 52: Here's how the singer made the revelation and what the term means](https://economictimes.indiatimes.com/magazines/panache/alanis-morissette-comes-out-as-pansexual-at-52-heres-how-the-singer-made-the-revelation-and-what-the-term-means/articleshow/135656671.cms) - The Times of India
+- [Alanis Morissette comes out as pansexual in candid interview: "I get everything!" - LGBTQ Nation](https://www.lgbtqnation.com/2026/11/alanis-morissette-comes-out-as-pansexual-in-candid-interview-i-get-everything) - Lgbtqnation
+- [Alanis Morissette comes out as pansexual](https://pagesix.com/2026/11/07/entertainment/alanis-morissette-comes-out-as-pansexual) - Pagesix
+- [Alanis Morissette says she is pansexual on Handsome podcast](https://twaslnews1.twaslnews.com/7286253) - Twaslnews
+- [Alanis Morissette Shares She Identifies as Pansexual](https://www.billboard.com/culture/pride/alanis-morissette-pansexual-1236376991) - Billboard
+- [Alanis Morissette Shares She Identifies as Pansexual](https://www.spreaker.com/episode/alanis-morissette-shares-she-identifies-as-pansexual--76238538) - Spreaker
+- [Alanis Morissette, 52, comes out as pansexual and drops a new holiday album: 'Much love, always' - Yahoo Style Canada](https://ca.style.yahoo.com/alanis-morissette-52-comes-out-as-pansexual-and-drops-a-new-holiday-album-much-love-always-165543666.html) - Yahoo
+- [Soompi’s K-Pop Music Chart 2026, November Week 2](http://www.soompi.com/article/1885052wpp/soompis-k-pop-music-chart-2026-november-week-2) - soompi
+- [Soompi's K-Pop Music Chart 2026, November Week 2 \| Soompi](https://www.soompi.com/article/1885052wpp/soompis-k-pop-music-chart-2026-november-week-2) - Soompi
+- [Soompi's K-Pop Music Chart 2026, November Week 1 \| Soompi](https://www.soompi.com/article/1883313wpp/soompis-k-pop-music-chart-2026-november-week-1) - Soompi
+- [Ed Sheeran sends message to fans ahead of next leg of tour... after Macklemore was dropped over pro-Palestine comments](https://www.dailymail.com/tvshowbiz/article-16276329/ed-sheeran-north-america-tour-controversy.html) - Dailymail.com
+- [Ed Sheeran Wraps U.S. Loop Tour Leg Following Controversy](https://www.usmagazine.com/entertainment/news/ed-sheeran-wraps-u-s-loop-tour-leg-following-controversy) - Usmagazine
+- [Ed Sheeran shares new message after Macklemore controversy](https://www.thenews.com.pk/latest/1422946-ed-sheeran-shares-new-message-after-macklemore-controversy) - Thenews
+- [Sepultura Celebrate Career at Final Show - See Setlist + Video](https://loudwire.com/sepultura-final-show-setlist-video/) - Loudwire
+- [Watch: SEPULTURA Performs Final-Ever Show In Brazil](https://bravewords.com/news/watch-sepultura-performs-final-ever-show-in-brazil) - Bravewords
+- [This is the epic setlist and all the surprise guests from Sepultura’s emotional final show \| Louder](https://www.loudersound.com/bands-artists/this-is-the-epic-setlist-from-sepulturas-emotional-fina-show) - Loudersound
+- [Sepultura Play Final Concert In São Paulo, Brazil](https://themosh.net/sepultura-final-show-farewell-tour-2026) - Themosh
+- [Watch: SEPULTURA Plays Final Concert In São Paulo, Brazil - BLABBERMOUTH.NET](https://blabbermouth.net/news/watch-sepultura-plays-final-concert-in-sao-paulo-brazil) - Blabbermouth
+- [Sepultura play final live show in São Paulo](https://chaoszine.net/sepultura-final-concert-sao-paulo-november-2026) - Chaoszine
+- [First Look: Who’s Who in the Upcoming Snoop Dogg Biopic](https://www.theroot.com/first-look-whos-who-in-the-upcoming-snoop-dogg-biopic-2000134277) - The Root
+- [Snoop Dogg Biopic Finds Its Nate Dogg And Kurupt](https://deadline.com/2026/08/snoop-biopic-laya-deleon-hayes-olly-sholotan-1237051304) - Deadline
+- [Snoop Dogg Biopic Casts Biggie: SwayvoTwain, Son of D'Angelo, Angie Stone](https://variety.com/2026/film/news/snoop-dogg-biopic-cast-biggie-swayvotwain-dangelo-angie-stone-1236854228) - Variety
+- [Cynthia Erivo Cast As Tupac's Mother In Snoop Dogg Biopic](https://www.hotnewhiphop.com/1015652-cynthia-erivo-snoop-biopic-tupac-afeni-shakur) - Hotnewhiphop
+- [Cynthia Erivo to Play Tupac Shakur's Mother Snoop Dogg Biopic](https://www.hollywoodreporter.com/movies/movie-news/cynthia-erivo-to-play-tupac-shakur-mother-snoop-1236747793) - Hollywoodreporter
+- [Critical Casting Decisions Finalized in Snoop Dogg Biopic](https://www.digitalmusicnews.com/2026/11/06/snoop-dogg-biopic-casting-finalized) - Digitalmusicnews
+- [Snoop Dogg biopic: Everything we know about Snoop Dogg Movie - Capital XTRA](https://www.capitalxtra.com/news/snoop-dogg-biopic-movie-release-date) - Capitalxtra
+- [Watch the Strokes Play “Lonely in the Future” and “Going Shopping” on SNL](https://pitchfork.com/story/watch-the-strokes-play-lonely-in-the-future-and-going-shopping-on-snl/) - Pitchfork
+- [The Strokes Join SNL Five-Timers Club With Dazzling Visuals and Walton Goggins](https://consequence.net/2026/11/the-strokes-join-snl-five-timers-club-with-dazzling-visuals-and-walton-goggins/) - Consequence.net
+- [Alabama actor Walton Goggins joins The Strokes for surprise return appearance on Saturday Night Live - al.com](https://www.al.com/news/birmingham/2026/11/alabama-actor-joins-the-strokes-for-surprise-return-appearance-on-snl.html) - Al
+- [Watch The Strokes perform ‘Lonely In The Future’ and ‘Going Shopping’ with Walton Goggins on ‘SNL’](https://www.nme.com/news/music/the-strokes-lonely-in-the-future-going-shopping-walton-goggins-snl-3975379) - Nme
+- [Watch the Strokes Play “Lonely in the Future” and “Going Shopping” on SNL \| Pitchfork](https://pitchfork.com/story/watch-the-strokes-play-lonely-in-the-future-and-going-shopping-on-snl) - Pitchfork
+- [The Strokes Join SNL Five-Timers Club With Dazzling Visuals and Walton Goggins](https://consequence.net/2026/11/the-strokes-join-snl-five-timers-club-with-dazzling-visuals-and-walton-goggins) - Consequence
+- [The Strokes Unveil Lonely In The Future Music Video With Spitting Image Puppets, Make Fifth SATURDAY NIGHT LIVE Appearance \| BroadwayWorld](https://www.broadwayworld.com/bwwmusic/article/The-Strokes-Unveil-Lonely-In-The-Future-Music-Video-With-Spitting-Image-Puppets-Make-Fifth-SATURDAY-NIGHT-LIVE-Appearance-20261108) - Broadwayworld
+- [Olivia Rodrigo's talent was fully in on bloom in South Philly show](https://www.inquirer.com/entertainment/music/olivia-rodrigo-unraveled-tour-philadelphia-review-20261108.html) - The Philadelphia Inquirer
+- [Olivia Rodrigo 'Unraveled Tour' Philadelphia review: A superpower revealed - nj.com](https://www.nj.com/entertainment/2026/11/olivia-rodrigos-rock-star-future-is-bright-but-her-real-superpower-was-revealed-in-philly-review.html) - Nj
+- [James Blunt shocks fans as he performs pop up gig at Heathrow Airport to celebrate the release of his new album Airplane Mode](https://www.dailymail.com/tvshowbiz/article-16276875/James-Blunt-shocks-fans-performs-pop-gig-Heathrow-Airport-celebrate-release-new-album-Airplane-Mode.html) - Dailymail.com
+- [James Blunt surprises Heathrow passengers with performance \| Bracknell News](https://www.bracknellnews.co.uk/news/26708570.james-blunt-surprises-heathrow-passengers-performance) - Bracknellnews
+- [Luxury grocery chain Erewhon teases first public ...](https://www.dailymail.com/lifestyle/food-drink/article-16240195/erewhon-luxury-grocery-chain-smoothies-new-york-city.html) - Dailymail
+- [Review: Ye at AT&T Stadium](http://www.dallasobserver.com/music/review-ye-at-att-stadium-40732083/) - Dallas Observer
+- [Review: Ye brings out Erykah Badu, Kid Cudi at AT&T Stadium Texas show](https://www.dallasnews.com/arts-entertainment/music/article/ye-kanye-west-dallas-texas-review-kid-cudi-22473707.php) - Dallasnews
+- [Kanye West Dallas Setlist: Every Song From His Record-Breaking Show](https://inmusicblog.com/rap/kanye-west-dallas-concert-setlist-2026) - Inmusicblog
+- [Ye Breaks Attendance Record Again In Dallas, Kid Cudi & Erykah Badu Perform](https://www.hotnewhiphop.com/1016129-kanye-west-kid-cudi-erykah-badu-dallas-concert) - Hotnewhiphop
+- [Ye claims most attended U.S. rap concert record after packing AT&T Stadium](https://rollingout.com/2026/11/08/ye-attended-u-s-rap-concert-att-stadium) - Rollingout
+- [Kanye West breaks his own attendance record inside AT&T Stadium](https://www.mysanantonio.com/entertainment/article/kanye-west-texas-concert-arlington-dallas-kid-cudi-22519749.php) - Mysanantonio
+- [Der Song zum Sonntag: „Trillions“ von DIIV](https://fm4.orf.at/story/song-zum-sonntag-diiv-100/der-song-zum-sonntag-trillions-von-diiv) - Fm4.orf.at
+- [DIIV release new single and announce 2027 world tour](https://www.pastemagazine.com/music/diiv/diiv-release-new-single-and-announce-2027-world-tour) - Pastemagazine
+- [DIIV teams up with A.G. Cook on album ‘ZIRP!’  \| The Daily Campus](https://dailycampus.com/2026/11/03/diiv-teams-up-with-a-g-cook-on-album-zirp) - Dailycampus
+- [DIIV - ZIRP! \| Reviews \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/reviews/diiv-zirp) - Clashmusic
+- [DIIV: ZIRP! Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/diiv-zirp) - Pitchfork
+- [DIIV Talks 'ZIRP!', Rebuilding & 'Cowardice' of Apolitical Artists](https://www.billboard.com/music/rock/diiv-zirp-interview-1236370691) - Billboard
+- [DIIV mean business](https://www.pastemagazine.com/music/diiv/diiv-interview-october-2026) - Pastemagazine
+- [Robbie Williams 'throws shade' at Olivia Rodrigo as fans claim her Christmas single echoes his hit](https://www.dailymail.com/tvshowbiz/article-16276461/Robbie-Williams-throws-shade-Olivia-Rodrigo-fans-claim-Christmas-single-echoes-hit.html) - Dailymail.com
+- [Robbie Williams praises Olivia Rodrigo amid Christmas single drama \| The Independent](https://www.independent.co.uk/bulletin/culture/olivia-rodrigo-take-me-home-robbie-williams-b3081718.html) - Independent
+- [Robbie Williams appears to nod at Olivia Rodrigo’s new Christmas song](https://www.thenews.com.pk/latest/1422878-robbie-williams-appears-to-nod-at-olivia-rodrigos-new-christmas-song) - Thenews
+- [Robbie Williams accused of 'throwing shade' at Olivia Rodrigo as fans say her Xmas song sounds VERY similar to his hit](https://www.thesun.co.uk/tvandshowbiz/40958111/robbie-williams-shades-olivia-rodrigo-after-song-comparison) - Thesun
+- [Robbie Williams appears to throw some serious shade at Olivia Rodrigo](https://metro.co.uk/2026/11/07/robbie-williams-appears-throw-serious-shade-olivia-rodrigo-29773725) - Metro
+- [„Dream Fatigue“ von Rex Orange County](https://fm4.orf.at/story/RexOrangeCountyDreamFatigue100/dream-fatigue-von-rex-orange-county) - Fm4.orf.at
+- [Rex Orange County Streaming New Album 'Dream Fatigue' ::antiMusic.com](https://www.antimusic.com/p/26/p1108rex_orange_county_streaming_new_album_dream_fatigue.shtml) - Antimusic
+- [Rex Orange County Releases New Album 'Dream Fatigue' \| News \| Clash Magazine Music News, Reviews & Interviews](https://www.clashmusic.com/news/rex-orange-county-releases-new-album-dream-fatigue) - Clashmusic
+- [Rex Orange County's 'Dream Fatigue' Arrives November 6 With Daniel Caesar and Brendan Yates](https://www.musictimes.com/articles/113213/20261106/rex-orange-countys-dream-fatigue-arrives-november-6-daniel-caesar-brendan-yates.htm) - Musictimes
