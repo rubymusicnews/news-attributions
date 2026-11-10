@@ -1,0 +1,72 @@
+# Sources for 2026-11-10 News Episode 
+- [Paul McCartney and Ringo Starr Set for Rare Reunion in January](https://consequence.net/2026/11/paul-mccartney-ringo-starr-reunion/) - Consequence.net
+- [Paul McCartney and Ringo Starr Reuniting for Joe Walsh's VetsAid](https://consequence.net/2026/11/paul-mccartney-ringo-starr-reunion) - Consequence
+- [Paul McCartney and Ringo Starr Reuniting for Joe Walsh’s VetsAid 2027](https://therockrevival.com/rock-news/paul-mccartney-and-ringo-starr-reuniting-for-joe-walsh-vetsaid-2027) - Therockrevival
+- [Paul McCartney and Ringo Starr to Reunite at Vegas Show in 2027](https://www.rollingstone.com/music/music-news/paul-mccartney-ringo-starr-vegas-2027-reunion-1235654889) - Rollingstone
+- [Paul McCartney and Ringo Starr to Come Together for Joe Walsh's VetsAid Benefit (The Killers, The War on Drugs, St. Vincent and Lucius Will Be There Too)](https://relix.com/news/detail/paul-mccartney-and-ringo-starr-to-come-together-for-joe-walshs-vetsaid-benefit-the-killers-the-war-on-drugs-st-vincent-and-lucius-will-be-there-too) - Relix
+- [Paul McCartney and Ringo Starr to join Joe Walsh at VetsAid benefit show](https://theneedledrop.com/news/paul-mccartney-and-ringo-starr-to-join-joe-walsh-at-vetsaid-benefit-show) - Theneedledrop
+- [Phil Collins Contemplating Possible Comeback Tour: ‘I Never Say Exactly Never’](http://www.rollingstone.com/music/music-news/phil-collins-contemplating-comeback-tour-1235654574/) - Rolling Stone
+- [Phil Collins Says He Still Thinks About Touring Again - AXS TV](https://axs.tv/news-story/phil-collins-hints-he-may-tour-again-but-says-money-is-the-real-obstacle) - Axs
+- [Phil Collins Contemplating Possible Comeback Tour: ‘I Never Say Exactly Never’](https://www.imdb.com/news/ni66102804?ref_=nmnw_art_perm) - Imdb
+- [Phil Collins teases comeback after nearly 5 years: ‘I haven’t finished’ - al.com](https://www.al.com/life/2026/11/rock-legend-teases-comeback-after-nearly-5-years-i-havent-finished.html) - Al
+- [Phil Collins Contemplating Comeback Tour: 'I Never Say Exactly Never'](https://www.rollingstone.com/music/music-news/phil-collins-contemplating-comeback-tour-1235654574) - Rollingstone
+- [Phil Collins teases comeback after nearly 5 years: ‘I haven’t finished’ - syracuse.com](https://www.syracuse.com/entertainment/2026/11/rock-legend-teases-comeback-after-nearly-5-years-i-havent-finished.html) - Syracuse
+- [Stray Kids at London’s Tottenham Hotspur Stadium 2027: dates, presale, ticket prices and guide](https://www.timeout.com/london/news/stray-kids-tottenham-stadium-july-2027-dates-tickets-prices-presale-110926) - Time Out
+- [Stray Kids Announce 2027 Tour: See Dates](https://blog.ticketmaster.com/stray-kids-2027-tour-dates) - Ticketmaster
+- [Stray Kids bring 2027 ‘RUN IT’ World Tour to Tottenham Hotspur Stadium](https://www.famemagazine.co.uk/stray-kids-bring-2027-run-it-world-tour-to-tottenham-hotspur-stadium) - Famemagazine
+- [Apple Music launches ‘Best of 2026’ content, reveals Artist of the Year](https://9to5mac.com/2026/11/09/apple-music-launches-best-of-2026-content-reveals-artist-of-the-year/) - 9to5Mac
+- [Olivia Dean is Apple Music’s Artist of the Year for 2026](https://macdailynews.com/2026/11/09/olivia-dean-is-apple-musics-artist-of-the-year-for-2026/) - Macdailynews.com
+- [Olivia Dean Named Apple Music’s 2026 Artist of the Year](https://www.mactrast.com/2026/11/olivia-dean-named-apple-musics-2026-artist-of-the-year/) - Mactrast.com
+- [Apple Music awards Olivia Dean artist of the year](https://mobilesyrup.com/2026/11/09/apple-music-olivia-dean-artist-of-the-year/) - MobileSyrup
+- [Olivia Dean Named Apple Music Artist of the Year for 2026](https://www.iphoneincanada.ca/2026/11/09/olivia-dean-apple-music-artist-of-the-year-2026/) - iPhone in Canada
+- [Olivia Dean ist Apple Music Artist of the Year 2026](https://www.ifun.de/olivia-dean-ist-apple-music-artist-of-the-year-2026-294571/) - ifun.de › Apple-News seit 2001
+- [Fall Out Boy Announce 2027 Stadium Tour + Drop New Song 'Aces'](https://loudwire.com/fall-out-boy-2027-tour-aces-song/) - Loudwire
+- [Fall Out Boy Announce 2027 World Tour, Share New Single "Aces"](https://exclaim.ca/music/article/fall-out-boy-announce-2027-world-tour-share-new-single-aces) - Exclaim!
+- [Fall Out Boy Announce 2027 Tour With The Offspring and Good Charlotte](https://consequence.net/2026/11/fall-out-boy-2027-tour-the-offspring-good-charlotte/) - Consequence.net
+- [Fall Out Boy Announce 2027 Tour With The Offspring and Good Charlotte](https://consequence.net/2026/11/fall-out-boy-2027-tour-the-offspring-good-charlotte) - Consequence
+- [Fall Out Boy Announce Summer 2027 North American Stadium Tour Dates, Share New Single & Video “Aces” - mxdwn Music](https://music.mxdwn.com/2026/11/09/news/fall-out-boy-announce-summer-2027-north-american-stadium-tour-dates-share-new-single-video-aces) - Mxdwn
+- [Fall Out Boy to Perform at Hersheypark Stadium in Aug. 2027](https://stories.hersheypa.com/fall-out-boy-to-perform-at-hersheypark-stadium-in-aug-2027) - Hersheypa
+- [Fall Out Boy Share Sensational New Track 'ACES', Announce World Tour Dates](https://rocksound.tv/news/fall-out-boy-share-sensational-new-track-aces-announce-world-tour-dates) - Rocksound
+- [Fall Out Boy Announce Biggest Ever World Tour And Return With New Single ‘ACES’ \| Rockshot Magazine](https://rockshotmagazine.com/fall-out-boy-announce-biggest-ever-world-tour-and-return-with-new-single-aces) - Rockshotmagazine
+- [New Order Plot 2027 U.S. Tour](https://pitchfork.com/story/new-order-plot-2027-us-tour/) - Pitchfork
+- [New Order Announce 2027 US Tour Dates](https://consequence.net/2026/11/new-order-2027-us-tour/) - Consequence.net
+- [New Order Announces US Tour Dates for 2027](https://ultimateclassicrock.com/new-order-2027-us-tour-dates) - Ultimateclassicrock
+- [New Order Plot 2027 U.S. Tour \| Pitchfork](https://pitchfork.com/story/new-order-plot-2027-us-tour) - Pitchfork
+- [New Order announce 2027 US tour dates](https://theneedledrop.com/news/new-order-announce-2027-us-tour-dates) - Theneedledrop
+- [New Order Announce New Run of 2027 US Tour Dates](https://consequence.net/2026/11/new-order-2027-us-tour) - Consequence
+- [New Order announces seven US tour dates for March 2027](https://karlobag.eu/en/music/new-order-announces-seven-date-march-2027-us-tour-with-future-islands-and-change-ve7w5) - Karlobag
+- [U2 Recalls 2006 Brazilian Carnival Experience with Music Icon Gilberto Gil That Helped Inspire Carnaval De Luz](https://consequence.net/2026/11/u2-brazil-carnaval-gilberto-gil-carnaval-de-luz/) - Consequence.net
+- [U2's New Album Was Inspired in Part by a 2006 Brazilian Carnival Trip](https://consequence.net/2026/11/u2-brazil-carnaval-gilberto-gil-carnaval-de-luz) - Consequence
+- [The Edge reveals his and Bono’s bizarre first stage names \| GuitarPlayer](https://www.guitarplayer.com/music/the-edge-reveals-the-bizarre-stage-names-he-and-bono-used-before-u2-became-big-we-were-borrowing-a-lot-from-monty-python) - Guitarplayer
+- [Mariah Carey set to headline 2027 music festival](https://www.bbc.co.uk/news/articles/c674p4lynjk1o) - BBC News
+- [Global superstar Mariah Carey to headline 2027 Live at Powderham, near Exeter](https://eastdevonnews.co.uk/2026/11/09/global-superstar-mariah-carey-to-headline-2027-live-at-powderham-near-exeter-tickets) - Eastdevonnews
+- [Devon castle secures global pop icon Mariah Carey for massive summer 2027 show \| Devon Live](https://www.devonlive.com/whats-on/music-nightlife/devon-castle-secures-global-pop-11233759) - Devonlive
+- ["Darius Rucker: They Called Me Hootie" Premieres Monday, Nov. 16, on Hulu and Disney+ in Select Markets Internationally](http://www.thefutoncritic.com/news/2026/11/09/darius-rucker-they-called-me-hootie-premieres-monday-nov-16-on-hulu-and-disneyplus-in-select-markets-internationally-704201/20261109abc01/) - Thefutoncritic.com
+- [Darius Rucker Explores His Rise to Fame and Personal Struggles in New Documentary - Country Now](https://countrynow.com/darius-rucker-explores-his-rise-to-fame-and-personal-struggles-in-new-documentary) - Countrynow
+- [‘They Called Me Hootie’ Documentary Debuts On Hulu Nov. 16.](https://www.countryinsider.com/news/they-called-me-hootie-documentary-debuts-on-hulu-nov-16/article_6ef62bdb-6764-4eb1-9cb3-5813d4ee0431.html) - Countryinsider
+- [Overcompensating Season 2, One Night Only Get Streaming Release Dates](https://www.tvline.com/2311636/overcompensating-season-2-release-date-prime-video-one-night-only-streaming) - Tvline
+- [Darius Rucker in new 'They Called Me Hootie' doc: 'Every time I want to do something, somebody tells me I can't do it' - ABC7 Los Angeles](https://abc7.com/post/darius-rucker-new-called-hootie-doc-every-time-want-do-something-somebody-tells-cant/20027751) - Abc7
+- [Hootie and the Blowfish's Darius Rucker Gets Official Documentary](https://www.rollingstone.com/music/music-news/darius-rucker-documentary-release-date-1235654600) - Rollingstone
+- [Darius Rucker’s ‘They Called Me Hootie’ Documentary](https://www.acrossthecountry.com/country-music-blog/darius-rucker-documentary) - Acrossthecountry
+- [From Tickets to Hotels, Celine Dion’s Paris Residency Brought Big Business to the City](http://www.rollingstone.com/product-recommendations/tickets/celine-dion-paris-concert-show-tickets-hotels-book-online-1235648017/) - Rolling Stone
+- [See Celine Dion in Paris in 2027 with Marriott Bonvoy points - The Points Guy](https://thepointsguy.com/news/celine-dion-paris-marriott-bonvoy-moments) - Thepointsguy
+- [Celine Dion Paris Recap: Themed Hotel Stays, Concert Ticket Packages](https://www.rollingstone.com/product-recommendations/tickets/celine-dion-paris-concert-show-tickets-hotels-book-online-1235648017) - Rollingstone
+- [Celine Dion’s Paris Residency Grosses $125.5M, Sets New Per-Show Record](https://www.ticketnews.com/2026/10/celine-dion-paris-residency-125-million-record) - Ticketnews
+- [From Tickets to Hotels, Celine Dion’s Paris Residency Brought Big Business to the City](https://travel.yahoo.com/hotels/articles/tickets-hotels-celine-dion-paris-210513736.html) - Yahoo
+- [ENTER TO WIN - Trip to See Rush's Opening Night at Sphere!](https://loudwire.com/enter-to-win-rush-sphere-las-vegas-residency-contest/) - Loudwire
+- [Rush announces 5-date residency at Sphere in Las Vegas](https://www.fox5vegas.com/2026/11/05/rush-announces-5-date-residency-sphere-las-vegas) - Fox5vegas
+- [ENTER TO WIN - Trip to See Rush's Opening Night at Sphere!](https://loudwire.com/enter-to-win-rush-sphere-las-vegas-residency-contest) - Loudwire
+- [Rush announces limited residency at Sphere Las Vegas](https://news3lv.com/news/local/rush-limited-residency-sphere-las-vegas-concert-rock-music-geddy-lee-alex-lifeson-music-entertainment) - News3lv
+- [Rush Announces Five-Date “Elevate From The Norm” Residency At Sphere \| Sphere Entertainment Co.](https://www.sphereentertainmentco.com/rush-announces-five-date-elevate-from-the-norm-residency-at-sphere) - Sphereentertainmentco
+- [Rush Announces 5-Date Sphere 'Elevate From The Norm' Vegas Residency May 21-30 - Pollstar News](https://news.pollstar.com/2026/11/05/rush-announces-5-date-sphere-elevate-from-the-norm-vegas-residency-may-21-30) - Pollstar
+- [RUSH ANNOUNCES FIVE-DATE “ELEVATE FROM THE NORM” RESIDENCY AT SPHERE \| Rush.com](https://www.rush.com/rush-announces-five-date-elevate-from-the-norm-residency-at-sphere) - Rush
+- [Kenshi Yonezu’s Lemon hits 1 billion views on YouTube and he’s still not quite sure why](https://soranews24.com/2026/11/09/kenshi-yonezus-lemon-hits-1-billion-views-on-youtube-and-hes-still-not-quite-sure-why/) - SoraNews24
+- [Kenshi Yonezu's "Lemon" MV Surpasses 1 Billion Views, A Historic First for a Japanese Song \| ASCII.jp English Edition](https://ascii.jp/en/elem/000/004/448/4448204) - Ascii
+- [Kenshi Yonezu’s Lemon hits 1 billion views on YouTube and he’s still not quite sure why \| SoraNews24 —Japan News—](https://soranews24.com/2026/11/09/kenshi-yonezus-lemon-hits-1-billion-views-on-youtube-and-hes-still-not-quite-sure-why) - Soranews24
+- [Drummer John Tempesta Parts Ways with The Cult After 20 Years](https://consequence.net/2026/11/drummer-john-tempesta-parts-ways-with-the-cult/) - Consequence.net
+- [John Tempesta Leaves The Cult After 20 Years](https://therockrevival.com/rock-news/john-tempesta-leaves-the-cult-after-20-years) - Therockrevival
+- [Drummer John Tempesta Parts Ways with The Cult After 20 Years](https://consequence.net/2026/11/drummer-john-tempesta-parts-ways-with-the-cult) - Consequence
+- [John Tempesta Leaves The Cult After 20 Years Behind The Kit](https://bluntmag.com.au/news/john-tempesta-leaves-the-cult-after-20-years-behind-the-kit) - Bluntmag
+- [The Cult drummer John Tempesta leaving band ahead of new tour dates with A Perfect Circle - syracuse.com](https://www.syracuse.com/entertainment/2026/11/80s-rock-band-member-exits-lineup-ahead-of-new-tour-dates.html) - Syracuse
+- [The 11 Best Solo Albums by Prog Rock Legends](https://loudwire.com/best-prog-rock-solo-albums/) - Loudwire
+- [The 11 Best Solo Albums by Prog Rock Legends](https://loudwire.com/best-prog-rock-solo-albums) - Loudwire
