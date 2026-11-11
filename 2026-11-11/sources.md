@@ -1,0 +1,77 @@
+# Sources for 2026-11-11 News Episode 
+- [Dua Lipa Settles ‘Levitating’ Lawsuit With Talk Box Musician](http://www.rollingstone.com/music/music-news/dua-lipa-settles-levitating-lawsuit-bosko-kante-1235655179/) - Rolling Stone
+- [Dua Lipa Settles Last 'Levitating' Copyright Lawsuit \| Law Commentary](https://www.lawcommentary.com/articles/dua-lipa-levitating-copyright-lawsuit-settlement) - Lawcommentary
+- [Singer Dua Lipa settles lawsuit over Levitating — Rolling Stone](https://ua.news/en/dovkolo-svitu/spivachka-dua-lipa-vreguliuvala-pozov-shchodo-levitating-rolling-stone) - Ua
+- [Dua Lipa Settles 'Levitating' Lawsuit With Musician Bosko Kante](https://www.rollingstone.com/music/music-news/dua-lipa-settles-levitating-lawsuit-bosko-kante-1235655179) - Rollingstone
+- [Dua Lipa Settles ‘Levitating’ Copyright Suit After Others Tossed](https://news.bloomberglaw.com/ip-law/dua-lipa-settles-levitating-copyright-suit-after-others-tossed) - Bloomberglaw
+- [Billy Joel to Perform After Doctors Told Him to Stay Off Stage Due to Brain Disorder](https://extratv.com/2026/11/10/billy-joel-to-perform-after-doctors-told-him-to-stay-off-stage-due-to-brain-disorder/) - Extra
+- [Billy Joel announces return to stage after doctors told him he can’t perform anymore](https://pagesix.com/2026/11/09/celebrity-news/billy-joel-announces-return-to-stage-after-doctors-told-him-he-cant-perform-anymore/) - Page Six
+- [Billy Joel Makes Epic Return While Battling Brain Disorder](https://dailycaller.com/2026/11/10/billy-joel-evening-of-questions-answers-return-florida-atlantic-university-brain-disorder-surgery-normal-pressure-hydrocephalus-nph) - The Daily Caller
+- [Billy Joel FAU: Singer announces show at Florida Atlantic University - ABC7 New York](https://abc7ny.com/post/billy-joel-fau-singer-announces-show-florida-atlantic-university/20028526) - Abc7ny
+- [Billy Joel announces return to stage after doctors told him he can’t perform anymore](https://pagesix.com/2026/11/09/celebrity-news/billy-joel-announces-return-to-stage-after-doctors-told-him-he-cant-perform-anymore) - Pagesix
+- [Billy Joel Announces First Official Show Since Brain Disorder Diagnosis—but Tickets Are Only for FAU Students](https://www.yahoo.com/entertainment/music/concerts/articles/billy-joel-announces-first-official-200057463.html) - Yahoo
+- [Billy Joel Announces Stage Return Amid Brain Disorder Battle](https://www.usmagazine.com/entertainment/news/billy-joel-announces-stage-return-amid-brain-disorder-battle) - Usmagazine
+- [Billy Joel announces first show since health diagnosis in 2025](https://faroutmagazine.co.uk/billy-joel-first-show-since-brain-disorder-diagnosis-in-2025) - Faroutmagazine
+- [Teilz Has Lived Many Lives, But Her Pop Moment Is Just Beginning](http://www.rollingstone.com/music/music-features/teilz-come-to-mommy-love-heartbreak-interview-1235652666/) - Rolling Stone
+- [Hit the Decks! It's LA DJ and Producer Teilz](https://www.musicconnection.com/hit-the-decks-its-teilz) - Musicconnection
+- [Teilz: Pop Artist Talks New Album 'Come to Mommy,' Love, Heartbreak](https://www.rollingstone.com/music/music-features/teilz-come-to-mommy-love-heartbreak-interview-1235652666) - Rollingstone
+- [DJ Allie Teilz on Motherhood and 'Come to Mommy' - Motherly](https://mother.ly/life/allie-teilz-come-to-mommy-interview) - Mother
+- [Musician Allie Teilz says becoming a mom made her “bigger, not smaller” - Yahoo News Singapore](https://sg.news.yahoo.com/dj-allie-teilz-says-becoming-185414169.html) - Yahoo
+- [DJ and Ibiza icon Carl Cox receives an OBE from Prince William for services to music](https://www.dailymail.com/tvshowbiz/article-16281471/DJ-Ibiza-Carl-Cox-receives-OBE-Prince-William-music.html) - Dailymail.com
+- [Carl Cox has been awarded an OBE - Mixmag.net](https://mixmag.net/read/carl-cox-has-been-awarded-an-obe-news) - Mixmag
+- [Prince William Presented Carl Cox With His OBE](https://www.billboard.com/music/awards/carl-cox-presented-obe-prince-william-1236379201) - Billboard
+- [Carl Cox receives OBE from Prince William at Windsor Castle](https://www.music-news.com/news/UK/192193/Carl-Cox-receives-OBE-from-Prince-William-at-Windsor-Castle) - Music-news
+- [Carl Cox receives his OBE from Prince William](https://www.mixtapemadness.com/blog/news/carl-cox-receives-his-obe-from-prince-william) - Mixtapemadness
+- [Carl Cox Receives OBE from Prince William at Windsor Castle](https://www.diariodeibiza.com/news/carl-cox-obe-prince-william-windsor-castle-ibiza) - Diariodeibiza
+- [Fear Factory Announce New Album, Unleash Single “Detonizer”: Stream](https://consequence.net/2026/11/fear-factory-new-album-single-detonizer/) - Consequence.net
+- [Fear Factory Announces New Album "Roboticist"; Shares New Music Video "Detonizer"](http://www.metalunderground.com/news/details.cfm?newsid=162455) - Metalunderground.com
+- [Fear Factory announce new album 'Roboticist' and share latest single "Detonizer" - Lambgoat](https://lambgoat.com/news/55805/fear-factory-announce-new-album-roboticist-and-share-latest-single-detonizer) - Lambgoat
+- [Fear Factory Announce 'Roboticist' Album, Release "Detonizer" Video](https://themosh.net/fear-factory-roboticist-album-detonizer-video) - Themosh
+- [Fear Factory Announce New Album, Unleash Single "Detonizer"](https://consequence.net/2026/11/fear-factory-new-album-single-detonizer) - Consequence
+- [Dragonforce Unveils New Music Video "Neverending Nightmare"](http://www.metalunderground.com/news/details.cfm?newsid=162456) - Metalunderground.com
+- [DRAGONFORCE Release Official Music Video For Second Single “Neverending Nightmare” Self-Titled Tenth Studio Album DragonForce out on March 19, 2027 First Album with Alissa White-Gluz on Vocals](https://metalontap.com/dragonforce-release-official-music-video-for-second-single-neverending-nightmare-self-titled-tenth-studio-album-dragonforce-out-on-march-19-2027-first-album-with-alissa-white-gluz) - Metalontap
+- [DRAGONFORCE Share Music Video For New Single “Neverending Nightmare” From Upcoming Self-Titled Album](https://www.sonicperspectives.com/news/dragonforce-share-music-video-for-new-single-neverending-nightmare-from-upcoming-self-titled-album) - Sonicperspectives
+- [DragonForce Release 'Neverending Nightmare' Video With Alissa White-Gluz Ahead of 2027 Album](https://www.rockumweb.com/reportes/2748/dragonforce-release-neverending-nightmare-video-with-alissa-white-gluz-ahead-of-2027-album) - Rockumweb
+- [DragonForce Unveil Dramatic New Single & Video “Neverending Nightmare” - mxdwn Music](https://music.mxdwn.com/2026/11/10/news/dragonforce-unveil-dramatic-new-single-video-neverending-nightmare) - Mxdwn
+- [Big Drops: New Metal Songs From Fear Factory, Clutch](https://loadedradio.com/big-drops-new-metal-songs-november-10-2026) - Loadedradio
+- [Meridian Veil (Cryptopsy/The Agonist etc.) Reveals Debut Album Details; Shares New Music Video "The Watcher"](http://www.metalunderground.com/news/details.cfm?newsid=162461) - Metalunderground.com
+- [Meridian Veil Reveal Debut Album Forgotten Sun](https://bluntmag.com.au/news/meridian-veil-unleash-ai-cautionary-tale-on-debut-album-forgotten-sun) - Bluntmag
+- [MERIDIAN VEIL Release New Single and Music Video “The Watcher” – R   o   c   k    'N'    L   o   a  d](https://rocknloadmag.com/meridian-veil-release-new-single-and-music-video-the-watcher) - Rocknloadmag
+- [Meridian Veil (Cryptopsy, Ex-The Agonist, Etc.) Launch Their Debut Single "The Watcher"](https://www.theprp.com/2026/11/10/news/meridian-veil-cryptopsy-ex-the-agonist-etc-launch-their-debut-single-the-watcher) - Theprp
+- [THE AGONIST, CRYPTOPSY, SEVEN SPIRES & LEPROUS Members Join Forces As MERIDIAN VEIL With Upcoming Album "Forgotten Sun"](https://www.sonicperspectives.com/news/the-agonist-cryptopsy-seven-spires-leprous-members-join-forces-as-meridian-veil-with-upcoming-album-forgotten-sun) - Sonicperspectives
+- [King Gizzard & the Lizard Wizard Announce New Album 'Entropy,' Book North American 2027 Tour](https://exclaim.ca/music/article/king-gizzard-and-the-lizard-wizard-announce-new-album-entropy-book-north-american-2027-tour) - Exclaim!
+- [King Gizzard & The Lizard Wizard Announce New Album Entropy and 2027 North American Tour](https://consequence.net/2026/11/king-gizzard-and-the-lizard-wizard-entropy-2027-tours/) - Consequence.net
+- [King Gizzard & The Lizard Wizard announce new LP Entropy - Northern Transmissions](https://northerntransmissions.com/king-gizzard-the-lizard-wizard-announce-new-lp-entropy) - Northerntransmissions
+- [King Gizzard & The Lizard Wizard Announce New Album and Tour, Share New Song “Rogue Wave” \| Under the Radar \| Music Blog for the Indie Music Magazine](https://www.undertheradarmag.com/news/king_gizzard_the_lizard_wizard_announce_new_album_and_tour_share_new_song_rogue_wave) - Undertheradarmag
+- [King Gizzard & The Lizard Wizard Announce New Album Entropy, 2027 North American Tour](https://consequence.net/2026/11/king-gizzard-and-the-lizard-wizard-entropy-2027-tours) - Consequence
+- [King Gizzard Announce "Entropy" and a Massive 2027 North American Tour](https://www.wewriteaboutmusic.com/concerts/king-gizzard-and-the-lizard-wizard-entropy-usa-tour-2027) - Wewriteaboutmusic
+- [King Gizzard Announces New Album 'Entropy' & 2027 North American Tour Dates](https://www.jambase.com/article/king-gizzard-lizard-wizard-tour-dates-2027-new-album-entropy) - Jambase
+- [Palehound Return With First Album in Nearly Four Years](http://www.rollingstone.com/music/music-news/palehound-you-sing-like-youre-joking-new-album-1235653001/) - Rolling Stone
+- [Palehound announces new LP, releases "Natural Disasters"](https://www.pastemagazine.com/music/palehound-announces-new-lp-releases-natural-disasters) - Pastemagazine
+- [Palehound Announces New Album, Shares Video for New Song “Natural Disasters” \| Under the Radar \| Music Blog for the Indie Music Magazine](https://www.undertheradarmag.com/news/palehound_announces_new_album_shares_video_for_new_song_natural_disasters) - Undertheradarmag
+- [Palehound Announce New Album 'You Sing Like You're Joking'](https://www.rollingstone.com/music/music-news/palehound-you-sing-like-youre-joking-new-album-1235653001) - Rollingstone
+- [Palehound Announces New Album You Sing Like You’re Joking \| Pitchfork](https://pitchfork.com/story/palehound-announces-new-album-you-sing-like-youre-joking) - Pitchfork
+- [Palehound have announced their fifth album 'You Sing Like You're Joking' ...](https://www.facebook.com/RollingStone/posts/palehound-have-announced-their-fifth-album-you-sing-like-youre-joking-and-shared/1496411539013574) - Facebook
+- [Mayhem’s Attila Csihar Believes He Has Late Slipknot Drummer Joey Jordison’s Final Recordings](https://consequence.net/2026/11/mayhem-joey-jordisons-final-recordings/) - Consequence.net
+- [Mayhem’s Attila Csihar May Have Joey Jordison’s Final Recording](https://bluntmag.com.au/news/mayhems-attila-csihar-says-he-may-have-joey-jordisons-final-recording) - Bluntmag
+- ["I really miss him." Mayhem Attila Csihar vocalist believes he's in possession of Joey Jordison's final recording \| Louder](https://www.loudersound.com/bands-artists/mayhem-attila-csihar-joey-jordison-final-recording) - Loudersound
+- [Mayhem Singer Believes He Has Joey Jordison's Final Recordings](https://consequence.net/2026/11/mayhem-joey-jordisons-final-recordings) - Consequence
+- [Dirty Projectors Plot 2027 Tour, Drop New Song](https://pitchfork.com/story/dirty-projectors-plot-2027-tour-drop-new-song/) - Pitchfork
+- [Dirty Projectors’ David Longstreth Announces 2027 Solo US Tour, Shares New Song “Jumbotron”: Stream](https://consequence.net/2026/11/dirty-projectors-2027-solo-tour-new-song-jumbotron-stream/) - Consequence.net
+- [Dirty Projectors' David Longstreth Announces 2027 Solo Tour](https://consequence.net/2026/11/dirty-projectors-2027-solo-tour-new-song-jumbotron-stream) - Consequence
+- [Dirty Projectors share first single under new label, announce tour](https://www.pastemagazine.com/music/dirty-projectors-share-first-single-under-new-label-well-tempered-zealot-announce-tour) - Pastemagazine
+- [Dirty Projectors Return With New Single ‘Jumbotron’ And Announce 2027 Tour — Still Listening](https://www.stilllisteningmagazine.com/news/dirty-projectors-return-with-new-single-jumbotron-and-announce-2027-tour) - Stilllisteningmagazine
+- [Photos: Dirty Projectors Share New Single "JUMBOTRON" and Announce Solo Headlining Tour \| BroadwayWorld](https://www.broadwayworld.com/article/Photos-Dirty-Projectors-Share-New-Single-JUMBOTRON-and-Announce-Solo-Headlining-Tour-20261110) - Broadwayworld
+- [Sinkane previews new album He's Gone with Mdou Moctar collaboration, "So It Goes"](https://www.thelineofbestfit.com/news/sinkane-previews-new-album-hes-gone-with-mdou-moctar-collaboration-so-it-goes) - Thelineofbestfit.com
+- [Sinkane to Release Album HE'S GONE Featuring Yo-Yo Ma and Mdou Moctar, Shares Single "So It Goes"](https://www.broadwayworld.com/article/Sinkane-to-Release-Album-HES-GONE-Featuring-Yo-Yo-Ma-and-Mdou-Moctar-Shares-Single-So-It-Goes-20261110) - Broadwayworld
+- [Sinkane Preps 'He's Gone': Hear "So It Goes" (Feat. Mdou Moctar)](https://stereogum.com/2517261/sinkane-hes-gone-so-it-goes-mdou-moctar-album-announce/music) - Stereogum
+- [Sinkane Details New Album ‘He’s Gone’ & Shares ‘So It Goes’ Single With Mdou Moctar](https://www.jambase.com/article/sinkane-hes-gone-new-album-so-it-goes-mdou-moctar-single) - Jambase
+- [Firewind Releases New Music Video "Firegod" From Upcoming Album "Gods, Myths & Titans"](http://www.metalunderground.com/news/details.cfm?newsid=162454) - Metalunderground.com
+- [FIREWIND Unleash New Single And Music Video "Firegod"; New Tour Dates Revealed](https://bravewords.com/news/firewind-unleash-new-single-and-music-video-firegod-new-tour-dates-revealed) - Bravewords
+- [Firewind release “Firegod” video from upcoming LP \| NextMosh](https://nextmosh.com/firewind-release-firegod-video-from-upcoming-album-gods-myths-titans) - Nextmosh
+- [Gods, Myths & Titans From Firewind](https://ramzine.co.uk/news/gods-myths-titans-from-firewind) - Ramzine
+- [AUDIOPOOL Wants to Help Emerging Electronic Artists Get Discovered Before Their Music Is Released](https://www.themusicninja.com/?p=108568) - Themusicninja.com
+- [selected by our community of DJs and fans. Big love to ...](https://www.instagram.com/p/DfZfKxjgLnr) - Instagram
+- [verified emails for labels, curators, radio and DJs, fresh ...](https://www.facebook.com/Demopoolbase/posts/demopool-is-back-we-took-a-break-rethought-everything-and-rebuilt-the-service-fr/1764711448996606) - Facebook
+- [This is your final chance to be heard. Unheard](https://www.instagram.com/reel/DeZLukhhb4g) - Instagram
+- [The best DJ sets start with the right artists in your crates. ...](https://www.instagram.com/p/DfV7-tHDIjR) - Instagram
