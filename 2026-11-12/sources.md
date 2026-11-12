@@ -1,0 +1,77 @@
+# Sources for 2026-11-12 News Episode 
+- [Paul McCartney is worth $1.4 billion. His biggest asset is a $250 million song publisher](https://fortune.com/2026/11/11/paul-mccartney-billionaire-net-worth-mpl-music-publishing/) - Fortune
+- [Paul McCartney ranks third-richest musician with $1.4bn](https://punchng.com/paul-mccartney-ranks-third-richest-musician-with-1-4bn/) - The Punch
+- [Paul McCartney Joins Forbes Billionaire List as the World’s Third-Richest Musician](https://colombiaone.com/2026/11/10/paul-mccartney-billionaire) - Colombiaone
+- [Paul McCartney Officially a Billionaire \| Hypebeast](https://hypebeast.com/2026/11/paul-mccartney-officially-billionaire-third-richest-musician-news) - Hypebeast
+- [Paul McCartney becomes world’s third richest musician, joins billionaire club with $1.4 billion fortune - The Economic Times](https://m.economictimes.com/world/us/paul-mccartney-becomes-worlds-third-richest-musician-joins-billionaire-club-with-1-4-billion-fortune/amp_articleshow/135697812.cms) - Economictimes
+- [Paul McCartney is a billionaire: how he got there](https://www.forbes.com.au/news/billionaires/paul-mccartney-became-worlds-third-richest-musician) - Forbes
+- [Paul McCartney’s music publishing assets anchor $1.4 billion fortune](https://tradersunion.com/news/billionaires/show/4192060-paul-mccartney-music-publishing-fortune) - Tradersunion
+- [Coachella 2027 lineup revealed with Dua Lipa, Tame Impala, SZA and Daddy Yankee](https://www.timeout.com/los-angeles/news/coachella-2027-lineup-revealed-with-dua-lipa-tame-impala-sza-and-daddy-yankee-111126) - Time Out
+- [BLACKPINK’s Jisoo, NCT, And BABYMONSTER Announced For Coachella 2027 Lineup](http://www.soompi.com/article/1885928wpp/blackpinks-jisoo-nct-and-babymonster-announced-for-coachella-2027-lineup) - soompi
+- [Tame Impala, Dua Lipa, SZA Steering Coachella](https://www.spinmagazine.com/2026/11/coachella-lineup/) - Spinmagazine.com
+- [Daddy Yankee, Milo J, and Bad Gyal Lead Coachella 2027’s Latin Contingent](https://consequence.net/2026/11/daddy-yankee-milo-j-bad-gyal-coachella-2027/) - Consequence.net
+- [Coachella 2027 Lineup Takeaways: Madonna’s Special Spot, Indie Surprises, and… No Drake?](http://www.rollingstone.com/music/music-features/coachella-2027-lineup-takeaways-madonna-drake-snub-1235653885/) - Rolling Stone
+- [Florence Road, Jazzy and Obskür for Coachella 2027](https://www.rte.ie/entertainment/2026/1111/1598848-florence-road-jazzy-and-obskur-for-coachella-2027/) - RTE
+- [There Is More Rock Bands Playing Coachella 2027 Than You Think](https://loudwire.com/rock-bands-playing-coachella-2027/) - Loudwire
+- [È ufficiale la reunion dei Maneskin, nella line up del Coachella Festival 227](https://www.ansa.it/sito/notizie/topnews/2026/11/11/e-ufficiale-la-reunion-dei-maneskin-nella-line-up-del-coachella-festival-227_04df9aa0-2ea0-4a90-8712-4695e39246a2.html) - ANSA.it
+- [È ufficiale la reunion dei Maneskin, nella line up del Coachella Festival 227](https://www.ansa.it/sito/notizie/cultura/musica/2026/11/11/e-ufficiale-la-reunion-dei-maneskin-nella-line-up-del-coachella-festival-227_d0f4f327-61a6-4ae8-9cf3-3224a65ae4ad.html) - ANSA.it
+- [Måneskin to play Coachella festival in 2027](https://italien.news/en/panorama/maneskin-coachella-2027-performances) - Italien
+- [Maneskin tornano insieme, la reunion al Coachella 2027](https://www.lospecialegiornale.it/2026/11/11/maneskin-tornano-insieme-la-reunion-al-coachella-2027) - Lospecialegiornale
+- [Maneskin: reunion ufficiale al Coachella 2027 dopo i percorsi ...](https://it.blastingnews.com/cultura-spettacoli/2026/11/maneskin-reunion-ufficiale-al-coachella-2027-dopo-i-percorsi-solisti-004203759.html) - Blastingnews
+- [The 2027 Coachella lineup is here: Dua Lipa, Tame Impala and SZA to headline - ABC News](https://abcnews.com/Entertainment/wireStory/2027-coachella-lineup-dua-lipa-tame-impala-sza-138047338) - Abcnews
+- [Måneskin comeback is official!!! ❤️⭐️ Coachella ...](https://www.instagram.com/p/DfmZ1MBjhwB) - Instagram
+- [Maneskin @ Coachella 2027](https://www.reddit.com/r/Maneskin/comments/1xtagm0/maneskin_coachella_2027) - Reddit
+- [10 Years Ago Beyoncé and the Chicks Performed at the CMA Awards. It’s Still Making Waves](http://www.rollingstone.com/music/music-features/beyonce-the-chicks-cma-awards-performance-1235654911/) - Rolling Stone
+- [Beyonce and the Chicks' 2016 CMA Awards Performance: Lasting Impact](https://www.rollingstone.com/music/music-features/beyonce-the-chicks-cma-awards-performance-1235654911) - Rollingstone
+- [10 Years Ago, Beyoncé and the Chicks Performed at the CMA Awards. It’s Still Making Waves](https://www.yahoo.com/entertainment/music/articles/10-years-ago-beyonc-chicks-172910635.html) - Yahoo
+- [Armand Hammer Surprise-Release New Album, Snakes & Ladders](https://pitchfork.com/story/armand-hammer-surprise-release-new-album-snakes-and-ladders/) - Pitchfork
+- [Armand Hammer Surprise-Release New Album, Snakes & Ladders \| Pitchfork](https://pitchfork.com/story/armand-hammer-surprise-release-new-album-snakes-and-ladders) - Pitchfork
+- [Armand Hammer surprise drop new LP, Snakes & Ladders](https://www.pastemagazine.com/music/armand-hammer-surprise-drop-new-lp-snakes-ladders) - Pastemagazine
+- [Armand Hammer – Snakes & Ladders](https://www.thehypemagazine.com/2026/11/11/armand-hammer-snakes-ladders) - Thehypemagazine
+- [Armand Hammer Release Surprise Album 'Snakes & Ladders'](https://stereogum.com/2517597/armand-hammer-release-surprise-album-snakes-ladders/music) - Stereogum
+- [Dr. Dre se retrage temporar din muzică, după peste 40 de ani de carieră. Artistul anunță o pauză de până la doi ani](https://www.mediafax.ro/cultura-media/dr-dre-se-retrage-temporar-din-muzica-dupa-peste-40-de-ani-de-cariera-artistul-anunta-o-pauza-de-pana-la-doi-ani-23841274) - Mediafax.ro
+- [Dr. Dre Plans Music Hiatus After 41 Years in the Studio](https://hit-channel.com/dr-dre-music-hiatus-41-years) - Hit-channel
+- [Dr. Dre Says He’s Going ‘Off the Grid’ for a Year or Two After 41 Years in the Studio](https://www.complex.com/music/a/treyalston/dr-dre-music-break-off-grid-listen-laugh) - Complex
+- [Dr. Dre Is Taking His First Break From Music in Over 40 Years - Rolling Stone Canada](https://ca.rollingstone.com/music/dr-dre-taking-break-from-music-two-years) - Rollingstone
+- [TikTok throws SoundOn’s weight behind Daddy Yankee’s new LP](https://musically.com/2026/11/11/tiktok-throws-soundons-weight-behind-daddy-yankees-new-lp/) - Music Ally
+- [TikTok's SoundOn Scores a Major Deal with Daddy Yankee](https://www.digitalmusicnews.com/2026/11/10/tiktok-soundon-deal-daddy-yankee-records) - Digitalmusicnews
+- [TikTok’s SoundOn strikes ‘landmark’ deal to distribute Daddy Yankee’s ‘La Postal’ album, in what it calls its ‘biggest artist partnership to date’ - Music Business Worldwide](https://www.musicbusinessworldwide.com/tiktoks-soundon-strikes-landmark-deal-to-distribute-daddy-yankees-la-postal-album-in-what-it-calls-its-biggest-artist-partnership-to-dat) - Musicbusinessworldwide
+- [Daddy Yankee Returns With New Album La Postal, in Partnership With SoundOn - Newsroom \| TikTok](https://newsroom.tiktok.com/daddy-yankee-returns-with-new-album-la-postal-in-partnership-with-soundon?lang=en) - Tiktok
+- [TikTok throws SoundOn’s weight behind Daddy Yankee’s new LP - Music Ally](https://musically.com/2026/11/11/tiktok-throws-soundons-weight-behind-daddy-yankees-new-lp) - Musically
+- [Oasis snub Rock and Roll Hall of Fame induction ceremony as Liam Gallagher says he's too busy with Christmas and would 'rather stack the dishwasher'](https://www.dailymail.com/tvshowbiz/article-16283803/Oasis-snub-Rock-Roll-Hall-Fame-induction-ceremony-Liam-Gallagher-says-hes-busy-Christmas-stack-dishwasher.html) - Dailymail.com
+- [Sade Are Not Attending Rock & Roll Hall of Fame Induction Ceremony](http://www.rollingstone.com/music/music-news/sade-not-attending-rock-roll-hall-fame-induction-ceremony-1235655607/) - Rolling Stone
+- ['I'd rather stay and stack the dishwasher...' Liam Gallagher confirms Oasis are snubbing Rock and Roll Hall of Fame induction](https://www.contactmusic.com/story/467/3642223/-i-d-rather-stay-and-stack-the-dishwasher-liam-gallagher-confirms-oasis-are-snubbing-rock-and-roll-hall-of-fame-induction) - Contactmusic
+- [Rock and Roll Hall of Fame: 3 artists refusing to attend own induction ceremony - syracuse.com](https://www.syracuse.com/entertainment/2026/11/3-inductees-refusing-to-attend-rock-and-roll-hall-of-fame-ceremony.html) - Syracuse
+- [“I’d rather stay and stack the dishwasher”: Liam Gallagher explains why Oasis won’t be attending their Rock Hall induction](https://guitar.com/news/industry-news/liam-gallagher-oasis-stack-dishwasher-rather-than-attend-rock-and-roll-hall-of-fame-induction) - Guitar
+- ["It's too far to be going for the night. I got sh*t to do, it's Christmas." Liam Gallagher offers an entirely reasonable explanation on why Oasis won't be showing up for their induction into the Rock And Roll Hall of Fame \| Louder](https://www.loudersound.com/bands-artists/liam-gallagher-on-why-oasis-wont-attend-their-induction-into-the-rock-and-roll-hall-of-fame) - Loudersound
+- [プリンスの未公開コンサート・フィルム『Prince: 3121 Las Vegas Concert』　トレーラー映像公開](https://amass.jp/192954/) - Amass.jp
+- ['Prince: 3121 Las Vegas Concert' coming to theaters in December](https://theneedledrop.com/news/prince-3121-las-vegas-concert-coming-to-theaters-in-december) - Theneedledrop
+- [Prince '3121 Las Vegas Live' trailer, ticket details available - The Music Universe](https://themusicuniverse.com/prince-3121-las-vegas-live-trailer-ticket-details-available) - Themusicuniverse
+- [See the Trailer for ‘Prince: 3121 Las Vegas Live’](https://www.today.com/video/prince-concert-film-to-hit-theaters-in-december-273329221507) - Today
+- [Prince's Legendary 2007 Las Vegas Concert Is Finally Coming to Theaters](https://www.complex.com/music/a/bernadette-giacomazzo/prince-2007-concert-theater-release) - Complex
+- [Prince’s 2006 album 3121 gets expanded edition treatment](https://www.classicpopmag.com/news/princes-2006-album-3121-gets-expanded-edition-treatment) - Classicpopmag
+- [Prince’s 3121 Gets Expanded Edition, Live Album, and Concert Film for 20th Anniversary](https://consequence.net/2026/10/prince-3121-expanded-edition-live-album-concert-film) - Consequence
+- [Frontiers Label Group founder Serafino Perugino on 30 years of independence – and taking Megadeth to the top](https://musically.com/2026/11/11/frontiers-label-group-founder-serafino-perugino-on-30-years-of-independence-and-taking-megadeth-to-the-top/) - Music Ally
+- [Frontiers Label Group founder Serafino Perugino on 30 years of independence – and taking Megadeth to the top - Music Ally](https://musically.com/2026/11/11/frontiers-label-group-founder-serafino-perugino-on-30-years-of-independence-and-taking-megadeth-to-the-top) - Musically
+- [Frontiers Founder on Megadeth No. 1 and 30 Years](https://www.rocknews.co.uk/frontiers-founder-serafino-perugino-megadeth) - Rocknews
+- [FRONTIERS LABEL GROUP Founder SERAFINO PERUGINO Talks MEGADETH's No. 1 Success And 30 Years Of Independence](https://blabbermouth.net/news/frontiers-label-group-founder-serafino-perugino-talks-megadeths-no-1-success-and-30-years-of-independence) - Blabbermouth
+- [Beyoncé Recreates Sade’s Love Deluxe Album Cover](https://pitchfork.com/story/beyonce-recreates-sades-love-deluxe-album-cover/) - Pitchfork
+- [Beyoncé Recreates Sade’s Love Deluxe Album Cover \| Pitchfork](https://pitchfork.com/story/beyonce-recreates-sades-love-deluxe-album-cover) - Pitchfork
+- [After 30 Years, Angie Martinez Is Finally Releasing Her Unheard Tupac Tapes on Netflix](https://www.whats-on-netflix.com/news/the-tupac-tapes-with-angie-martinez-netflix-podcast/) - What's on Netflix
+- [After 30 Years, Angie Martinez Is Finally Releasing Her Unheard Tupac Tapes on Netflix](https://www.whats-on-netflix.com/news/the-tupac-tapes-with-angie-martinez-netflix-podcast) - Whats-on-netflix
+- [Tupac: Netflix Unveils Trailer for Angie Martinez's Unheard Interview - That Grape Juice](https://thatgrapejuice.net/2026/11/tupac-netflix-unveils-trailer-for-angie-martinezs-unheard-interview) - Thatgrapejuice
+- [Netflix to Release Never-Before-Seen Interview Tupac Shakur Did 30 Years Ago with Angie Martinez - Tuko.co.ke](https://www.tuko.co.ke/world/us/646511-netflix-release-interview-tupac-shakur-30-years-angie-martinez) - Tuko
+- [Angie Martinez partners with Netflix to release Tupac interview](https://hip-hopvibe.com/news/angie-martinez-tupac-interview-netflix) - Hip-hopvibe
+- [The Tupac Tapes: Angie Martinez Reveals Why She Never Aired Her Full Tupac Interview - Netflix Tudum](https://www.netflix.com/tudum/articles/the-tupac-tapes-with-angie-martinez-interview) - Netflix
+- [The Tupac Tapes: Netflix Sets Angie Martinez Series, Nov 27 \| Kazi Magazine](https://kazimagazine.com/news/the-tupac-tapes-angie-martinez-netflix) - Kazimagazine
+- [Summer Walker’s Label LVRN Fires Back With Breach of Contract Counterclaim](http://www.rollingstone.com/music/music-news/summer-walker-label-lvrn-breach-of-contract-interscope-1235656161/) - Rolling Stone
+- [Summer Walker’s Label Fires Back With Breach of Contract Counterclaim](https://www.rollingstone.com/music/music-news/summer-walker-label-lvrn-breach-of-contract-interscope-1235656161) - Rollingstone
+- [Summer Walker's label LVRN fires back in contract fight](https://ashik.fm/stories/summer-walker-s-label-lvrn-fires-back-in-contract-fight-c0864d) - Ashik
+- [Summer Walker Sued LVRN for Fraud - ITSBIZKIT](https://www.itsbizkit.com/summer-walker-sued-lvrn-for-fraud-now-lvrn-is-coming-for-her-tour-money-and-royalties) - Itsbizkit
+- [Summer Walker sued by label for $50 million over contract dispute](https://www.pastemagazine.com/music/summer-walker/summer-walker-sued-by-label-for-50-million-over-contract-dispute) - Pastemagazine
+- [Summer Walker Claims Label LVRN 'Fraudulently' Hid YouTube, Amazon Cash](https://www.rollingstone.com/music/music-news/summer-walker-love-renaissance-interscope-youtube-amazon-1235642163) - Rollingstone
+- [Apple Music debuts Labrinth’s new single, created live on the touchscreen MacBook Pro](https://9to5mac.com/2026/11/10/apple-music-debuts-labrinths-new-single-created-live-on-the-touchscreen-macbook-pro/) - 9to5Mac
+- [Labrinth Releases “Surrender” After Creating It Live on a Touchscreen MacBook Pro - AppleMagazine](https://applemagazine.com/labrinth-surrender-touchscreen-macbook-pro) - Applemagazine
+- [Labrinth releases new single ‘Surrender’ created live on Apple’s touchscreen MacBook Pro - RouteNote - Radar](https://routenote.com/radar/labrinth-releases-new-single-surrender-created-live-on-apples-touchscreen-macbook-pro) - Routenote
+- [Apple Music releases Labrinth single created live on touchscreen MacBook Pro \| LavX News](https://news.lavx.hu/article/apple-music-releases-labrinth-single-created-live-on-touchscreen-macbook-pro) - Lavx
+- [Livestream: Watch Labrinth create a song from scratch tonight using Apple’s new MacBook Pro - 9to5Mac](https://9to5mac.com/2026/11/04/livestream-watch-labrinth-create-a-song-from-scratch-tonight-using-apples-new-macbook-pro) - 9to5mac
