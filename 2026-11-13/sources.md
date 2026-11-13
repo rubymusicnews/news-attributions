@@ -1,0 +1,84 @@
+# Sources for 2026-11-13 News Episode 
+- [Eminem’s Debut Album Infinite Gets 30th Anniversary Reissue EP: Stream](https://consequence.net/2026/11/eminem-infinite-ep-30th-anniversary/) - Consequence.net
+- [Eminem - Infinite EP](https://www.thehypemagazine.com/2026/11/12/eminem-infinite-ep) - Thehypemagazine
+- [Eminem's Debut Album Infinite Gets 30th Anniversary Reissue EP: Stream](https://consequence.net/2026/11/eminem-infinite-ep-30th-anniversary) - Consequence
+- [Eminem celebrates ‘Infinite EP’ with 30th anniversary release](https://themusicuniverse.com/eminem-celebrates-infinite-ep-with-30th-anniversary-release) - Themusicuniverse
+- [Eminem's 'Infinite' EP on Streaming Services as Debut Album Turns 30](https://www.billboard.com/music/rb-hip-hop/eminem-infinite-ep-streaming-minidocumentary-turns-30-1236380219) - Billboard
+- [Eminem's 'Infinite' Re-Released as EP for 30th Anniversary](https://www.rollingstone.com/music/music-news/eminem-infinite-ep-30th-anniversary-1235656552) - Rollingstone
+- [J Balvin, Feid, and LL Cool J Lead Star-Studded Tribute to Daddy Yankee at Person of the Year Gala](https://consequence.net/2026/11/j-balvin-ll-cool-j-daddy-yankee-tribute/) - Consequence.net
+- [Daddy Yankee Named Person of the Year at Latin Grammy Gala](https://kazimagazine.com/news/daddy-yankee-latin-recording-academy-person-of-the-year-gala) - Kazimagazine
+- [Daddy Yankee, Karol G and Rosalía Lead 5 Must-Watch Moments at the 2026 Latin GRAMMYs \| LaMezcla](https://lamezcla.com/daddy-yankee-karol-g-and-rosalia-lead-5-must-watch-moments-at-the-2026-latin-grammys) - Lamezcla
+- [Janet Jackson Surprises Daddy Yankee at the 2026 Latin Grammys](https://www.billboard.com/music/awards/daddy-yankee-janet-jackson-latin-grammys-2026-poty-1236381424) - Billboard
+- [J Balvin, Feid, and LL Cool J Lead Star-Studded Tribute to Daddy Yankee](https://consequence.net/2026/11/j-balvin-ll-cool-j-daddy-yankee-tribute) - Consequence
+- [CL Signs With THEBLACKLABEL; To Release New Music In November](http://www.soompi.com/article/1886533wpp/cl-signs-with-theblacklabel-to-release-new-music-in-november) - soompi
+- [CL Signs With THEBLACKLABEL, Joining Longtime Producer Teddy](https://www.billboard.com/business/record-labels/cl-theblacklabel-label-deal-teddy-interview-1236380595) - Billboard
+- [CL THEBLACKLABEL — Former 2NE1 Leader Signs Exclusive Contract](https://en.koreadaily.com/cl-theblacklabel-exclusive-contract) - Koreadaily
+- [2NE1's CL Signs With Teddy's The Black Label, Joining Park Bo Gum & Im Si Wan](https://news.mydramalist.com/article/27846-cl-signs-with-the-black-label) - Mydramalist
+- [CL Signs With THEBLACKLABEL; To Release New Music In November](https://www.soompi.com/article/1886533wpp/cl-signs-with-theblacklabel-to-release-new-music-in-november) - Soompi
+- [CL Signs With THEBLACKLABEL, Prepares November Release](https://www.radarkpop.com/news/k-pop/cl-signs-with-theblacklabel-prepares-november-release/1471) - Radarkpop
+- [Phoebe Bridgers Announces 2027 “The Lost Tour” North American Dates](https://consequence.net/2026/11/phoebe-bridgers-the-lost-tour-2027-dates/) - Consequence.net
+- [Phoebe Bridgers Extends Lost Tour into 2027](https://exclaim.ca/music/article/phoebe-bridgers-extends-lost-tour-into-2027) - Exclaim!
+- [Phoebe Bridgers Announces 2027 North American Tour Dates](https://consequence.net/2026/11/phoebe-bridgers-the-lost-tour-2027-dates) - Consequence
+- [Phoebe Bridgers Announces 2027 Dates for “The Lost Tour” – Pittsburgh Music Magazine](https://pittsburghmusicmagazine.net/2026/11/12/phoebe-bridgers-announces-2027-dates-for-the-lost-tour) - Pittsburghmusicmagazine
+- [Phoebe Bridgers Extends 'Lost Tour' With 25 Added North American Shows](https://variety.com/2026/music/news/phoebe-bridgers-extends-lost-tour-north-america-2027-1236946343) - Variety
+- [Phoebe Bridgers 2027 Tour Dates, Presales and Tickets](https://www.ticketnews.com/2026/11/phoebe-bridgers-2027-lost-tour-dates-presales) - Ticketnews
+- [Phoebe Bridgers Tour 2027: Presale Code, Ticket Prices, Waitlist & How It All Works](https://www.grimygoods.com/2026/11/12/phoebe-bridgers-tour-2027-presale-code-ticket-prices-waitlist) - Grimygoods
+- [Phoebe Bridgers bringing 'Lost Weekend' tour to Portland in February](https://katu.com/news/entertainment/phoebe-bridgers-bringing-lost-weekend-tour-to-portland-in-february-17-grouper-moda-center-oregon-dates-performance-live) - Katu
+- [Deftones Plot 2027 North American Tour](https://pitchfork.com/story/deftones-plot-2027-north-american-tour/) - Pitchfork
+- [Deftones Schedule 2027 North American Tour](https://exclaim.ca/music/article/deftones-schedule-2027-north-american-tour) - Exclaim!
+- [Deftones Announce 2027 North American Tour With Knocked Loose](https://loudwire.com/deftones-2027-north-american-tour-knocked-loose/) - Loudwire
+- [Deftones Announce 2027 North American Tour with Knocked Loose](https://consequence.net/2026/11/deftones-2027-north-american-tour-knocked-loose/) - Consequence.net
+- [Deftones announce 2027 North American tour with Knocked Loose and Julie](https://www.yahoo.com/entertainment/music/concerts/articles/deftones-announce-2027-north-american-230415318.html) - Yahoo
+- [Deftones announce 2027 tour with Knocked Loose and Julie \| Louder](https://www.loudersound.com/bands-artists/deftones-announce-2027-north-american-tour-with-knocked-loose-and-julie) - Loudersound
+- [Deftones Announce 2027 North American Tour With Knocked Loose, julie - Pollstar News](https://news.pollstar.com/2026/11/12/deftones-announce-2027-north-american-tour-with-knocked-loose-julie) - Pollstar
+- [Deftones Tour 2027: Dates, Venues, Knocked Loose Support](https://loadedradio.com/deftones-tour-2027-knocked-loose) - Loadedradio
+- [Deftones Schedule 2027 North American Run With Knocked Loose & julie](https://www.jambase.com/article/deftones-tour-2027-north-america-knocked-loose-julie) - Jambase
+- [Deftones Announce 23 Date 2027 North American Tour With Knocked Loose and julie](https://www.rockumweb.com/reportes/2763/deftones-announce-23-date-2027-north-american-tour-with-knocked-loose-and-julie) - Rockumweb
+- [Duran Duran’s Roger Taylor Retires From Drumming](https://www.spinmagazine.com/2026/11/duran-duran-roger-taylor-retirement/) - Spinmagazine.com
+- [Duran Duran legend Roger Taylor, 77, retires from band amid declining health](https://pagesix.com/2026/11/12/entertainment/duran-duran-legend-roger-taylor-77-retires-from-band-amid-declining-health/) - Page Six
+- [Duran Duran announce lineup change](https://chaoszine.net/duran-duran-announce-lineup-change) - Chaoszine
+- [Duran Duran's Roger Taylor steps down, retires from playing drums - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-11-12/duran-duran-roger-taylor-retires-band-playing-drums) - Latimes
+- [Duran Duran’s Roger Taylor Retires Amid ‘Worsening’ Tinnitus \| HuffPost Entertainment](https://www.huffpost.com/entry/duran-duran-roger-taylor-retirement-tinnitus-diagnosis_n_6af635fae4b0914f133e30a4) - Huffpost
+- [Duran Duran Drummer Roger Taylor Announces Retirement Due to Tinnitus](https://www.rollingstone.com/music/music-news/duran-duran-drummer-roger-taylor-retirement-tinnitus-1235656532) - Rollingstone
+- [Duran Duran Drummer Roger Taylor Stepping Down From Band Due to Tinnitus](https://www.billboard.com/music/pop/duran-duran-drummer-roger-taylor-retiring-band-drumming-tinnitus-1236380368) - Billboard
+- [Kim Gordon on Her Signature Fender Guitar: ‘It’s Just a Very Meaty Sound’](http://www.rollingstone.com/product-recommendations/lifestyle/kim-gordon-fender-signature-jazzmaster-guitar-interview-1235656111/) - Rolling Stone
+- [Fender and Kim Gordon Introduce Signature Jazzmaster - Premier Guitar](https://www.premierguitar.com/news/fender-and-kim-gordon-introduce-signature-jazzmaster) - Premierguitar
+- [Kim Gordon on Her Signature Fender Guitar: ‘It’s Just a Very Meaty Sound’](https://www.rollingstone.com/product-recommendations/lifestyle/kim-gordon-fender-signature-jazzmaster-guitar-interview-1235656111) - Rollingstone
+- [How Alan Walker has remained India’s most-loved EDM act for over a decade](https://musically.com/2026/11/12/how-alan-walker-has-remained-indias-most-loved-edm-act-for-over-a-decade/) - Music Ally
+- [Alan Walker to return to India in March 2027 with six-city 'World of Walker' tour](https://www.firstpost.com/lifestyle/alan-walker-to-return-to-india-in-march-2027-with-six-city-world-of-walker-tour-14057330.html) - Firstpost
+- [Alan Walker India Tour 2027: DJ Returns to 6 Cities \| Concert Dates \| t2ONLINE](https://t2online.in/music/western/alan-walker-to-make-india-comeback-with-six-city-concert-tour-in-march/2008989) - T2online
+- [Alan Walker to Bring ‘World of Walker Season 2: Legend of Atlantis’ Tour to Six Indian Cities in 2027](https://in.eventfaqs.com/2026/11/02/alan-walker-to-bring-world-of-walker-season-2-legend-of-atlantis-tour-to-six-indian-cities-in-2027) - Eventfaqs
+- [How Alan Walker has remained India’s most-loved EDM act for over a decade - Music Ally](https://musically.com/2026/11/12/how-alan-walker-has-remained-indias-most-loved-edm-act-for-over-a-decade) - Musically
+- [Krafton India announces Alan Walker performance at BMIC 2026 in Mumbai: All details - The Times of India](https://timesofindia.indiatimes.com/technology/gaming/krafton-india-announces-alan-walker-performance-at-bmic-2026-in-mumbai-all-details/articleshow/135216133.cms) - Indiatimes
+- [D’ado bigleux à sex symbol queer : “Faith”, ou comment George Michael a conquis le monde](https://www.lesinrocks.com/musique/dado-bigleux-a-sex-symbol-queer-faith-ou-comment-george-michael-a-conquis-le-monde-705593-12-11-2026/) - Les Inrocks
+- [George Michael: The Faith Tour film is now out in cinemas](https://www.hellorayo.co.uk/greatest-hits/entertainment/music/george-michael-faith-tour-film) - Hellorayo
+- [The British are coming: 7 UK bands that blew up in the US](https://www.classical-music.com/rock/british-bands-broke-america) - Classical-music
+- [George Michael's 'The Faith Tour: The Live Album': Find out more](https://www.hellorayo.co.uk/greatest-hits/entertainment/music/george-michael-faith-tour-live-album) - Hellorayo
+- [George Michael: The Faith Tour screens the Paris shows shot on 35mm and never released – Martin Cid Magazine](https://www.martincid.com/movies/george-michael-the-faith-tour) - Martincid
+- [George Michael: The Faith Tour – Film Review – No More Workhorse](https://nomoreworkhorse.com/2026/11/05/george-michael-the-faith-tour-film-review) - Nomoreworkhorse
+- [George Michael: The Faith Tour Review: A Stunning Revival of a Mesmerising Concert Shot on Film - Screen Brief](https://thescreenbrief.com/george-michael-the-faith-tour-review) - Thescreenbrief
+- [Dave Grohl Gets Fan to Eat a Roll of Mentos and Chug a Beer at Foo Fighters Show: Watch](https://consequence.net/2026/11/dave-grohl-fan-mentos-beer-foo-fighters-show/) - Consequence.net
+- [Foo Fighters star Dave Grohl invites Sydney fan backstage after wild Mentos stunt](https://pagesix.com/2026/11/11/entertainment/foo-fighters-star-dave-grohl-invites-sydney-fan-backstage-after-wild-mentos-stunt) - Pagesix
+- [Dave Grohl Dares Fan to Eat Entire Pack of Mentos During Foo Fighters Concert, Then Invites Him Backstage](https://www.wideopencountry.com/dave-grohl-dares-fan-to-eat-entire-pack-of-mentos-during-foo-fighters-concert-then-invites-him-backstage) - Wideopencountry
+- [Dave Grohl Makes a Deal with Foo Fighters Fan: Eat a Pack of Mentos, Get a Beer](https://consequence.net/2026/11/dave-grohl-fan-mentos-beer-foo-fighters-show) - Consequence
+- [What Clown Just Said About Slipknot’s New Album](https://loudwire.com/clown-slipknot-new-album/) - Loudwire
+- [Slipknot’s Clown Teases Longer Songs On New Album](https://bluntmag.com.au/music/slipknot-clown-new-album-longer-songs) - Bluntmag
+- [What Clown Just Said About Slipknot’s New Album](https://loudwire.com/clown-slipknot-new-album) - Loudwire
+- [Slipknot’s Clown Teases New Album Could Be A Double Album](https://themosh.net/slipknot-clown-new-album-double-album) - Themosh
+- [Metal Breakdown Daily: Slipknot, Ministry, Till Lindemann](https://loadedradio.com/metal-breakdown-daily-slipknot-ministry-till-lindemann) - Loadedradio
+- [Clown On Slipknot's New Album: "I Don’t Think People Are Ready For What We’ve Created... Even We Are Saying We’ve Gone To Another Level" - Theprp.com](https://www.theprp.com/2026/11/11/news/clown-on-slipknots-new-album-i-dont-think-people-are-ready-for-what-weve-created-even-we-are-saying-weve-gone-to-another-level) - Theprp
+- [Lionel Richie, 77, declares 'I'm back!' as he returns to the stage after hospitalization sparked show cancellations](https://www.dailymail.com/tvshowbiz/article-16288203/lionel-richie-return-stage-los-angeles.html) - Dailymail.com
+- [Lionel Richie, 77, makes triumphant return to stage after heart procedure and multiple hospitalizations](https://www.hellomagazine.com/us/934756/lionel-richie-77-makes-triumphant-return-to-stage-after-heart-procedure-and-multiple-hospitalizations) - Hellomagazine
+- [Lionel Richie, 77, has two-word message for fans after alarming health scares \| The Independent](https://www.independent.co.uk/bulletin/culture/lionel-richie-health-latest-b3084090.html) - Independent
+- [Lionel Richie Returns to Stage for First Time Since Health Battle, Declares ‘I’m Back!’](https://www.newsbreak.com/just-jared-291401107/5003265046618-lionel-richie-returns-to-stage-for-first-time-since-health-battle-declares-i-m-back) - Newsbreak
+- [Lionel Richie takes stage after successful heart procedure: 'I'm back!'](https://abcnews.com/amp/GMA/Culture/lionel-richie-takes-stage-after-successful-heart-procedure/story?id=138085523) - Abcnews
+- [The Composer Who Makes You Cry](https://www.newyorker.com/newsletter/the-daily/the-composer-who-makes-you-cry) - The New Yorker
+- [Max Richter’s While the Flood Rages \| The Saturday Paper](https://www.thesaturdaypaper.com.au/culture/music/2026/10/24/max-richters-while-flood-rages) - Thesaturdaypaper
+- [The Ubiquitous Melancholy of Max Richter \| The New Yorker](https://www.newyorker.com/magazine/2026/11/16/the-ubiquitous-melancholy-of-max-richter) - Newyorker
+- [Alexisonfire Announce New Album, Unleash Single “Push the River”: Stream](https://consequence.net/2026/11/alexisonfire-new-album-unleash-push-the-river/) - Consequence.net
+- [ALEXISONFIRE announce new album with powerful song "Push the River"](https://www.revolvermag.com/news/alexisonfire-announce-album-with-powerful-new-song-push-the-river) - Revolvermag
+- [Post-hardcore masters Alexisonfire return with new single Push The River and announce first album in five years \| Louder](https://www.loudersound.com/news/alexisonfire-return-push-the-river-single-announce-bleed-it-album-2026) - Loudersound
+- [Alexisonfire announce new album 'Bleed It' - Distorted Sound Magazine](https://distortedsoundmag.com/alexisonfire-announce-new-album-bleed-it) - Distortedsoundmag
+- [Alexisonfire Announce Bleed It and Push The River](https://www.rocknews.co.uk/alexisonfire-bleed-it-push-the-river) - Rocknews
+- [Alexisonfire to release new album, share "Push The River" video](https://www.punknews.org/article/89484/alexisonfire-to-release-new-album-share-push-the-river-video) - Punknews
+- [Alexisonfire debut new single "Push The River," confirm new album 'Bleed It' to arrive in March - Lambgoat](https://lambgoat.com/news/55863/alexisonfire-debut-new-single-push-the-river-confirm-new-album-bleed-it-to-arrive-in-march) - Lambgoat
