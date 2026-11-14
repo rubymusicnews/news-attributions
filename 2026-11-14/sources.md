@@ -1,0 +1,77 @@
+# Sources for 2026-11-14 News Episode 
+- [Rosalía scoops historic third best album award at Latin Grammys](https://www.bbc.co.uk/news/articles/cr3eg97eqde1o) - BBC News
+- [Latin Grammy Awards 2026 Winners: Rosalía Wins Her Third Album Of The Year — Full List](http://deadline.com/2026/11/latin-grammy-awards-2026-winners-full-list-1237222557/) - Deadline
+- [Rosalía’s Angelic White Gown Leads a Wave of Romantic, Ethereal Looks at the 2026 Latin Grammy Awards](http://wwd.com/pop-culture/celebrity-news/latin-grammy-awards-rosalia-white-dress-trend-1239414682/) - WWD
+- [Rosalía Makes Latin Grammys History With Third Album of the Year Win](https://www.complex.com/music/a/jaelaniturnerwilliams/latin-grammys-2026-winners-rosalia-milo-j) - Complex
+- [Rosalía wins Album of the Year at the Latin GRAMMYs](https://www.pastemagazine.com/music/rosalia-wins-album-of-the-year-at-latin-grammys-for-a-record-breaking-third-time) - Pastemagazine
+- [Latin Grammys album of the year - Rosalia emerges as winner](https://www.shelbystar.com/story/entertainment/music/2026/11/13/latin-grammys-2026-album-of-the-year-winner-rosalia/92605306007) - Shelbystar
+- [Rosalía, queen of the Latin Grammys: ‘Lux’ and ‘La Perla’ take home top prizes \| Culture \| EL PAÍS English](https://english.elpais.com/culture/2026-11-13/rosalia-queen-of-the-latin-grammys-lux-and-la-perla-take-home-top-prizes.html) - Elpais
+- [The Weeknd’s ‘Hong Kong’ Song Lyrics & Meaning Explained: Faye Wong’s Cantonese Sample Translated Into English](https://www.justjared.com/2026/11/12/the-weeknd-hong-kong-song-lyrics-meaning-faye-wong-cantonese-english-translation/) - Just Jared
+- [The Weeknd Debuts New Song "Hong Kong" In Hong Kong: Watch](https://stereogum.com/2515570/the-weeknd-debuts-new-song-hong-kong-in-hong-kong/news) - Stereogum
+- [The Weeknd debuts Hong Kong song sampling Faye Wong classic at Kai Tak concert](https://www.thestandard.com.hk/entertainment/article/346407/The-Weeknd-debuts-Hong-Kong-song-sampling-Faye-Wong-classic-at-Kai-Tak-concert) - Thestandard
+- [The Weeknd debuts Hong Kong song with Faye Wong sample \| The Straits Times](https://www.straitstimes.com/life/entertainment/canadian-singer-the-weeknd-debuts-new-song-in-hk-with-tribute-to-mandopop-diva-faye-wongs-classic) - Straitstimes
+- [The Weeknd’s ‘Hong Kong’ Song Lyrics & Meaning Explained: Faye Wong’s Cantonese Sample Translated Into English](https://www.yahoo.com/entertainment/music/new-albums/articles/weeknd-hong-kong-song-lyrics-000217914.html) - Yahoo
+- [The Weeknd's 'Hong Kong' Song Lyrics & Meaning Explained: Faye Wong's Cantonese Sample Translated Into English \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/11/12/the-weeknd-hong-kong-song-lyrics-meaning-faye-wong-cantonese-english-translation) - Justjared
+- [The Weeknd’s ‘Hong Kong’ Song Lyrics & Meaning Explained: Faye Wong’s Cantonese Sample Translated Into English](https://www.imdb.com/fr/news/ni66108859?ref_=tt_nwr_1) - Imdb
+- [Rosalía celebrates a year of Lux with a 1,000-song playlist](https://musically.com/2026/11/13/rosalia-celebrates-a-year-of-lux-with-a-1000-song-playlist/) - Music Ally
+- [Rosalía celebrates one year of ‘Lux’ with 1,000-song playlist and anniversary box set](https://www.nme.com/news/music/rosalia-celebrates-one-year-lux-1000-song-playlist-anniversary-box-set-3975386) - Nme
+- [Rosalía Celebrates Lux Anniversary with 1,000-Song Playlist \| Pitchfork](https://pitchfork.com/story/rosalia-celebrates-lux-anniversary-with-1000-song-playlist) - Pitchfork
+- [Rosalía drops 1,000-song Spotify playlist to celebrate 'LUX' \| Mashable](https://mashable.com/life/rosalia-lux-spotify-playlist) - Mashable
+- [Neues Album nach neun Jahren: U2 machen in einer dunklen Welt das Licht an](https://www.tagesspiegel.de/gesellschaft/dpa-neues-album-nach-neun-jahren-u2-machen-in-einer-dunklen-welt-das-licht-an-16279776.html) - Der Tagesspiegel
+- [Dolly Parton sings about a ‘family at war’ on her final recorded song](https://pagesix.com/2026/11/13/celebrity-news/dolly-parton-sings-about-family-at-war-on-final-recorded-song/) - Page Six
+- [U2: Carnaval De Luz Album Review \| Pitchfork](https://pitchfork.com/reviews/albums/u2-carnaval-de-luz) - Pitchfork
+- [U2 Carnaval de Luz: Release Date, Dolly Parton and Reviews](https://25yearslatersite.com/music/news/u2-s-carnaval-de-luz-arrives-november-13-as-early-reviews-land) - 25yearslatersite
+- [Out Now!
+ – U2.com](https://www.u2.com/blogs/news/out-now-1) - U2
+- [Rock Cellar Magazine - U2 Previews New Album ‘Carnaval De Luz,’ Out Nov. 13; 2027 World Tour Extended (Pre-Order)](https://rockcellarmagazine.com/u2-carnaval-de-luz-new-album-world-tour-2027) - Rockcellarmagazine
+- [U2 - Carnaval De Luz (Island) (13th Floor Album Review)](https://13thfloor.co.nz/u2-carnaval-de-luz-island-13th-floor-album-review) - 13thfloor
+- [U2 to release first new album in nine years, 'Carnaval De Luz' \| Big Country News](https://www.bigcountrynewsconnection.com/u2-to-release-first-new-album-in-nine-years-carnaval-de-luz) - Bigcountrynewsconnection
+- [Taylor Swift Is Campaigning Correctly](http://www.vulture.com/article/taylor-swift-is-campaigning-correctly-in-2027-oscars-run.html) - Vulture
+- [Taylor Swift Is Campaigning Correctly in 2027 Oscars Run](https://www.vulture.com/article/taylor-swift-is-campaigning-correctly-in-2027-oscars-run.html) - Vulture
+- [Taylor Swift Gala Performance Fuels Oscar Buzz](https://www.realitytea.com/2026/10/19/taylor-swift-academy-museum-gala-performance-oscar-voters-goal) - Realitytea
+- [Taylor Swift to Perform at 2026 CMA Awards](https://www.billboard.com/music/awards/taylor-swift-perform-cma-awards-2026-1236381663) - Billboard
+- [Taylor Swift set to return to CMA Awards stage as performer after 13 years](https://www.aninews.in/news/entertainment/hollywood/taylor-swift-set-to-return-to-cma-awards-stage-as-performer-after-13-years20261113223041) - Aninews
+- [Taylor Swift to Perform at CMAs for First Time in 13 Years](https://variety.com/2026/music/news/taylor-swift-to-perform-cma-awards-first-time-13-years-1236946968) - Variety
+- [Bonobo Behind The Campaign – Recap](https://musically.com/2026/11/13/bonobo-behind-the-campaign-recap/) - Music Ally
+- [Behind The Campaign: Bonobo - Music Ally](https://musically.com/2026/11/11/behind-the-campaign-bonobo-2026) - Musically
+- [Bonobo Behind The Campaign - Recap - Music Ally](https://musically.com/2026/11/13/bonobo-behind-the-campaign-recap) - Musically
+- [‘Who’s In The Band?’ Music Competition Series From Richard Bacon, Simon Cowell & Savan Kotecha Lands Greenlight At ABC](http://deadline.com/2026/11/whos-in-the-band-series-richard-bacon-simon-cowell-abc-1237223332/) - Deadline
+- [‘Who’s In The Band?’ Music Competition Series From Richard Bacon, Simon Cowell & Savan Kotecha Lands Greenlight At ABC](https://www.imdb.com/news/ni66110326?ref_=nmnw_art_perm) - Imdb
+- [‘Who’s In The Band?’ Music Competition Series Lands Greenlight At ABC](https://deadline.com/2026/11/whos-in-the-band-series-richard-bacon-simon-cowell-abc-1237223332) - Deadline
+- [ABC Orders ‘Who’s In The Band?’ Music Competition From Richard Bacon, Simon Cowell and Savan Kotecha \| Межа](https://mezha.net/eng/news/mezha-569f1368ab10d8f6e35a9090_abc_orders_-who-s) - Mezha
+- [ABC Greenlights Music Competition Show 'Who’s In The Band?'](https://www.thewrap.com/creative-content/tv-shows/abc-greenlights-music-competition-whos-in-the-band-simon-cowell) - Thewrap
+- [IDK Taps Eminem for J Dilla-Produced New Song “WELCOME”: Stream](https://consequence.net/2026/11/idk-eminem-j-dilla-new-song-welcome/) - Consequence.net
+- [IDK signs to Eminem’s Shady Records and Interscope Records](https://www.thefader.com/2026/11/13/idk-signs-to-eminem-shady-records) - The FADER
+- [IDK Joins Shady Records And Interscope In New Deal](https://www.thehypemagazine.com/2026/11/13/idk-joins-shady-records-interscope) - Thehypemagazine
+- [IDK Announces Partnership With Eminem’s Shady Records and Interscope](https://ratingsgamemusic.com/2026/11/13/idk-shady-records-interscope-eminem-partnership) - Ratingsgamemusic
+- [IDK Signs to Shady Records and Links With Eminem on J Dilla-Produced ‘Welcome’ - The Hip Hop Democrat](https://thehiphopdemocrat.com/2026/11/13/idk-signs-to-shady-records-and-links-with-eminem-on-j-dilla-produced-welcome) - Thehiphopdemocrat
+- [IDK Taps Eminem for J Dilla-Produced New Song "WELCOME": Stream](https://consequence.net/2026/11/idk-eminem-j-dilla-new-song-welcome) - Consequence
+- [Idk Taps Eminem for J Dilla-Produced New Song “Welcome”: Stream](https://www.imdb.com/news/ni66109938?ref_=nm_nwr_2) - Imdb
+- [IDK Releases ‘WELCOME’ With Eminem and J Dilla](https://www.udiscovermusic.com/uncategorized/idk-eminem-j-dilla-welcome) - Udiscovermusic
+- [King Charles to Join Elton John's Apple Music Radio Show](https://www.macrumors.com/2026/11/13/king-charles-to-join-apple-music-radio-show/) - MacRumors
+- [A Meeting of Royals: Elton John Brings King Charles to Apple Music](https://www.hitsdailydouble.com/news/dish-and-chips/a-royal-summit-sir-elton-brings-king-charles-to-apple-music-2026-11-12) - Hitsdailydouble
+- [Elton John’s Apple Music show to feature King Charles in November 14 special - 9to5Mac](https://9to5mac.com/2026/11/12/elton-johns-apple-music-show-to-feature-king-charles-in-november-14-special) - 9to5mac
+- [King Charles Joins Elton John on Rocket Hour for King’s Trust 50th — Noise11 Music News \| News \|](https://www.noise11.com/news/king-charles-elton-john-rocket-hour-20261114) - Noise11
+- [King Charles celebrates 50 years of The King's ​Trust with Elton John on Apple Music](https://macdailynews.com/2026/11/12/king-charles-celebrates-50-years-of-the-kings-trust-with-elton-john-on-apple-music) - Macdailynews
+- [King Charles III to Join Elton John For 'Rocket Hour' Apple Music Special](https://www.billboard.com/music/music-news/king-charles-elton-john-rocket-hour-special-apple-music-1236380210) - Billboard
+- [The King joins Elton John's Rocket Hour on Apple Music \| The Royal Family](https://www.royal.uk/news-and-activity/2026-11-12/the-king-joins-elton-johns-rocket-hour-on-apple-music) - Royal
+- [Celebrated countertenor brings classical sound to today's cultural issues](https://www.pbs.org/newshour/show/celebrated-countertenor-brings-classical-sound-to-todays-cultural-issues) - PBS
+- [Countertenor brings classical sound to today's issues \| PBS News Hour \| THIRTEEN - New York Public Media](https://www.thirteen.org/programs/pbs-newshour/countertenor-1794606477) - Thirteen
+- [Anthony Roth Costanzo's Nonesuch Debut, 'Countertenor,' Out Now \| Nonesuch Records](https://www.nonesuch.com/journal/anthony-roth-costanzo-nonesuch-debut-countertenor-out-now-2026-10-23) - Nonesuch
+- [Kanye West sued by performer who says he faced ‘abusive conditions’ working on rapper’s biblical opera](https://pagesix.com/2026/11/13/entertainment/kanye-west-sued-by-performer-over-abusive-conditions-working-on-rappers-biblical-opera/) - Page Six
+- [Kanye West sued by performer over 'abusive conditions' working on rapper's biblical opera](https://pagesix.com/2026/11/13/entertainment/kanye-west-sued-by-performer-over-abusive-conditions-working-on-rappers-biblical-opera) - Pagesix
+- [Ye Sued by Opera Singer Who Says He Was Locked in Wyoming High School](https://www.rollingstone.com/music/music-news/kanye-west-sued-opera-singer-wyoming-high-school-1235657183) - Rollingstone
+- [Kanye West Accused of Locking Opera Singer in Wyoming Band Room in Explosive New Lawsuit](https://www.cheatsheet.com/news/kanye-west-accused-of-locking-opera-singer-in-wyoming-band-room-in-explosive-new-lawsuit.html) - Cheatsheet
+- [Kanye West Sued Over Alleged Treatment Of Opera Performer](https://okmagazine.com/p/kanye-west-sued-over-alleged-treatment-opera-performer) - Okmagazine
+- [Kevin Rowland of Dexys Midnight Runners](https://www.npr.org/2026/11/13/nx-s1-6036820/kevin-rowland-of-dexys-midnight-runners) - NPR
+- [Dexys Midnight Runners Marry Disparate Cultures on 'LOVE' » PopMatters](https://www.popmatters.com/dexys-midnight-runners-love) - Popmatters
+- [Kevin Rowland of Dexys Midnight Runners](https://maximumfun.org/episodes/bullseye-with-jesse-thorn/kevin-rowland-of-dexys-midnight-runners) - Maximumfun
+- [Review: Dexys Midnight Runners spread the Love at Cambridge Corn Exchange](https://www.cambridgeindependent.co.uk/whats-on/review-dexys-midnight-runners-spread-the-love-at-cambridge-9489518) - Cambridgeindependent
+- [TesseracT Premiere New Single & Visualizer "Crucible" - Sign With Nuclear Blast](http://www.metalunderground.com/news/details.cfm?newsid=162487) - Metalunderground.com
+- [TESSERACT Shares First Single For "Crucible" From Upcoming EP "ARC_One: Obscura"](https://www.sonicperspectives.com/news/tesseract-shares-first-single-for-crucible-from-upcoming-ep-arc_one-obscura) - Sonicperspectives
+- [TESSERACT Announces New EP 'ARC_ONE: Obscura', Shares First Single 'Crucible' - BLABBERMOUTH.NET](https://blabbermouth.net/news/tesseract-announces-new-ep-arc_one-obscura-shares-first-single-crucible) - Blabbermouth
+- [TesseracT announce new EP Arc One: Obscura with lead single Crucible](https://onyourmarkus.au/new-music-releases/tesseract) - Onyourmarkus
+- [TesseracT launch Crucible single from upcoming EP ARC_ONE: Obscura \| Louder](https://www.loudersound.com/music/tracks-singles/tesseract_crucible_single_arc_one_obscura_ep) - Loudersound
+- [TesseracT Announce ‘ARC_ONE: Obscura’ EP, Premiere “Crucible”](https://themosh.net/tesseract-arc-one-obscura-ep-crucible) - Themosh
+- [The Best Grunge + Post Grunge Album of Each Year From 1987 - 2005](https://loudwire.com/best-grunge-post-grunge-album-of-each-year/) - Loudwire
+- [The Best Grunge + Post Grunge Album of Each Year From 1987 - 2005](https://loudwire.com/best-grunge-post-grunge-album-of-each-year) - Loudwire
