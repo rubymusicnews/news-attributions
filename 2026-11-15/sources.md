@@ -1,0 +1,80 @@
+# Sources for 2026-11-15 News Episode 
+- [Winners Of Melon Music Awards 2026 – DAY 1](http://www.soompi.com/article/1886965wpp/winners-of-melon-music-awards-2026-day-1) - soompi
+- [Winners Of Melon Music Awards 2026 - DAY 1 \| Soompi](https://www.soompi.com/article/1886965wpp/winners-of-melon-music-awards-2026-day-1) - Soompi
+- [Melon Music Awards 2026 Day 1 Winners List: BTS, aespa Bag Daesang; ATEEZ Win Big \| Times Now](https://www.timesnownews.com/entertainment-news/korean/melon-music-awards-2026-day-1-winners-list-bts-aespa-bag-daesang-ateez-win-big-article-156509785) - Timesnownews
+- [All The Winners From "2026 Melon Music Awards" Day 1 - Koreaboo](https://www.koreaboo.com/news/2026-melon-music-awards-day-one-winners) - Koreaboo
+- [Melon Music Awards 2026 Results: BTS and aespa Win Daesang, Winners List and Day Two Schedule](https://aktualita.co/en/entertainment/melon-music-awards-2026-results-bts-and-aespa-win-daesang-winners-list-and-day-two-schedule) - Aktualita
+- [BTS, aespa take grand prizes on MMA2026 opening night - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261115/bts-aespa-take-grand-prizes-on-mma2026-opening-night) - Koreatimes
+- [aespa, 'MMA 2026' Global-K Artist of the Year... "Thank you for the 6th anniversary gift" \| STARNEWS](https://www.starnewskorea.com/en/music/2026/11/14/2026111422385940828) - Starnewskorea
+- [See Robyn Strip Down ‘Sexistential’ Songs for Tiny Desk Performance](http://www.rollingstone.com/music/music-news/robyn-sexistential-songs-show-me-love-tiny-desk-performance-1235658322/) - Rolling Stone
+- [See Robyn Strip Down 'Sexistential' Songs for Tiny Desk Performance](https://www.rollingstone.com/music/music-news/robyn-sexistential-songs-show-me-love-tiny-desk-performance-1235658322) - Rollingstone
+- [Robyn Strips Down 30 Years Of Music For ‘Tiny Desk Concert’ Debut](https://www.jambase.com/article/robyn-tiny-desk-concert) - Jambase
+- [Robyn Reimagines “Show Me Love” And “Light Up” In Stunning NPR Tiny Desk Concert - That Eric Alper](https://www.thatericalper.com/2026/11/12/robyn-reimagines-show-me-love-and-light-up-in-stunning-npr-tiny-desk-concert) - Thatericalper
+- [Robyn: Tiny Desk Concert : NPR](https://www.npr.org/2026/11/12/g-s1-150988/robyn-tiny-desk-concert) - Npr
+- [Fela Kuti, Queen Latifah, others to receive Rock Hall early influence honour](https://punchng.com/fela-kuti-queen-latifah-others-to-receive-rock-hall-early-influence-honour/) - The Punch
+- [Oasis, Wu-Tang Clan, Phil Collins, Iron Maiden, New Order Lead Rock and Roll Hall of Fame 2026 Class - Yahoo](https://www.yahoo.com/entertainment/music/articles/oasis-wu-tang-clan-phil-011123596.html) - Yahoo
+- [Fela Kuti, Queen Latifah to get Rock Hall influence honour](https://punchng.com/fela-kuti-queen-latifah-others-to-receive-rock-hall-early-influence-honour) - Punchng
+- [2026 Rock & Roll Hall of Fame inductees announced: See the full list \| LiveNOW from FOX](https://www.livenowfox.com/news/2026-rock-roll-hall-fame-inductees-announced-see-full-list) - Livenowfox
+- [2026 Rock & Roll Hall of Fame Induction Ceremony - Photo Gallery](https://loudwire.com/2026-rock-and-roll-hall-of-fame-induction-ceremony-photo-gallery) - Loudwire
+- [Billy Idol, Phil Collins Among Rock Hall Honorees - MyNewsLA.com](https://mynewsla.com/hollywood/2026/11/14/billy-idol-phil-collins-among-rock-hall-honorees-in-la) - Mynewsla
+- [Fela Kuti, Queen Latifah, Sade get Rock Hall honour](https://www.galaxytvonline.com/news/entertainment/fela-kuti-queen-latifah-sade-get-rock-hall-honour) - Galaxytvonline
+- [Fela, Queen Latifah Set For Induction Into Rock And Roll Of Fame](https://independent.ng/fela-queen-latifah-set-for-induction-into-rock-and-roll-of-fame) - Independent
+- [Inside the AI Music Awards, An Attempt to Normalize Tech-Backed Tunes](https://variety.com/2026/music/features/inside-first-ai-music-awards-sonic-intelligence-academy-1236947847/) - Variety
+- [New awards show celebrates AI music and its creators](https://www.channelnewsasia.com/business/new-awards-show-celebrates-ai-music-and-its-creators-6551541) - CNA
+- [As AI Reshapes Music, a New Awards Show Asks Who Gets to Be Called an Artist - SHEEN Magazine](https://sheenmagazine.com/as-ai-reshapes-music-a-new-awards-show-asks-who-gets-to-be-called-an-artist) - Sheenmagazine
+- [Inside the AI Music Awards, An Attempt to Normalize Tech-Backed Tunes](https://variety.com/2026/music/features/inside-first-ai-music-awards-sonic-intelligence-academy-1236947847) - Variety
+- [Karol G Brings Out Thalía as Surprise Guest at Mexico City Show](http://www.billboard.com/music/latin/karol-g-thalia-surprise-guest-mexico-city-show-1236382220/) - Billboard
+- [Karol G Brings Out Thalía as Surprise Guest at Mexico City Show](https://www.billboard.com/music/latin/karol-g-thalia-surprise-guest-mexico-city-show-1236382220) - Billboard
+- [Karol G sorprende a sus fans al cantar con Thalía en su primer concierto en la Ciudad de México](https://www.quien.com/espectaculos/2026/11/14/karol-g-sorprende-fans-thalia-primer-concierto-cdmx) - Quien
+- [Karol G sorprende a sus fans al cantar con Thalía en su primer concierto en la Ciudad de México](https://entrelineas.com.mx/karol-g-sorprende-a-sus-fans-al-cantar-con-thalia-en-su-primer-concierto-en-la-ciudad-de-mexico) - Entrelineas
+- [‘Is This Supposed to Happen?’: How Matt Dike Dominated Eighties Hip-Hop Music](http://www.rollingstone.com/music/music-features/bust-a-move-matt-dike-book-excerpt-1235655262/) - Rolling Stone
+- [How Delicious Vinyl's Matt Dike Dominated Eighties Hip-Hop Music](https://www.rollingstone.com/music/music-features/bust-a-move-matt-dike-book-excerpt-1235655262) - Rollingstone
+- [‘Is This Supposed to Happen?’: How Matt Dike Dominated Eighties Hip-Hop Music](https://www.imdb.com/news/ni66111053?ref_=ttnw_art_perm) - Imdb
+- [‘Is This Supposed to Happen?’: How Matt Dike Dominated Eighties Hip-Hop Music](https://www.vibe.com/features/editorial/how-delicious-vinyl-matt-dike-eighties-hip-hop-music-book-1235202981) - Vibe
+- [Philippines wins first Eurovision Song Contest Asia](https://www.bbc.co.uk/news/articles/cqrlgnx9dx6eo) - BBC News
+- ['Waiting so long': Fans gather for Eurovision's first Asia show](https://www.channelnewsasia.com/asia/waiting-so-long-fans-gather-eurovisions-first-asia-show-6551791) - CNA
+- [Eurovision Song Contest Asia crowns its first-ever winner](https://www.sbs.com.au/news/article/eurovision-song-contest-asia-philippines-carmelle-winner/uha9clrhz) - SBS News
+- [🇵🇭 Philippines: CARMELLE Wins Eurovision Song Contest Asia 2026 - Eurovoix](https://eurovoix.com/2026/11/14/philippines-carmelle-wins-eurovision-song-contest-asia-2026) - Eurovoix
+- [The Philippines wins Eurovision Asia 2026: CARMELLE takes the crystal microphone with «Sobra-Sobra» - ESCplus](https://www.esc-plus.com/the-philippines-wins-eurovision-asia-2026-carmelle-sobra-sobra) - Esc-plus
+- [Philippines wins first Eurovision Song Contest Asia](https://www.dw.com/en/philippines-wins-first-eurovision-song-contest-asia/a-79950050) - Dw
+- [Meet Plave, the Very Real Virtual K-pop Boy Group](http://www.hollywoodreporter.com/music/music-features/k-pop-group-plave-virtual-idol-interview-1236755476/) - Hollywood Reporter
+- [Meet Plave, the Very Real Virtual K-pop Boy Group](https://www.hollywoodreporter.com/music/music-features/k-pop-group-plave-virtual-idol-interview-1236755476) - Hollywoodreporter
+- [Virtual K-pop group Plave continues steady rise - The Korea Herald](https://www.koreaherald.com/article/10914583) - Koreaherald
+- [Virtual idol group PLAVE hits No. 31 on Billboard 200 - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261028/virtual-idol-group-plave-hits-no-31-on-billboard-200) - Koreatimes
+- [PLAVE Hits No. 31 on US 'Billboard 200'... Sets New Personal Best Record \| STARNEWS](https://www.starnewskorea.com/en/music/2026/10/28/2026102810422065877) - Starnewskorea
+- [Latin Recording Academy Celebrates Leading Ladies of Entertainment](http://www.billboard.com/music/latin/latin-grammy-leading-ladies-entertainment-uplifting-moments-1236382250/) - Billboard
+- [Latin Recording Academy Celebrates Leading Ladies of Entertainment](https://www.billboard.com/music/latin/latin-grammy-leading-ladies-entertainment-uplifting-moments-1236382250) - Billboard
+- [Universal Music’s Jesús López awarded Honorary Academician title by the Spanish Music Academy - Music Business Worldwide](https://www.musicbusinessworldwide.com/universal-musics-jesus-lopez-awarded-honorary-academic-title-by-the-spanish-music-academy) - Musicbusinessworldwide
+- [Universal's Jesús López To Be Honored by Spanish Music Academy](https://www.hitsdailydouble.com/news/latin/universal-music-jesus-lopez-by-spanish-music-academy-honoree-2026-10-28) - Hitsdailydouble
+- [Talking Heads – Fear of Music album art](https://fontsinuse.com/uses/81058/talking-heads-fear-of-music-album-art-1) - Fontsinuse.com
+- [Journey Announces Drummer Deen Castronovo Is Exiting Band, Days After Another Health Scare Forces His Second Mid-Show Departure](https://variety.com/2026/music/news/journey-drummer-deen-castronovo-exits-band-health-scare-1236947754/) - Variety
+- [Journey drummer Deen Castronovo, 62, exits band over health issues after onstage medical emergency](https://www.dailymail.com/tvshowbiz/article-16292583/Journey-Deen-Castronovo-exits-band-health-issues.html) - Dailymail.com
+- [Drummer Deen Castronovo Steps Away from Journey](https://consequence.net/2026/11/drummer-deen-castronovo-steps-away-from-journey/) - Consequence.net
+- [Journey drummer Deen Castronovo steps away from band over ‘personal health matters’](https://pagesix.com/2026/11/14/entertainment/journey-drummer-deen-castronovo-steps-away-from-band-over-personal-health-matters/) - Page Six
+- [Deen Castronovo steps away from Journey ahead of San Francisco tour closer](https://riffmagazine.com/news/deen-castronovo-journey-steps-away-final-frontier-tour) - Riffmagazine
+- [Deen Castronovo: Iconic rock band’s drummer steps down to ‘focus on health matters’ \| The Independent](https://www.independent.co.uk/arts-entertainment/music/news/deen-castronovo-journey-leaves-health-b3084976.html) - Independent
+- [Journey replaces drummer Deen Castronovo on farewell tour; more concerts likely - syracuse.com](https://www.syracuse.com/entertainment/2026/11/classic-rock-band-replaces-longtime-member-on-farewell-tour-more-concerts-ahead.html) - Syracuse
+- [Journey Quietly Replaced Deen Castronovo on Final Frontier Tour](https://ksenam.com/ixp/295/p/journey-deen-castronovo-final-frontier-tour) - Ksenam
+- [Journey Drummer Deen Castronovo Leaves Band, After Second Mid-Show Exit](https://variety.com/2026/music/news/journey-drummer-deen-castronovo-exits-band-health-scare-1236947754) - Variety
+- [Journey's Deen Castronovo exits after two health emergencies mid-show](https://www.freep.com/story/entertainment/music/2026/11/14/deen-castronovo-leaves-journey-band-health-exit/92783241007) - Freep
+- [Kanye West Settles Lawsuit Over Sample Blocked by Descendant of Holocaust Survivors](http://www.rollingstone.com/music/music-news/kanye-west-settles-lawsuit-alice-merton-holocaust-survivors-1235658191/) - Rolling Stone
+- [Kanye West Reaches Deal With German Vocalist Over "Gun to My Head" Sample](https://www.complex.com/music/a/jaelaniturnerwilliams/kanye-west-alice-merton-gun-to-head-lawsuit-settlement) - Complex
+- [US court closes Ye lawsuit after settlement with Alice Merton \| UA.NEWS](https://ua.news/en/dovkolo-svitu/sud-ssha-zakriv-pozov-do-ye-pislia-mirovoyi-ugodi-z-alis-merton-rolling-stone) - Ua
+- [Kanye West Settles Claims Brought by Descendant of Holocaust Survivors](https://www.rollingstone.com/music/music-news/kanye-west-settles-lawsuit-alice-merton-holocaust-survivors-1235658191) - Rollingstone
+- [Kanye West Settles Copyright Lawsuit After Alice Merton Says She Refused to Clear ‘Blindside’ Sample](https://www.jubileecast.com/articles/41067/20261113/kanye-west-settles-copyright-lawsuit-after-alice-merton-says-she-refused-to-clear-blindside-sample.htm) - Jubileecast
+- [Kanye West Settles Sample Lawsuit From Holocaust Survivors Descendant](https://www.billboard.com/pro/kanye-west-settles-sample-lawsuit-holocaust-survivors) - Billboard
+- [Kanye West Settles Infringement and Antisemitism Lawsuit](https://www.digitalmusicnews.com/2026/11/13/kanye-west-infringement-antisemitism-lawsuit-settled) - Digitalmusicnews
+- [Beyoncé Shares Rare Details of Her Secret Wedding to Jay-Z](https://www.justjared.com/2026/11/13/beyonce-shares-rare-details-of-her-secret-wedding-to-jay-z/) - Just Jared
+- [Beyoncé Shares Rare Details About Her Secret Wedding to Jay-Z](https://www.elle.com/culture/celebrities/a74430998/beyonce-jay-z-wedding-details-interview-2026) - Elle
+- [Beyoncé Details “Very Small” Surprise Jay-Z Wedding](https://www.eonline.com/news/1438055/beyonce-details-very-small-surprise-jay-z-wedding) - Eonline
+- [Beyoncé shares rare details about her secret wedding to Jay-Z and dress her mother made in i-D Magazine interview](https://thegrio.com/2026/11/11/beyonce-returns-to-id-magazine-cecred-zine) - Thegrio
+- [Beyoncé reveals how she kept her 2008 wedding to Jay-Z secret from guests](https://tribune.com.pk/story/2640344/beyonce-reveals-how-she-kept-her-2008-wedding-to-jay-z-secret-from-guests) - Tribune
+- [Beyoncé shares rare details about her family and business](https://www.usatoday.com/story/entertainment/music/2026/11/11/beyonce-cecred-tina-knowles-rumi-hair/92727586007) - Usatoday
+- [Beyoncé Reveals New Details Around Her ‘Very Small’ Private 2008 Wedding to Jay-Z](https://www.today.com/popculture/music/beyonce-new-details-intimate-wedding-jay-z-rcna609329) - Today
+- [Richard Sterban Dies: Oak Ridge Boys Bass Singer Behind “Elvira” Riff Was 83](http://deadline.com/2026/11/richard-sterban-dies-oak-ridge-boys-bass-singer-1237224125/) - Deadline
+- [Oak Ridge Boys Singer Richard Sterban Dead At 83 \| 106.3 The Bear](https://1063thebear.iheart.com/content/2026-11-14-oak-ridge-boys-singer-richard-sterban-dead-at-83) - Iheart
+- [Richard Sterban, 'The Oak Ridge Boys' Elvira refrain singer and Country Music Hall of Famer, dead at 83 - al.com](https://www.al.com/life/2026/11/legendary-country-music-icon-and-the-oak-ridge-boys-singer-known-for-elvira-refrain-dead-at-83.html) - Al
+- [Oak Ridge Boys member dies in Tennessee after cancer battle](https://fox17.com/news/local/oak-ridge-boys-member-dies-in-tennessee-after-cancer-battle) - Fox17
+- [Richard Sterban cause of death: Details of his passing emerge after Oak Ridge Boys star dies at 83](https://www.aol.com/articles/richard-sterban-cause-death-details-005410000.html) - Aol
+- [Richard Sterban, Oak Ridge Boys Bass Singer, Dies at 83](https://www.wsmv.com/2026/11/14/richard-sterban-longtime-oak-ridge-boys-bass-singer-dies-83) - Wsmv
+- [Richard Sterban, longtime Oak Ridge Boys bass singer, dies at 83](https://www.wdtv.com/2026/11/15/richard-sterban-longtime-oak-ridge-boys-bass-singer-dies-83) - Wdtv
