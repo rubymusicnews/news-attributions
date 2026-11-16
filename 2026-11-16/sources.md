@@ -1,0 +1,54 @@
+# Sources for 2026-11-16 News Episode 
+- [BTS, Rosé, Jennie, “KPop Demon Hunters,” And KATSEYE Win At 2026 Nickelodeon Kids’ Choice Awards](http://www.soompi.com/article/1887086wpp/bts-rose-jennie-kpop-demon-hunters-and-katseye-win-at-2026-nickelodeon-kids-choice-awards) - soompi
+- [BTS sweeps Kids' Choice Awards, extends group category record - The Korea Times](https://www.koreatimes.co.kr/entertainment/k-pop/20261115/bts-sweeps-kids-choice-awards-extends-group-category-record) - Koreatimes
+- [2026 Kids’ Choice Awards: Full Winners List](https://www.billboard.com/lists/2026-kids-choice-awards-full-winners-list) - Billboard
+- [Kids’ Choice Awards 2026: Spider-Man, BTS and KPop Demon Hunters win big](https://www.imdb.com/news/ni66112258?ref_=int_nwr_2) - Imdb
+- [BTS, Rosé, Bruno Mars among music winners at 2026 Kids' Choice Awards - The Music Universe](https://themusicuniverse.com/bts-rose-bruno-mars-among-music-winners-at-2026-kids-choice-awards) - Themusicuniverse
+- [Peter Hook Accepts Joy Division/New Order’s Rock Hall Induction Following Introduction from Trent Reznor](https://consequence.net/2026/11/peter-hook-joy-division-new-order-rock-hall-induction-trent-reznor/) - Consequence.net
+- [Peter Hook Accepts Joy Division/New Order's Rock Hall Induction](https://consequence.net/2026/11/peter-hook-joy-division-new-order-rock-hall-induction-trent-reznor) - Consequence
+- [Watch Deftones' Chino Moreno, Chvrches' Lauren Mayberry and Peter Hook perform Joy Division and New Order classics with Rock Hall Of Fame induction from Trent Reznor](https://www.nme.com/news/music/deftones-chino-moreno-chvrches-peter-hook-joy-division-new-order-rock-hall-fame-trent-reznor-3975986) - Nme
+- [Deftones Perform Joy Division and New Order Classics at Rock Hall Ceremony](https://consequence.net/2026/11/deftones-joy-division-new-order-rock-roll-hall-of-fame-ceremony) - Consequence
+- [Why BTS Will Get No Grammy Nominations This Year](http://www.vulture.com/article/grammy-nominations-best-asian-pop-bts.html) - Vulture
+- [BTS and Stray Kids withdraw from the Grammys over the new regional category](https://foro3d.com/en/2026/noviembre/bts-y-stray-kids-se-retiran-de-los-grammy-por-la-nueva-categoria-regio.html) - Foro3d
+- [Why BTS Will Get No Grammy Nominations This Year](https://www.vulture.com/article/grammy-nominations-best-asian-pop-bts.html) - Vulture
+- [Major K-pop agencies skip Grammys’ new Asian pop category - The Korea Herald](https://www.koreaherald.com/article/10912862) - Koreaherald
+- [BTS is boycotting the Grammys. It’s part of a long history of category controversies : NPR](https://www.npr.org/2026/11/12/nx-s1-6029393/bts-grammy-boycott-history-of-award-controversies) - Npr
+- [Grammys Asian Pop Category, Explained: Why BTS Opted Out](https://hmc.chartmetric.com/bts-grammys-asian-pop-category-debate) - Chartmetric
+- [Cup of Joe’s Grammy bid deserves the spotlight, not a BTS fan war](https://tribune.net.ph/2026/11/02/cup-of-joes-grammy-bid-deserves-the-spotlight-not-a-bts-fan-war) - Tribune
+- [Wu-Tang Clan Get Their Flowers, Perform at Rock & Roll Hall of Fame Induction Ceremony](https://consequence.net/2026/11/wu-tang-clan-rock-hall-induction-speech/) - Consequence.net
+- [Wu-Tang Clan Inducted Into the Rock & Roll Hall of Fame](https://consequence.net/2026/11/wu-tang-clan-rock-hall-induction-speech) - Consequence
+- [Phil Collins cries, Rock & Roll Hall of Fame ceremony](https://spectrumlocalnews.com/nc/triad/entertainment/2026/11/15/phil-collins-cries--rock---roll-hall-of-fame-ceremony) - Spectrumlocalnews
+- [Tearful Phil Collins receives electrifying ovation at Rock & Roll Hall of Fame ceremony amid health battles](https://pagesix.com/2026/11/15/entertainment/tearful-phil-collins-receives-electrifying-ovation-at-rock-roll-hall-of-fame-ceremony-amid-health-battles) - Pagesix
+- [Wu-Tang Clan joins Rock Hall of Fame class of 2026 - silive.com](https://www.silive.com/entertainment/2026/11/wu-tang-clan-born-on-staten-island-is-officially-inducted-into-rock-and-roll-hall-of-fame.html) - Silive
+- [Watch Wu-Tang Clan Perform at the Rock & Roll Hall of Fame 2026 Induction Ceremony \| Pitchfork](https://pitchfork.com/story/watch-wu-tang-clan-perform-at-the-rock-and-roll-hall-of-fame-2026-induction-ceremony) - Pitchfork
+- [2026 Rock Hall inductions highlights: Phil Collins, U2, Wu-Tang Clan, Billy Idol - Los Angeles Times](https://www.latimes.com/entertainment-arts/music/story/2026-11-15/rock-roll-hall-fame-inductions-highlights-phil-collins-oasis-wu-tang-clan-u2) - Latimes
+- [Taylor Swift Says Humans Are ‘Still Winning’ at Making Music](https://www.thewrap.com/creative-content/music/taylor-swift-human-beings-winning-technology-music/) - TheWrap
+- [‘Human beings are still winning’: Taylor Swift supports human-made music](https://www.yahoo.com/entertainment/music/articles/human-beings-still-winning-taylor-125025897.html) - Yahoo
+- [Taylor Swift Says Human Artists Are ‘Still Winning’](https://www.thewrap.com/creative-content/music/taylor-swift-human-beings-winning-technology-music) - Thewrap
+- [Soompi’s K-Pop Music Chart 2026, November Week 3](http://www.soompi.com/article/1887041wpp/soompis-k-pop-music-chart-2026-november-week-3) - soompi
+- [Soompi's K-Pop Music Chart 2026, November Week 3 \| Soompi](https://www.soompi.com/article/1887041wpp/soompis-k-pop-music-chart-2026-november-week-3) - Soompi
+- [Wham!’s ‘Last Christmas’ Lyrics & Meaning Explained as Song Returns to Billboard Charts in 2026](https://www.justjared.com/2026/11/15/wham-last-christmas-lyrics-meaning-explained-billboard-charts-2026/) - Just Jared
+- [Wham!'s 'Last Christmas' Lyrics & Meaning Explained as Song Returns to Billboard Charts in 2026 \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/11/15/wham-last-christmas-lyrics-meaning-explained-billboard-charts-2026) - Justjared
+- [Halloween & Christmas Hits on Hot 100 for 2026](https://www.billboard.com/music/chart-beat/halloween-christmas-hits-hot-100-2026-michael-jackson-mariah-1236378420) - Billboard
+- [Wham!’s ‘Last Christmas’ Lyrics & Meaning Explained as Song Returns to Billboard Charts in 2026](https://www.yahoo.com/entertainment/music/new-albums/articles/wham-last-christmas-lyrics-meaning-182633479.html) - Yahoo
+- [Bandcamp Friday Returns as Direct-to-Artist Sales Surpass $160 Million](https://www.themusicninja.com/bandcamp-friday-returns-as-direct-to-artist-sales-surpass-160-million/) - Themusicninja.com
+- [Bandcamp Friday Nov 6: artists get paid](https://www.facebook.com/100085519163068/posts/-the-district-wire-bandcamp-friday-is-tomorrow-november-6-tomorrow-bandcamp-waiv/1085742534286375) - Facebook
+- [This Friday is Bandcamp Friday \| Bandcamp Daily](https://daily.bandcamp.com/features/bandcamp-fridays) - Bandcamp
+- [Today is Bandcamp Friday, November 6th, 2026](https://ghostcultmag.com/today-is-bandcamp-friday-november-6th-2026) - Ghostcultmag
+- [Star-studded MacGowan tribute album gave grieving wife purpose](https://www.bbc.co.uk/news/articles/cm782dxxzjw2o) - BBC News
+- [Shane MacGowan: Tribute album gave mourning wife purpose](https://www.bbc.com/news/articles/cm782dxxzjw2o) - Bbc
+- [Shane MacGowan Tribute Album Featuring Springsteen, U2, Tom Waits & More Released](https://consequence.net/2026/11/twentieth-century-paddy-shane-macgowan-tribute-released) - Consequence
+- [Brandi Carlile’s All-Requests Tour Isn’t Just a Magnificent Stunt, but an Unusually Moving Transaction Between Performer and Audience: Concert Review](https://variety.com/2026/music/concert-reviews/brandi-carlile-all-request-tour-burn-setlist-concert-review-1236947885/) - Variety
+- [Brandi Carlile's All-Request Tour Is a Novel Stunt That's Also Moving](https://variety.com/2026/music/concert-reviews/brandi-carlile-all-request-tour-burn-setlist-concert-review-1236947885) - Variety
+- [Iron Maiden Honored With Rock Hall Induction Performance](https://ultimateclassicrock.com/iron-maiden-rock-hall-of-fame-performance-2026/) - Ultimate Classic Rock
+- [Iron Maiden Rock Hall of Fame 2026: Members of Metallica, Motley Crue and Rage Against the Machine Join St. Vincent and Jack Black for Tribute](https://www.rockumweb.com/reportes/2784/iron-maiden-rock-hall-of-fame-2026-members-of-metallica-motley-crue-and-rage-against-the-machine-join-st-vincent-and-jack-black-for-tribute) - Rockumweb
+- [Jack Black, St. Vincent And Metallica Play ‘The Trooper’ As Iron Maiden Enter The Rock HallIron Maiden Rock Hall: Jack Black Leads The Trooper](https://myglobalmind.com/2026/11/15/iron-maiden-rock-hall-of-fame-induction-jack-black-the-trooper) - Myglobalmind
+- [St. Vincent and Metallica Honour Iron Maiden at Rock Hall (With a Jack Black Assist)](https://au.rollingstone.com/music/music-news/metallica-jack-black-st-vincent-iron-maiden-rock-hall-103388) - Rollingstone
+- [Iron Maiden Rock Hall Induction: Jack Black, St. Vincent Perform with Metallica, RATM, Mötley Crüe Members](https://consequence.net/2026/11/iron-maiden-rock-hall-induction-jack-black-st-vincent-metallica-ratm-motley-crue) - Consequence
+- [Iron Maiden finally inducted in Rock and Roll Hall of Fame, skips ceremony - syracuse.com](https://www.syracuse.com/entertainment/2026/11/legendary-metal-band-finally-inducted-in-rock-and-roll-hall-of-fame.html) - Syracuse
+- [Depeche Mode’s 1990 Album Ranked Their Greatest by Mojo](https://freerepublic.com/focus/f-chat/4403068/posts) - Freerepublic.com
+- [Depeche Mode's 1990 Album Featuring Arguably Their Best Song Ever Is Ranked Their Greatest by Mojo](https://parade.com/entertainment/depeche-modes-1990-album-violator-featuring-best-song-ever-is-ranked-greatest-by-mojo) - Parade
+- [Joy Division – Eternal: Live (2026)](https://exystence.net/blog/2026/11/15/joy-division-eternal-live-2026/) - Exystence.net
+- [Treble's Gift Guide for Music Lovers 2026 - Treble](https://www.treblezine.com/trebles-gift-guide-for-music-lovers-2026) - Treblezine
+- [Where The Power Of Women’s Singing Voices Comes From](https://www.npr.org/2026/11/14/nx-s1-5786468/writer-lauren-elkin-discusses-the-power-of-womens-voices-in-her-book-vocal-break) - NPR
+- [The Best New Books Released in November 2026: Our Picks](https://www.vulture.com/article/the-best-new-books-released-in-november-2026-our-picks.html) - Vulture
