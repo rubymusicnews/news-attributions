@@ -1,0 +1,87 @@
+# Sources for 2026-11-17 News Episode 
+- [Beyoncé Becomes First Artist in Grammy History to Receive 100 Nominations](https://www.jezebel.com/beyonce-becomes-first-artist-in-grammy-history-to-receive-100-nominations) - Jezebel
+- [Dolly Parton Earns Three Posthumous Grammy Nominations](http://deadline.com/2026/11/dolly-parton-grammy-nominations-2027-posthumous-1237225229/) - Deadline
+- [Beyonce extends Grammy record with new nomination](https://www.usatoday.com/story/entertainment/music/2026/11/16/beyonce-grammy-award-nomination-morning-dew-donk/92625597007) - Usatoday
+- [Beyoncé makes Grammys history — plus other standouts and surprises from the 2027 nominations](https://www.hellomagazine.com/us/935303/beyonce-grammys-history-surprises-2027-nominations) - Hellomagazine
+- [Beyoncé is the first artist to hit 100 Grammy nominations \| The FADER](https://www.thefader.com/2026/11/16/beyonce-breaks-grammy-record-100-nominations) - Thefader
+- [Beyoncé receives historic 100th Grammy nomination, other Houstonians rack up 12 nods – Houston Public Media](https://www.houstonpublicmedia.org/articles/news/arts-culture-news/2026/11/16/567262/beyonce-receives-historic-100th-grammy-nomination-other-houstonians-rack-up-12-nods) - Houstonpublicmedia
+- [Grammy Awards: Raye and Rosalia lead nominations](https://www.dw.com/en/grammy-awards-raye-and-rosalia-lead-nominations/a-79961198) - DW (English)
+- [2027 Grammy Nominations: RAYE and Rosalía Dominate](https://www.laineygossip.com/raye-rosalia-dominate-2027-grammy-nominations/) - LaineyGossip
+- [Tame Impala and Baz Luhrmann earn Grammy nods as Raye leads nominations](https://www.abc.net.au/news/2026-11-17/raye-and-rosalia-lead-nominations-for-music-s-grammy-awards-/107392254) - ABC News (AU)
+- [Here's Who Scored Nominations For The 2027 Grammy Awards](https://www.huffpost.com/entry/grammy-nominations-2027_n_6afb0d57e4b0b6f4a958127b) - HuffPost
+- [Raye, Rosalia and Dolly Parton recognised in Grammy nominations](https://www.bbc.co.uk/news/articles/cq9vwkggpx73o) - BBC News
+- [Grammy-Nominierungen 2027: Raye stellt Rekord von Beyoncé ein](https://www.n-tv.de/leute/Raye-stellt-Rekord-von-Beyonce-ein-id31540035.html) - N-tv.de
+- [Raye breaks down in hysterical tears after receiving an impressive 11 Grammy nominations as Olivia Dean screams in delight over her 6 nods - but Harry Styles is snubbed](https://www.dailymail.com/tvshowbiz/article-16297583/Raye-breaks-hysterical-tears-Grammy-nominations.html) - Dailymail.com
+- [Femeile, în prim-plan la Grammy 2027. Raye, Rosalía şi Olivia Rodrigo, printre artistele cu cele mai multe nominalizări](https://www.digi24.ro/magazin/timp-liber/divertisment/femeile-in-prim-plan-la-grammy-2027-raye-rosalia-si-olivia-rodrigo-printre-artistele-cu-cele-mai-multe-nominalizari-4039015) - Digi24.ro
+- [Makeup-free and dressed down Ella Langley looks unrecognizable as she reacts to Grammy nomination triumph](https://www.dailymail.com/tvshowbiz/article-16297435/ella-langley-makeup-free-grammy-nominations.html) - Dailymail.com
+- [The Grammy Nominations Blanked Harry Styles. What Happened?](http://www.rollingstone.com/music/music-features/grammy-nominations-harry-styles-left-out-1235659028/) - Rolling Stone
+- [2027 Grammys Snubs: Harry Styles, Noah Kahan, Steve Lacy, and More](https://consequence.net/2026/11/2027-grammys-snubs-harry-styles-noah-kahan-steve-lacy/) - Consequence.net
+- [2027 Grammys Snubs: Harry Styles, Noah Kahan, and More](https://consequence.net/2026/11/2027-grammys-snubs-harry-styles-noah-kahan-steve-lacy) - Consequence
+- [Grammy nominations 2027 snubs, from Harry Styles to Justin Bieber, BTS](https://www.usatoday.com/story/entertainment/music/2026/11/16/grammy-nominations-2027-snubs/92733111007) - Usatoday
+- [Grammy Nominations 2027 Snubs: Harry Styles, Madonna, Justin Bieber & More](https://www.justjared.com/2026/11/16/2027-grammy-nominations-biggest-snubs-harry-styles-madonna-justin-bieber/2) - Justjared
+- [Grammy Snubs and Surprises: Harry Styles, Raye, Noah Kahan](https://variety.com/2026/music/news/grammy-snubs-surprises-harry-styles-raye-noah-kahan-1236948467) - Variety
+- [2027 Grammy nominations release today. Here's what you need to know](https://www.cbc.ca/news/entertainment/grammy-nominations-2027-9.7421284) - CBC News
+- [2027 Grammys: Record vs. Album vs. Song of the Year, Explained](https://www.justjared.com/2026/11/16/2027-grammys-record-vs-album-vs-song-of-the-year-explained/) - Just Jared
+- [2027 Grammys: Asake, Davido, Burna Boy, Ayra Starr earn nominations](https://punchng.com/2027-grammys-asake-davido-burna-boy-ayra-starr-earn-nominations/) - The Punch
+- [Tems earns 2027 Grammy nomination for ‘what you need’](https://punchng.com/tems-earns-2027-grammy-nomination-for-what-you-need/) - The Punch
+- [2027 Grammys: Asake, Davido, Burna Boy get nominations](https://punchng.com/2027-grammys-asake-davido-burna-boy-ayra-starr-earn-nominations) - Punchng
+- [Tems, Asake, Ayra Starr, Davido, Wizkid, Burna Boy Earn 2027 Grammy Nominations – Arise News](https://www.arise.tv/tems-asake-ayra-starr-davido-wizkid-burna-boy-earn-2027-grammy-nominations) - Arise
+- [2027 Grammys: Afrobeat Stars Davido, Wizkid, Burna Boy, Tems, Others Bag Nominations](https://www.modernghana.com/nollywood/37484/2027-grammys-afrobeat-stars-davido-wizkid-burna.amp) - Modernghana
+- [2027 Grammys: Nigeria’s historic sweep & the vote-split danger \| Galaxy Television](https://www.galaxytvonline.com/reports/2027-grammys-nigerias-historic-sweep-the-vote-split-danger) - Galaxytvonline
+- [FULL LIST: Nigerian stars, others in 2027 Grammys nominations - Punch Newspapers](https://punchng.com/full-list-nigerian-stars-others-in-2027-grammys-nominations) - Punchng
+- [Tems, Asake, Ayra Starr Lead Nigerian Artistes in 2027 Grammy Nominations - Nollywood Reporter](https://thenollywoodreporter.com/news/tems-asake-ayra-starr-2027-grammy-nominations) - Thenollywoodreporter
+- [Lyor Cohen: The Shady Israeli Executive Running YouTube Music & the Global Hip Hop Industry](https://activistpost.com/lyor-cohen-the-shady-israeli-executive-running-youtube-music-the-global-hip-hop-industry/) - Activistpost.com
+- [YouTube Data Returning to Billboard Charts in 2027](https://www.hitsdailydouble.com/news/streaming/youtube-data-returning-to-billboard-2026-11-09) - Hitsdailydouble
+- [YouTube Sets 2027 Billboard Return After Streaming Formula Changes - 24Hip-Hop](https://24hip-hop.com/youtube-billboard-return-2027-streaming) - 24hip-hop
+- [Aloe Blacc Forms Supergroup Mudkings With Robert Randolph, G. Love, Sam Hollander, and Johnny Black](http://www.rollingstone.com/music/music-news/aloe-blacc-forms-supergroup-mudkings-robert-randolph-g-love-1235658773/) - Rolling Stone
+- [Mudkings: Aloe Blacc forms a new soul-blues supergroup](https://karlobag.eu/en/music/mudkings-aloe-blacc-robert-randolph-and-g-love-unite-soul-r-b-and-rock-in-tribut-20jwn) - Karlobag
+- [Aloe Blacc Forms Mudkings With Robert Randolph And G. Love](https://www.thehypemagazine.com/2026/11/16/aloe-blacc-mudkings-robert-randolph-g-love) - Thehypemagazine
+- [Aloe Blacc Forms Supergroup Mudkings With Robert Randolph, G. Love, More](https://www.rollingstone.com/music/music-news/aloe-blacc-forms-supergroup-mudkings-robert-randolph-g-love-1235658773) - Rollingstone
+- [Geese Earn First Grammy Nominations](https://pitchfork.com/story/geese-earn-first-grammys-nominations/) - Pitchfork
+- [The Grammys Fixed One Big Category. Three More Need Fixing](https://consequence.net/2026/11/grammys-best-new-artist-geese-angine-de-poitrine/) - Consequence.net
+- [2027 Grammy Nominees Include: Brandi Carlile, Jon Batiste, Angine de Poitrine, Billy Strings, Tedeschi Trucks Band, Jesse Welles, Lindsay Lou, Alabama Shakes, GA-20 with Charlie Musselwhite, Dumpstaphunk, Alabama Shakes, Joe Bonamassa, Ruthie Foster, Christone “Kingfish” Ingram and Samantha Fish - Jambands](https://jambands.com/news/__trashed-3) - Jambands
+- [Grammy Award for Best New Artist – Meet the 2027 Nominees \| Grammy](https://www.grammy.com/news/grammy-award-for-best-new-artist-meet-the-2027-nominees) - Grammy
+- [Geese Earn First Grammy Nominations \| Pitchfork](https://pitchfork.com/story/geese-earn-first-grammys-nominations) - Pitchfork
+- [Grammys Reveal 2027 Nominees: Billy Strings, Angine de Poitrine, Tedeschi Trucks Band, Dolly Parton](https://liveforlivemusic.com/news/announce/recording-academy-grammys-2027-nominees) - Liveforlivemusic
+- [Grammy Nominations 2026: R&B, Hip-Hop, And Full List of Nominees](https://www.vibe.com/music/music-news/grammy-nominations-2027-full-list-1235203118) - Vibe
+- [Megadeth Announce 2027 North American Farewell Tour with Anthrax and Kerry King](https://consequence.net/2026/11/megadeth-2027-north-american-farewell-tour/) - Consequence.net
+- [Megadeth Book 2027 North American Tour With Anthrax + Kerry King](https://loudwire.com/megadeth-2027-north-american-tour-anthrax-kerry-king/) - Loudwire
+- [Megadeth Announce 2027 North American Farewell Tour with Anthrax and Kerry King](https://consequence.net/2026/11/megadeth-2027-north-american-farewell-tour) - Consequence
+- [Megadeth, Anthrax + Kerry King Announce 2027 North American Tour](https://ultimateclassicrock.com/megadeth-2027-tour-dates) - Ultimateclassicrock
+- [Megadeth’s Farewell Tour Heads To North America In 2027 With Anthrax & Kerry King](https://www.jambase.com/article/megadeth-farewell-tour-2027-north-america-anthrax-kerry-king) - Jambase
+- [MEGADETH announce new North American leg of farewell tour](https://www.revolvermag.com/events/megadeth-announce-new-north-american-leg-of-farewell-tour) - Revolvermag
+- [Megadeth announces 2027 North American farewell tour: Dates, presales, special guests and tickets \| SeatGeek](https://seatgeek.com/blog/megadeth-announces-north-american-farewell-tour-dates-presales-special-guests-tickets) - Seatgeek
+- [Megadeth 2027 Tour Dates With Anthrax and Kerry King](https://www.themetalverse.net/megadeth-2027-tour-dates) - Themetalverse
+- [Phil Collins Gives a Health Update After Years of Issues In Rare Public Appearance, Teases New Music](https://www.justjared.com/2026/11/15/phil-collins-gives-a-health-update-after-years-of-issues-in-rare-public-appearance-teases-new-music/) - Just Jared
+- [Phil Collins Gives a Health Update After Years of Issues In Rare Public Appearance, Teases New Music \| Just Jared - Celebrity News, Entertainment News & Photos](https://www.justjared.com/2026/11/15/phil-collins-gives-a-health-update-after-years-of-issues-in-rare-public-appearance-teases-new-music) - Justjared
+- [Phil Collins Inducted Into Rock & Roll Hall of Fame as Solo Artist](https://consequence.net/2026/11/phil-collins-rock-hall-induction-solo-artist) - Consequence
+- [Phil Collins Gets Rare Two-Time Inductee Status at Rock & Roll Hall of Fame \| Pitchfork](https://pitchfork.com/story/phil-collins-gets-rare-two-time-inductee-status-at-rock-and-roll-hall-of-fame) - Pitchfork
+- [Phil Collins gives update on his ongoing health struggles during rare public appearance at Rock and Roll Hall of Fame induction \| Nine.com.au](https://www.nine.com.au/entertainment/celebrity/phil-collins-rock-and-roll-hall-of-fame-health-update-rare-public-appearance-20261116-p61edn.html) - Nine
+- [Hayley Williams Curated This Year’s Outbreak Fest](https://pitchfork.com/story/hayley-williams-outbreak-fest-2027-lineup/) - Pitchfork
+- [Hayley Williams-Curated Outbreak Fest Features Dinosaur Jr., Blood Orange \| Pitchfork](https://pitchfork.com/story/hayley-williams-outbreak-fest-2027-lineup) - Pitchfork
+- [Hayley Williams Curates Outbreak Fest 2027 Lineup Topped by American Football, Dinosaur Jr., Wednesday](https://consequence.net/2026/11/outbreak-fest-2027-lineup-hayley-williams) - Consequence
+- [Hayley Williams To Headline And Curate 2027 Outbreak Fest Lineup](https://themosh.net/hayley-williams-outbreak-fest-2027-lineup) - Themosh
+- [Outbreak Festival announces 2027 lineup with Hayley Williams, American Football, Blood Orange - // MELODIC Magazine](https://www.melodicmag.com/news/tour-dates/outbreak-festival-announces-2027-lineup-with-hayley-williams-american-football-blood-orange) - Melodicmag
+- ["The Hayley Williams Show" will headline both nights of Outbreak Fest 2027 \| The Line of Best Fit](https://www.thelineofbestfit.com/news/the-hayley-williams-show-will-headline-both-nights-of-outbreak-fest-2027) - Thelineofbestfit
+- [Angine de Poitrine nominated for 4 GRAMMY Awards](https://www.punknews.org/article/89508/angine-de-poitrine-nominated-for-4-grammy-awards) - Punknews.org
+- [2027 Grammy Award nominees include Angine de Poitrine, Knocked Loose, Mastodon - Lambgoat](https://lambgoat.com/news/55907/2027-grammy-award-nominees-include-angine-de-poitrine-knocked-loose-mastodon) - Lambgoat
+- [Angine de Poitrine earns four Grammy nominations](https://www.thestar.com/entertainment/music/quebec-masked-rock-duo-angine-de-poitrine-earns-four-grammy-nominations-including-best-new-artist/article_8dfb4468-cca4-4212-ba28-7ca792e2ea85.html) - Thestar
+- [Angine de Poitrine Earn Four 2027 GRAMMY Nominations Following Breakout Year](https://www.gratefulweb.com/articles/angine-de-poitrine-earn-four-2027-grammy-nominations-following-breakout-year) - Gratefulweb
+- [GA-20, Charlie Musselwhite Among 2027 Grammy Nominees](https://relix.com/news/detail/2027-grammy-nominees-include-brandi-carlile-jon-batiste-angine-de-poitrine-billy-strings-jesse-welles-lindsay-lou-alabama-shakes-ga-20-with-charlie-musselwhite-dumpstaphunk-alabama-shakes-j) - Relix
+- [2027 Grammy Nominees Include: Brandi Carlile, Jon Batiste, Angine de Poitrine, Billy Strings, Tedeschi Trucks Band, Jesse Welles, Lindsay Lou, Alabama Shakes, GA-20 with Charlie Musselwhite, Dumpstaphunk, Alabama Shakes, Joe Bonamassa, Ruthie Foster, Christone “Kingfish” Ingram and Samantha Fish - Jambands](https://jambands.com/news/__trashed-3) - Jambands
+- [Grammys Reveal 2027 Nominees: Billy Strings, Angine de Poitrine, Tedeschi Trucks Band, Dolly Parton](https://liveforlivemusic.com/news/announce/recording-academy-grammys-2027-nominees) - Liveforlivemusic
+- [Listen: Final Song Recorded by Dolly Parton Released – ‘It’s Her Last Prayer… for America’](https://www.thegatewaypundit.com/2026/11/listen-final-song-recorded-dolly-parton-released-last/) - Thegatewaypundit.com
+- [Dolly Parton’s final recorded track ‘Torn’ is officially released](https://www.yahoo.com/entertainment/music/new-albums/articles/dolly-parton-final-recorded-track-192743364.html) - Yahoo
+- [Dolly Parton’s Final Recorded Performance Arrives on U2’s “Torn”](https://consequence.net/2026/11/dolly-parton-final-recorded-performance-u2-torn) - Consequence
+- [Out Now!
+ – U2.com](https://www.u2.com/blogs/news/out-now-1) - U2
+- [Dolly Parton’s final vocal recording to appear on U2 album](https://fox17.com/news/entertainment/dolly-partons-final-vocal-recording-to-appear-on-u2-album) - Fox17
+- [U2 & Dolly Parton, "Torn," The Final Song Dolly Recorded World Premieres Thursday, Nov. 12 \| Dolly Parton News & Updates](https://www.dollyparton.com/news/u2-dolly-parton-torn-the-final-song-dolly-recorded-country-version-world-premieres-thursday-nov-12) - Dollyparton
+- [How Branford Marsalis and Dianne Reeves Got Their Feet](https://www.newyorker.com/magazine/2026/11/23/how-branford-marsalis-and-dianne-reeves-got-their-feet) - The New Yorker
+- [Jazz Notes: Carnegie Hall, Dizzy's, Smoke, Jazzmen Art](https://amsterdamnews.com/news/2026/11/05/jazz-notes-this-week-carnegie-hall-review-dizzys-smoke-jazzmen-art) - Amsterdamnews
+- [Foo Fighters announce Croke Park date for September 2027](https://www.rte.ie/entertainment/2026/1116/1599331-foo-fighters-announce-croke-park-date-for-september-2027/) - RTE
+- [Οι Foo Fighters έρχονται στην Αθήνα για το EJEKT Festival τον Ιούλιο του 2027](https://www.newsit.gr/lifestyle/oi-foo-fighters-erxontai-stin-athina-gia-to-ejekt-festival-ton-ioulio-tou-2027/4823640/) - Newsit.gr
+- [Foo Fighters announce Croke Park show with Garbage and Florence Road \| Nialler9](https://nialler9.com/foo-fighters-announce-croke-park-show-with-garbage-and-florence-road) - Nialler9
+- [Foo Fighters Are Coming To Europe In 2027 On “Take Cover Tour”](https://www.impericon.com/blogs/magazine/foo-fighters-are-coming-to-europe-in-2027-on-take-cover-tour) - Impericon
+- [Foo Fighters announce Croke Park date for September 2027](https://www.rte.ie/entertainment/2026/1116/1599331-foo-fighters-announce-croke-park-date-for-september-2027) - Rte
+- [Foo Fighters announce Croke Park concert with Garbage and Florence Road](https://puremzine.com/foo-fighters-announce-croke-park-concert-with-garbage-and-florence-road) - Puremzine
