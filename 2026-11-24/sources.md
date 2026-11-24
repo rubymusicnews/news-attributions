@@ -1,0 +1,77 @@
+# Sources for 2026-11-24 News Episode 
+- [Ariana Grande Teases Eternal Sunshine Tour Concert Film: Video](https://www.billboard.com/music/music-news/ariana-grande-eternal-sunshine-tour-concert-film-video-tease-1236387821/) - Billboard
+- [Ariana Grande Teases Eternal Sunshine Tour Concert Film: Video](https://www.billboard.com/music/music-news/ariana-grande-eternal-sunshine-tour-concert-film-video-tease-1236387821) - Billboard
+- [Ariana Grande Teases 'Eternal Sunshine Tour' Movie at Peacock](https://variety.com/2026/music/news/ariana-grande-teases-eternal-sunshine-tour-movie-peacock-1236956068) - Variety
+- [Ariana Grande Teases 'Eternal Sunshine Tour' Project At Peacock](https://deadline.com/2026/11/ariana-grande-eternal-sunshine-tour-project-peacock-1237232061) - Deadline
+- [Ariana Grande's Eternal Sunshine Tour Film: What to Know](https://www.elle.com/culture/music/a74510689/ariana-grande-eternal-sunshine-tour-film-everything-to-know) - Elle
+- [Ariana Grande appears to tease Eternal Sunshine Tour film - Attitude](https://www.attitude.co.uk/culture/ariana-grande-eternal-sunshine-tour-film-540440) - Attitude
+- [Watch Taylor Swift Surprise Brenda Lee With ‘Rockin’ Around the Christmas Tree’ Honor](https://www.rollingstone.com/music/music-country/taylor-swift-rockin-around-the-christmas-tree-brenda-lee-1235662663/) - Rolling Stone
+- ['Rockin' Around the Christmas Tree' becomes diamond certified](https://www.youtube.com/watch?v=mD_tpu9zqg0) - Youtube
+- [Brenda Lee Receives Diamond Plaque For 'Rockin' Around The Christmas Tree' - MusicRow.com](https://musicrow.com/2026/11/brenda-lee-receives-diamond-plaque-for-rockin-around-the-christmas-tree) - Musicrow
+- [Taylor Swift Surprises Brenda Lee With Diamond Award](https://www.google.com/url?opi=89978449&q=CAESlAEBxCJF13hJXByeMvCweuaAQw_IiuttJm8SI7Sh0RKwut1fMiFkzc5wv3Zq-jAC7kS-16MzDEnHcy8tQ7Ksi7tA8ZBGSo7Gz1wlpvsqnlov7kXij33v4Vs7j1fvNJ9KZss1K2w2vXz2ZjVILpqmmi9aHjvJOcnxKm4zl7r8LSBa1Eggys6cEYvCCUXAW8aNyWVyHR6M&sa=U&uoh=3&ved=2ahUKEwiUoqLWvKCYAxUwMlkFHU2fKf0QxfQBegQIBhAC&usg=AOvVaw1ynFiD0GcSNhTd_9fpLjcb) - Google
+- [Taylor Swift presented Brenda Lee w/ the RIAA Diamond plaque for her ...](https://www.youtube.com/watch?v=gmn8RxTyVxQ) - Youtube
+- [Taylor Swift Pairs Her $1 Million Ring Stack With a $30,000 Diamond Watch for Surprise Appearance](https://www.google.com/url?opi=89978449&q=CAESnQEBxCJF113Y7uIEWVb7dwPoft6tYI_gihQGLbaQsdPgUqgbgoa-e93MDj1SiuVa_lJKenyLdbGKsX6t-4aGHJ0KB7NmN6re5wNN4I5NzaApjKM1iNG1rGoS9eiV8jIA9cAAlp89x8_CQX6mfd4O9dIIlTXamdNrdnZ9wfnB2lKSDXUvGBtTE6gSgua80inxVsHthXWJ3WTWx6LHsaI2&sa=U&uoh=3&ved=2ahUKEwjCr73YvKCYAxVvEEQIHVIALWgQxfQBegQIBRAC&usg=AOvVaw17dVYdzdhULBmzm9G7lvyz) - Google
+- [Taylor Swift Surprises Brenda Lee with Diamond Plaque](https://www.google.com/url?opi=89978449&q=CAESoAEBxCJF1wEl9H2XVkSaIuA8q6jBUP2XJAGSIeoD5lwAv_zX2mAz6l4_7NcJci9LFipgIU9qqqlvchohxXa-s2vL5L_8t-CwUQc9Yuv-WRCR8S9G96rvbn6Ac_bhTkVf0oE7wcG45D3j2k1FaP19GDlRkhI4eQmNyHjv0PYKfDkQGq1MF91O4WP57No56RCWLS5AaE_FrmlCkNywWfrsSMa5&sa=U&uoh=3&ved=2ahUKEwjCr73YvKCYAxVvEEQIHVIALWgQxfQBegQIBxAC&usg=AOvVaw3nTfydd3gawWA09utLBNaC) - Google
+- [Clairo Covers Beloved MF Doom Song With El Michels Affair](https://www.rollingstone.com/music/music-news/clairo-mf-doom-lavender-buds-cover-1235662772/) - Rolling Stone
+- [Clairo Covers Beloved MF Doom Song With El Michels Affair - Rolling Stone Canada](https://ca.rollingstone.com/music/clairo-mf-doom-lavender-buds-cover) - Rollingstone
+- [Clairo Covers MF Doom Song With El Michels Affair](https://www.rollingstone.com/music/music-news/clairo-mf-doom-lavender-buds-cover-1235662772) - Rollingstone
+- [Clairo has covered MF DOOM's "Lavender Buds" with El Michels Affair ...](https://www.instagram.com/p/DgGj-jMIMUm) - Instagram
+- [Clairo just released an MF DOOM cover \| The Line of Best Fit](https://www.thelineofbestfit.com/news/clairo-just-released-an-mf-doom-cover) - Thelineofbestfit
+- [Clairo covers MF Doom's Lavender buds](https://www.facebook.com/thelineofbestfit/posts/clairo-has-released-a-tribute-to-mf-doom-a-cover-version-of-the-late-rappers-200/1667192458753319) - Facebook
+- [The Warning Take Over NFL Mexico Halftime Show, Perform “Ritual,” “Ego,” and “Kerosene:” Watch](https://consequence.net/2026/11/the-warning-peform-nfl-mexico-halftime-show/) - Consequence.net
+- [The Warning Rock NFL Mexico Halftime Show With Three-Song Set](https://consequence.net/2026/11/the-warning-peform-nfl-mexico-halftime-show) - Consequence
+- [The Warning Rock NFL Halftime Show in Mexico City](https://therockrevival.com/rock-news/the-warning-rock-nfl-halftime-show-in-mexico-city) - Therockrevival
+- [The Warning Take Over NFL Mexico Halftime Show, Perform “Ritual,” “Ego,” and “Kerosene:” Watch](https://www.google.com/url?opi=89978449&q=CAESiQEBxCJF1ziHIhy0vdUqdU3DGTW2KCYt6D4I4wPaTjFp_qaMSrL1N3VnLIAiffy3X8024E1cQanyKGGOrOKQhRwRJBV-ZejX7-hV1BaWAdKD063Gpq9U2TKk8r0ZfYXPt7hDBnRy0PdhKBGly8a_-ziFK08GJ8Isn1M1IRBEmAa9eeAQ2zfKwQcntw&sa=U&uoh=3&ved=2ahUKEwiStJrhvKCYAxU3wvACHaX1AhIQxfQBegQIAxAC&usg=AOvVaw15i_OZqEMztLYwRIlHgUPX) - Google
+- [The Warning win first Latin Grammy as Ego takes Best Rock Song](https://chaoszine.net/the-warning-win-their-first-latin-grammy-award) - Chaoszine
+- [RUSH’s Geddy Lee Dismisses Claim “Woke Agenda” Affected Drummer Choice](https://consequence.net/2026/11/rush-geddy-lee-dismisses-woke-agenda-claims-new-drummer/) - Consequence.net
+- [Geddy Lee has a blunt response to Rush critics about hiring Anika Nilles \| GuitarPlayer](https://www.guitarplayer.com/music/geddy-lee-has-a-blunt-response-to-rush-critics-about-hiring-anika-nilles-theyre-moronic-assertions) - Guitarplayer
+- [Some still struggle with this argument which has started many fights, just ...](https://www.facebook.com/groups/2172567429740883/posts/3092332947764322) - Facebook
+- [“We live in a time of empowered idiots, and they’re all over social media”: Rush’s Geddy Lee shoots down claims of ‘woke agenda’ \| Louder](https://www.loudersound.com/bands-artists/rushs-geddy-lee-shoots-down-claims-of-woke-agenda) - Loudersound
+- [Geddy Lee Insists 'Woke Agenda' Didn't Impact Rush Drummer Choice](https://ultimateclassicrock.com/geddy-lee-woke-agenda-rush-drummer-anika-nilles) - Ultimateclassicrock
+- [Apple TV announces four-part documentary event ‘TIMBERLAKE’](https://macdailynews.com/2026/11/23/apple-tv-announces-four-part-documentary-event-timberlake/) - Macdailynews.com
+- [Apple TV Announces Four-Part Documentary Event "Timberlake"](http://www.thefutoncritic.com/news/2026/11/23/apple-tv-announces-four-part-documentary-event-timberlake-914510/20261123apple01/) - Thefutoncritic.com
+- [Justin Timberlake shares rare insight into bitter Britney Spears breakup: ‘Really hard to talk about’](https://pagesix.com/2026/11/23/celebrity-news/justin-timberlake-shares-rare-insight-into-bitter-britney-spears-breakup/) - Page Six
+- [Apple TV announces four-part documentary event “TIMBERLAKE” - Apple TV Press](https://www.apple.com/tv-pr/news/2026/11/apple-tv-announces-new-four-part-documentary-event-timberlake-directed-by-academy-award-winner-fisher-stevens) - Apple
+- [Timberlake \| Official Documentary Trailer (Apple TV, 2026)](https://www.youtube.com/watch?v=o8XYZSQSldA) - Youtube
+- [Iran lashes singer dozens of times over concert: reports](https://www.channelnewsasia.com/world/iran-singer-lashes-ahmadi-hijab-concert-video-6576006) - CNA
+- [BBC Global Women on Instagram: "A sentence of 74 lashes has been carried out against Parastoo Ahmadi, a prominent Iranian singer who…"](https://www.instagram.com/reel/DgF5yrEiC2V) - Instagram
+- [Human Rights Watch on Instagram: "Iranian singer Parastoo Ahmadi and several members of her production team were each subjected to 74 …"](https://www.instagram.com/p/DgGhSpol1XJ) - Instagram
+- [Iran flogs female singer and four members of concert team over her performance without hijab \| CNN](https://www.cnn.com/2026/11/23/middleeast/iran-flogs-singer-parastoo-ahmadi-latam-intl) - Cnn
+- [Flogging of Iranian singer Parastoo Ahmadi sparks outrage on social media \| Iran International](https://www.iranintl.com/en/202611245387) - Iranintl
+- [Iranian singer lashed 74 times over online concert without hijab \| The Times of Israel](https://www.timesofisrael.com/iranian-singer-lashed-74-times-over-online-concert-without-hijab) - Timesofisrael
+- [Parastoo Ahmadi given 74 lashes over 2024 online concert](https://www.nacionale.com/en/articles/who-is-parastoo-ahmadi-iranian-singer-74-lashes-youtube-concert-hijab-qom) - Nacionale
+- [Iran Flogs Singer Parastoo Ahmadi Over Hijab Free Concert](https://demokratis.co.id/en/iran-flogs-parastoo-ahmadi-concert) - Demokratis
+- [Parastoo Ahmadi Flogged: Iran's 74 Lashes and the Prohibition of Torture](https://www.diplomacyandlaw.com/post/parastoo-ahmadi) - Diplomacyandlaw
+- [Macy Gray to Release Next Album Inside a Microdrama, Partnering With Vertical Platform ReelShort (EXCLUSIVE)](https://variety.com/2026/tv/news/macy-gray-microdrama-album-reelshort-1236956213/) - Variety
+- [Macy Gray to Release Next Album Inside a ReelShort Microdrama](https://variety.com/2026/tv/news/macy-gray-microdrama-album-reelshort-1236956213) - Variety
+- [Macy Gray Plans to Release Next Album Through ReelShort Microdrama \| Межа](https://mezha.net/eng/news/mezha-e84e11e5e6b5f500150654c5_macy_gray_plans) - Mezha
+- [Macy Gray Will Release Her First Album in Nearly a Decade Inside ...](https://www.buymixtapes.com/blog_post.php?slug=macy-gray-will-release-her-first-album-in-nearly-a-decade-inside-a-vertical-micr) - Buymixtapes
+- [Macy Gray yeni albümünü dikey bir mikrodizinin içinde yayımlayacak](https://www.powerapp.com.tr/haberler/muzik-haber/macy-gray-yeni-albumunu-dikey-bir-mikrodizinin-icinde-yayimlayacak-722468) - Powerapp
+- [Vanity Fair accused of brutal Taylor Swift 'hit piece' that paints pop icon as a greedy mean girl bully](https://www.dailymail.com/tvshowbiz/article-16316195/Taylor-Swift-Vanity-Fair-wild-takedown-bully-greed-travis-kelce.html) - Dailymail.com
+- [Explosive Variety Exposé Paints Taylor Swift As A Manipulative, Devious Bully](https://dailycaller.com/2026/11/23/taylor-swift-accused-of-bullying-manipulation-explosive-expose-variety/) - The Daily Caller
+- [Taylor Swift Accused of ‘Mean Girl’ Behavior in Bombshell Vanity Fair Piece](https://www.thehollywoodgossip.com/taylor-swift-accused-of-mean-girl-behavior-in-bombshell-vanity-fair-piece/) - The Hollywood Gossip
+- [What If We Told You She’s a Mastermind? A Tale of Pop Stardom](https://www.vanityfair.com/story/the-mastermind) - Vanity Fair
+- [All of the Taylor Swift-inspired Easter eggs in Vanity Fair’s savage hit piece revealed](https://pagesix.com/entertainment/easter-eggs-vanity-fair-taylor-swift-hit-piece/) - Page Six
+- [Amy Lee on Evanescence’s Sanctuary, Fighting Manipulation, and 20 Years of The Open Door: Podcast](https://consequence.net/2026/11/evanescence-amy-lee-sanctuary-the-open-door/) - Consequence.net
+- [Evanescence’s The Open Door At 20: Celebrating The Album That Opened A New Chapter In Rock History! \| Beat](https://vocal.media/beat/evanescences-the-open-door-at-20-celebrating-the-album-that-opened-a-new-chapter-in-rock-history) - Vocal
+- [Nicko McBrain Names His Favorite Album Experience in Iron Maiden](https://loudwire.com/iron-maiden-nicko-mcbrain-favorite-album-experience/) - Loudwire
+- [Nicko McBrain Names His Favorite Album Experience in Iron Maiden](https://loudwire.com/iron-maiden-nicko-mcbrain-favorite-album-experience) - Loudwire
+- [Nicko McBrain Reveals Why He REALLY Left Iron Maiden](https://www.youtube.com/watch?v=6j1OABrZ2q4) - Youtube
+- [Inside the Brain of Nicko McBrain - Rock and Roll Globe](https://rockandrollglobe.com/heavy-metal/inside-the-brain-of-nicko-mcbrain) - Rockandrollglobe
+- [Interview with Iron Maiden drummer Nicko McBrain](https://www.youtube.com/watch?v=7Wr-dhUl10o) - Youtube
+- [FKA twigs, Patti Smith and Marina Abramović lead opening show at Stockholm venue Gasometer](https://www.thelineofbestfit.com/news/fka-twigs-patti-smith-marina-abramovic-to-open-gasometer-stockholm-new-cultural-landmark) - Thelineofbestfit.com
+- [FKA Twigs and Patti Smith announced for launch of €100m Stockholm Gasometer venue \| Live \| Music Week](https://www.musicweek.com/live/read/fka-twigs-and-patti-smith-announced-for-launch-of-eur100m-stockholm-gasometer-venue/095544) - Musicweek
+- [Inside Stockholm’s Gasometer, Europe’s Most Ambitious New Music Venue](https://www.billboard.com/pro/stockholm-gasometer-music-venue-europe) - Billboard
+- [Olivia Rodrigo Covers The White Stripes’ “Dead Leaves and the Dirty Ground” at Third Man Records](https://consequence.net/2026/11/olivia-rodrigo-white-stripes-dead-leaves-and-the-dirty-ground/) - Consequence.net
+- [olivia performing a cover of 'dead leaves and the dirty ground' by the white stripes in the blue room at third man records in nashville! — via @wnxpnashville](https://www.threads.com/@olivia.updatesrodrigo/post/DgFYMwkm3pw/video-olivia-performing-a-cover-of-dead-leaves-and-the-dirty-ground-by-the-white) - Threads
+- [Watch Olivia Rodrigo Cover 'Dead Leaves and the Dirty Ground' at Jack White's Blue Room](https://953thebeach.com/2026/11/22/watch-olivia-rodrigo-cover-dead-leaves-and-the-dirty-ground-at-jack-whites-blue-room) - 953thebeach
+- [Watch Olivia Rodrigo Cover ‘De ... – Music News Radio – Apple Podcasts](https://podcasts.apple.com/lu/podcast/watch-olivia-rodrigo-cover-dead-leaves-and-the/id1816252276?i=1000803541190&l=de-DE) - Apple
+- [Olivia Rodrigo covers The White Stripes at Jack White's Nashville venue](https://www.yahoo.com/entertainment/music/concerts/articles/olivia-rodrigo-covers-white-stripes-164003395.html) - Yahoo
+- [Olivia Rodrigo Covers The White Stripes' "Dead Leaves and the Dirty Ground" at Third Man Records](https://www.google.com/url?opi=89978449&q=CAESmwEBxCJF19OyCl8YR9xZ2NcCBVjRqxHqNg_s8YuaBgm64FudngrKBCdFsKBcuYQedtixnW9j6aNLxMtNcKJTqO14aQJgP0EqASFdaDaiPLE7kUgalPGPJS2K3Ns-3N1jISVwKlUhabTI7Ic-crM_C4SEh0tl0YP_szW551JbkSBFGGKiKHvgk1oQ2ITJYH_27zlTerYr2BuyojqRmA&sa=U&uoh=3&ved=2ahUKEwi_xs2MvaCYAxVolu4BHeovEnEQxfQBegQIBBAC&usg=AOvVaw1e-KzwUC0YjgNg6DrRKLEu) - Google
+- [Olivia Rodrigo Covers The White Stripes' "Dead Leaves and the Dirty Ground" at Third Man Records](https://consequence.net/2026/11/olivia-rodrigo-white-stripes-dead-leaves-and-the-dirty-ground) - Consequence
+- [Diana Krall – The Look of Love (25th Anniversary Edition) (2026)](https://exystence.net/blog/2026/11/23/diana-krall-the-look-of-love-25th-anniversary-edition-2026/) - Exystence.net
+- [Universal Music Canada](https://www.universalmusic.ca/2026/11/20/diana-krall-celebrates-landmark-album-the-look-of-lovedeluxe-25th-anniversary-edition-available-now-featuring-five-bonus-tracks) - Universalmusic
+- [Diana Krall's The Look of Love turns 25. Verve has released an anniversary ...](https://www.instagram.com/p/DgGbKp9FZWd) - Instagram
+- [The Look Of Love (25th Anniversary Edition) - Diana Krall \|](https://www.jazzmessengers.com/en/113244/diana-krall/the-look-of-love-25th-anniversary-edition-diana-krall) - Jazzmessengers
+- [How Long I Have Waited: Diana Krall Revisits "The Look of Love" For 25th Anniversary - The Second Disc](https://theseconddisc.com/2026/10/27/diana-krall-the-look-of-love-25th-anniversary) - Theseconddisc
+- [The Look Of Love (25th Anniversary Edition)](https://music.amazon.com/albums/B0HKM9GZ4Z) - Amazon
